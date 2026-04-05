@@ -1,3 +1,32 @@
+###  Публикация: 1649612   (229347) от 28.07.2023
+
+Green Labyrinth - Sequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamland (08:11)
+02. Haunted (05:22)
+03. Limited (06:43)
+04. The Art Of Betrayal (06:42)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0268C90CC8037035C75521BAC790C60CD036A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512855   (229346) от 26.11.2021
 
 Alien Force - We Meet Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +35,7 @@ Alien Force - We Meet Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229346.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sevendust - Superficial Drug (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229341.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tantrum - Another Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229331.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ DiGelsomina - Sic Itur Ad Astra (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229324.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229317.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Edge Of The Blade - Distant Shores (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229313.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Girlschool - WTFortyfive? (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229304.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Night Legion - Fight or Fall (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229297.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Chris Boltendahl's Steelhammer - Reborn In Flames (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229289.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Green Labyrinth - Sequences (2023) [MP3|320 Kbps] <Symphonic Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229282.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Khymera - Master Of Illusions (2020) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229277.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Black Veil Brides - The Phantom Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229260.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Celldweller - Satellites (2022) Remixed, 2023, FiXT [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229259.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Victory - Gods Of Tomorrow (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229252.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Eternity's End - Embers Of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229239.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Red Usurper - Abandon (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Groove
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229214.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Get Cold - 3 Relise (2014-2022) [MP3|320 Kbps] <Emo Punk, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229205.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sevendust - Truth Killer (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229202.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229198.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Traitors Among Us - Perceptions (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229197.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Epica - Consign To Oblivion (Live At The Afas Live) (2023) EP [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229185.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Lordi - Lordiversity: Superflytrap (2021) [MP3|320 Kbps] <Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229178.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Korn (KoЯn) - Untitled (2007) Deluxe, 2023, Tempo Music [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229156.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Sudden Deaf - Havoc (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229154.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Desires Dawn - Один (2022) [MP3|320 Kbps] <Metalcore, Post Hardcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229147.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Desires Dawn - Один (2022) [MP3|320 Kbps] <Metalcore, Post Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB4D10603925E7C36F86AA35320D696EA49C604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583490   (229140) от 15.10.2022
-
-Decharot - Vemana (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ziggurat Sacrifice (06:08)
-02. Evisceration (04:46)
-03. The Harvest (05:33)
-04. Executed For Their Own Safety (03:52)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EB8AB6DCE66E7D808DB7A43823A8CBC7A2B5A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

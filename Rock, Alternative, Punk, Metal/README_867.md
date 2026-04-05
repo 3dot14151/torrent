@@ -1,3 +1,32 @@
+###  Публикация: 1456099   (236756) от 21.03.2021
+
+Arret's Odyssey - Arret's Odyssey (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unending Nightmare [00:04:24]
+02. The Odyssey [00:05:02]
+03. Cosmic Vibrations [00:06:00]
+04. Equinox [00:06:06](   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD79BC224717CE548DE270E0930E17171701E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456133   (236750) от 21.03.2021
 
 Tim Feehan - Full Contact (1990) [FLAC|Lossless|image + .cue] <AOR>
@@ -6,7 +35,7 @@ Tim Feehan - Full Contact (1990) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236750.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sic Vikki - Streetside Picasso (1995) Japanese Edition [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236747.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Alan King - I Saw The Rain (1995) [FLAC|Lossless|image + .cue] <AOR, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236738.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Crystal City Rockers - After All These Years (2021) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236727.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Egor Lappo - Trancevoicer (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236716.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Dear Hunter - The Indigo Child (2021) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236715.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Tonight's Hero - Skeleton Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236711.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Glacier - 2 Albums (2001-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236700.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Plaindrifter - Echo Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236678.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Eloy - Ocean (1977) Remastered, 2019, Vertigo Berlin [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236675.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Summer Hits 2023 - Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236670.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Kesem - Post-Terra (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236663.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Shabnak - Fusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Tribal Metal, Industrual 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236647.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Ordeal & Plight - Her Bones In Whispers (2021) [FLAC|Lossless|image + .cue] <Pos
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236640.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Axel Rudi Pell - The Ballads VI (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236637.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Delorian Domain - Alchemilla (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236617.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Opera IX - The Gospel (2018) [FLAC|Lossless|image + .cue] <Symphonic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236615.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Crystal City Rockers - After All These Years (2021) [MP3|320 Kbps] <Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236609.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Real Loud - Real Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236606.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Plotnik82 - Не любил (2021) [MP3|320 Kbps] <Rock, Electronic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236595.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Arcana Collective - Atlas Lost, Act 1: The Long Sleep (2023) [FLAC 2.0|44/24|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236585.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Max Enix - Far From Home (2023) [MP3|320 Kbps] <Cinematic Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236581.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236579.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Fredrick John Pugsley - Live with Your Fear (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236571.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Black Paisley - Late Bloomer (2017) Reissue, 2021, Black Paisley AB, Deluxe Edit
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236568.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Black Paisley - Late Bloomer (2017) Reissue, 2021, Black Paisley AB, Deluxe Edit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B81AAAFC25C768B6D804637F11E9989901273776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628493   (236562) от 23.04.2023
-
-Bruce Gaitsch - How Fragile We Are (2023) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchain My Heart (7:26)
-02. Fools Cry (5:41)
-03. Aphasia (5:00)
-04. Illinois (2:32)(   Читать дальше...   )Жанр: AOR, Soft RockПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAAAEF1302E888EF46160273393B84C6CAEF6FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1205369   (783464) от 10.02.2018
+
+Yann Tiersen - EUSA (2016) [FLAC|Lossless|tracks + .cue] <Neoclassical, Contemporary, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/18. Hent I (2:56)
+ 02/18. Pern (4:27)
+ 03/18. Hent II (1:15)
+ 04/18. Porz Goret (4:56)(   Читать дальше...   )Жанр: Neoclassical, Contemporary, PianoПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247D54A9DFE800BA24E6B64C0F4BFE41395AACDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206194   (782511) от 13.02.2018
 
 Tom Parker Featuring Berdien Stenberg & Jaap van Zweden - Bach - The Brandenburgs - The Concertos 1, 2 & 3 (A Tom Parker Project) (1995) 1997 [FLAC|Lossless|image + .cue] <Classical, Neo ...
@@ -6,7 +35,7 @@ Tom Parker Featuring Berdien Stenberg & Jaap van Zweden - Bach - The Brandenburg
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782511.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Andrew Jasinski - Embracing the Universe (2017) [FLAC|Lossless|WEB-DL|tracks] <M
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781016.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Andrew Jasinski - Sea (2014) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ne
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781000.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Akira Kosemura - In The Dark Woods (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780515.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Jacqueline Leung - In Sunshine or In Shadow (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779781.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Paul Van Nevel & Huelgas Ensemble - Дискография (1990-2017) 53 аль
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779749.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Catherine Lara - Bô, le voyage musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778671.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ VA - 100 Violin Masterworks (2018) [MP3|320 Kbps] <Classical>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778623.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Wolfgang Amadeus Mozart - Sonatas For Piano & Violin (2012) [MP3|320 кб/с] <C
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778257.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Wolfgang Amadeus Mozart - Sonatas For Piano & Violin (2012) [FLAC 2.0|96/24|Loss
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778176.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Waka Hasegawa, Samuel Coleridge - Taylor: Undiscovered Piano Works (1875-1912) 2
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777536.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Annie Moses Band - American Rhapsody (2015) [MP3|320 кб/с] <Classical Crossov
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777225.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Antonio Vivaldi - Recorder Concertos (Jan Bjoranger; Ensemble 1B1; Jonas Paradis
 >>Концерты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776728.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Andre Gagnon - Les Chemins Ombrages (2010) [FLAC|Lossless|tracks] <Classical, Mo
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776028.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Katherine Jenkins - Celebration (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775674.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ VA - Bespoke Classics: New Classics For Cool Dads (2018) [FLAC|Lossless|WEB-DL|t
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774950.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Olga Scheps - Satie (2016) [MP3|320 кб/с] <Classical, Piano>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773975.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ London Symphony Orchestra and London Pop Choir - Plays The Best Of The Beatles (
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771672.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ VA - 100 лучших произведений классики (2010) [MP3|256 
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770956.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ V.A. - Most Relaxing Classics - Inspiration (2009) [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770639.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ N. Rimsky-Korsakov / Н.Римский-Корсаков - The Snow Maiden / Сн
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770156.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ VA - Simply Piano Moods (2011) 2CD, Boxset[FLAC|Lossless|tracks + .cue] <Piano, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770074.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ Jef Martens - Evenings on Instagram, Pt. I-III (2019) [FLAC|Lossless|WEB-DL|trac
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769798.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ Wataru Sato - midnight solitude (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Amb
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767752.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767671.jpg" />
 </div>
 
 
@@ -708,35 +737,6 @@ Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:048749AA29970C89FBF4B63C9D5C1A696C5D731C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393419   (767601) от 30.06.2020
-
-Maxence Cyrin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Ambient>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Poetry (3:03)
- 02. Mer de velours (3:35)
- 03. Larmes glacées (3:24)
- 04. A Forest Bird Never Wants a Cage (2:09)(   Читать дальше...   )Жанр: Modern Classical, Piano, AmbientПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF0349AA8A5C891478974977AD697451BA0E0974
 ```
 
 https://mybot314.ru/tekegram_catalog/

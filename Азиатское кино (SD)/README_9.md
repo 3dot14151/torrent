@@ -1,3 +1,82 @@
+###  Публикация: 628162   (934446) от 11.03.2013
+
+Любовь и честь / Love and Honor / Bushi no ichibun (2006) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой картины — самурай, выполняющий в своем клане не самую почетную и интересную работу: он проверяет пищу на предмет отравы. Однажды он съедает сашими из неправильной рыбы и слепнет. Честь и благополучие семьи под угрозой.
+Преданная жена вызывает на подмогу одного из лучших воинов страны — но какому уважающему себя мужчине захочется оказаться под защитой более сильного?Жанр: Драма, МелодрамаРежиссер: Ёдзи ЯмадаАктеры: Такуя Кимура, Рэй Дан, Мицугоро Бандо, Такаси Сасано, Каори Момои, Нендзи Кобаяси, Кен Огата, Макото Акацука, Ясуо Дайчи, Токиэ Хидари, Коэн КондоПеревод: Профессиональный (многоголосый закадровый) Cinema Prestige + Авторский (одноголосый закадровый) Ю.Сербин / внешняяЯзык субтитров: РусскиеПродолжительность: 02:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AABA5D6CA85B2E56E800576327B255083D3ACDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364741   (934418) от 04.03.2020
+
+Убийца династии Мин / The Ming Dynasty Assassin (2017) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злобный евнух Вэй Чжунсянь убивает честных и преданных чиновников и угнетает простой народ. Командир императорских охранников Оуян Хань должен получить секретное письмо с доказательствами преступлений евнуха и передать его императору. Встреча состоится в таверне небольшого города. Туда же отправляются элитные убийцы евнуха Вэй Чжунсяня.Производство: Китай, iQIYI PicturesЖанр: ДрамаРежиссер: Хэ ЦзянаньАктеры: Ален Тань, Дун Маньтин, Чжань Му, Санни Дай, Ван Ган, Мин Цзян, Лю Наньси, Лю Айни, Ван Мэйсинь, Цы Эр, Ван Цюмин, Ли ЦзиньПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5441A6CF28C430C3F3E04244C7567945D65B16BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629108   (934375) от 11.03.2013
+
+Скрытый клинок / Kakushi ken oni no tsume / The Hidden Blade (2004) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934375.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине XIX века наступают последние дни сегунов и самураев. Ветер перемен ощущается по всей Японии и даже в маленьком княжестве Унасаку на северо-западном побережье Японии… Тайную технику фехтования «Коготь дьявола» знает только Мунедзо, поэтому мир самураев еще не готов позволить Мунедзо уйти на свободу.Жанр: Драма, МелодрамаРежиссер: Ёдзи ЯмадаАктеры: Масатоши Нагасэ, Такако Мацу, Хидэтака Ёсиока, Юкиёси Одзава, Томоко Табата, Рэйко Такасима, Сатико Мицумото, Мин Танака, Тиэко Байсё, Кен Огата, Нэндзи Кобаяси, Куниэ ТанакаПеревод: Профессиональный (многоголосый закадровый) - Cinema PrestigeЯзык субтитров: Русские (Cinema.Prestige, DVIX.Club), Украинские, АнглийскиеПродолжительность: 2:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6665AFCF88426D778C9862C0BF9133C4D6B3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985613   (933537) от 12.02.2016
 
 Охота на монстра / Zhuo yao ji / Monster Hunt (2015) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933537.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932831.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932754.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932129.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930119.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930105.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928928.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928900.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928643.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928433.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925501.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925293.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924474.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924078.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923889.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923855.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922476.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922315.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922038.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921999.jpg" />
 </div>
 
 
@@ -530,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921833.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920832.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920563.jpg" />
 </div>
 
 
@@ -593,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E493525CBDD9C5EE59C410185B058BB8D1A50C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490090   (920509) от 19.08.2021
-
-Дальнобойщики 5 / Torakku yaro: Dokyo ichibanboshi / Truck Guys 5 / Truckster of Guts (1977) HDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятый фильм о приключениях дальнобойщиков Момодзиро (Бунта Сугавара) и Мацусита (Кинъя Айкава). На этот раз наши герои отправляются на Садо, где у Момодзиро вспыхивает роман со школьной учительницей, а Мацусита решает сменить вид деятельности и заняться добычей золота. В это же время банда дальнобойщиков "Челюсти" под предводительством Сонни Тиба терроризирует (   Читать дальше...   )Производство: Япония, Toei TokyoЖанр: Боевик, комедияРежиссер: Норифуми СудзукиАктеры: Бунта Сугавара, Кинъя Аикава, Масуми Харукава, Нагиса Катахира, Сонни Тиба, Тэруо СимидзуПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1AA750BAD3E8ABC0335F5C4B6687C9A3DC989B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366846   (920452) от 13.03.2020
-
-Посёлок безумных / Kichigai buraku (1957) Screener [DUB]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в небольшой деревушке вблизи Токио в середине XX века. До сих пор живут в маленькой общине нерушимые законы и обычаи, установленные в давние времена и передаваемые из поколения в поколение. Невыполнение этих обычаев строго наказуется. Всё решает в общине староста и два—три близких ему богача. Бедный крестьянин Тэцудзи нарушил обычай, решив пожаловаться (   Читать дальше...   )Производство: Япония, Shochiku Films Ltd.Жанр: ДрамаРежиссер: Минору СибуяАктеры: Юносукэ Ито, Тикагэ Авасима, Куми Мидзуно, Хисая Морисигэ, Кодзи Мицуи, Дзюндзабуро Бан, Исао Ямагата, Акира Исихама, Нидзико Киёкава, Каматари ФудзивараПеревод: Дублированный (Киностудия им. М. Горького)Субтитры: отсутствуютПродолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195D994E6D2E59F3F24F4003B8C67011DB9AD055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490157   (920225) от 19.08.2021
-
-Нитирэн и великое вторжение монголов / Nichiren to moko daishurai / Nichiren and the Great Mongol Invasion (1958) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнеописание основателя школы Сутры Лотоса Нитирэна (1222 — 1282). В этой ленте подчеркивается его роль в истории Японии, как истинного патриота и защитника нации. До сих пор каждый октябрь во многих храмах в память Нитирэне проводится буддийская служба О-эсики. Особенно торжественно и масштабно она проходит в токийском храме Икэгами Хонмондзи и длится три дня (с (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: Биография, драма, историяРежиссер: Кунио ВатанабэАктеры: Кадзуо Хасэгава, Такаси Симура, Синтаро Кацу, Раидзо Итикава, Сёдзи Умэкава, Ятаро Курокава, Тикагэ Авасима, Дзюнко Кано, Гандзиро Накамура, Тосио Тиба, Рюдзо Симада, Ёити Фунака, Бонтаро Миакэ, Рёскэ Кагава, Сёсаку Сугияма, Такаси СимураПеревод: Двуголосый любительский (STEPonee)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F767F93F7FCFC297A3ABB668336D4D10272B29C
 ```
 
 https://mybot314.ru/tekegram_catalog/

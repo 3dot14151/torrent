@@ -1,3 +1,30 @@
+###  Публикация: 409400   (122445) от 17.01.2024
+
+Николай Гоголь | Выбранные места из переписки с друзьями (2009) [MP3, Алексей Петренко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига выпущена в 2009 году к 200-летию со дня рождения Н.В. Гоголя.
+Повесть «Выбранные места из переписки с друзьями», опубликованные впервые в 1847 г., открывали читателям другого, незнакомого им Гоголя и, начиная с той поры до настоящего времени духовный путь писателя, его личность предстают как загадка, требующая постижения, но едва ли способная быть разгаданной. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: «Дом Н.В. Гоголя» – мемориальный музейПродолжительность: 01:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981BE118AFAC3EC5AD1FDED136E38BE8A72D2022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692623   (122388) от 17.01.2024
 
 Николай Гоголь | Вечера на хуторе близ Диканьки (2003) [MP3, Вячеслав Герасимов]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122388.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122260.jpg" />
 </div>
 
 
@@ -63,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122174.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122173.jpg" />
 </div>
 
 
@@ -119,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121728.jpg" />
 </div>
 
 
@@ -147,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121384.jpg" />
 </div>
 
 
@@ -174,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121373.jpg" />
 </div>
 
 
@@ -201,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121366.jpg" />
 </div>
 
 
@@ -227,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121363.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121270.jpg" />
 </div>
 
 
@@ -281,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121267.jpg" />
 </div>
 
 
@@ -308,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121223.jpg" />
 </div>
 
 
@@ -336,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121203.jpg" />
 </div>
 
 
@@ -364,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121151.jpg" />
 </div>
 
 
@@ -392,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121136.jpg" />
 </div>
 
 
@@ -421,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121131.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121130.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121129.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121127.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121089.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121082.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121003.jpg" />
 </div>
 
 
@@ -618,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120992.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120965.jpg" />
 </div>
 
 
@@ -674,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120859.jpg" />
 </div>
 
 
@@ -685,32 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E18FB4D291D9BE0441E81CD06BCF77BB545100CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694698   (120790) от 26.01.2024
-
-А. С. Пушкин | Дубровский. Капитанская дочка. Повести Белкина (2002) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120790.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пушкин есть явление чрезвычайное, и, может быть, единственное явление русского духа: это русский человек в его развитии, в каком он, может быть, явится через двести лет. В нём русская природа, русская душа, русский язык, русский характер отразились в той же чистоте, в такой очищенной красоте, в какой отражается ландшафт на выпуклой поверхности оптического стекла». (   Читать дальше...   )Жанр: классическая проза, рассказыЯзык озвучки: русскийИздательство: АРДИСПродолжительность: 11:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F6B9C90F514C0ABAD6C4953A8159EE055F382C
 ```
 
 https://mybot314.ru/tekegram_catalog/

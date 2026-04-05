@@ -1,3 +1,61 @@
+###  Публикация: 1090124   (949163) от 05.01.2017
+
+Jens Buchert - Electronic Moods (2013) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orbiting (4:27)
+ 02. Satelight (4:06)
+ 03. Love Double (Reloaded Mix) (4:37)
+ 04. Thoughts (6:47)(   Читать дальше...   )Жанр: Ambient, Downtempo, Trip HopПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1FA40F6B888258C46452FBACE0242040697CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982148   (948429) от 03.02.2016
+
+Daniel Masson - Ten Particles (2015) [MP3|320 кб/с] <Downtempo, Chillout, Acoustic Guitar>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emetteur 05:03
+02. Terres Sauvages 05:04
+03. Icarus Ballad 05:13
+04. Hope 04:37(   Читать дальше...   )Жанр: Downtempo, Chillout, Acoustic GuitarПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AE42DFC5AA96A4BB34581D1EDDCCBB8C00B1D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982184   (948356) от 03.02.2016
 
 VA - Erotic Hush Moments: Best of Intimate Downbeat Moments and Relaxation (2016) [MP3|320 кб/с] <Easy Listening>
@@ -6,7 +64,7 @@ VA - Erotic Hush Moments: Best of Intimate Downbeat Moments and Relaxation (2016
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948356.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Paul Haslinger - Exit Ghost (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Electronic, C
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948231.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Urban Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947720.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Ibiza Chillout Songs: Best Of 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947698.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947690.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947684.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Midnight Lounge Vol.24 The Piano (2017) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947608.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Essential Happy Hour Ibiza Lounge & Chillout Vol.3 (2017) [MP3|320 Kbps] <D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947602.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Re-Fresh The 90s: Club Classics (2017) [MP3|320 Kbps] <House, Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947600.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947535.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947531.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Krisma - Cathode Mamma (Remastered) (1980) 2007, Polydor [FLAC|Lossless|tracks +
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947468.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ DJ Eco - Подборка синглов (2007 - 2010) [MP3|320 kbps] <Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947454.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Acoustic Covers Of Popular Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947427.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Krake #002 (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient, IDM, Abstract, Dr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947327.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Drum & Bass Annual 2017 [MP3|320 Kbps] <Drum And Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947309.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - The Annual Chillout Sessions (29 January, 2016) [MP3|320 кб/с] <Balearic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947115.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Goran Geto - Diving To Deep (Dub Techno Edition) (2013) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947081.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Earthrise.ntone.1 (1995) [FLAC|Lossless|tracks + .cue] <Dub, Trip Hop, Ambi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947080.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Tove Lo - Lady Wood (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947076.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Eric Prydz - Opus (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946710.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - OPTICA (Mixed by Dj Бинокль) (2004) [MP3|320 Kbps] <House, Spanish T
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946631.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ DJ Woofer - Deep & Sexy Vol.02 (2005) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946581.jpg" />
 </div>
 
 
@@ -664,7 +722,7 @@ VA - Black Hole Trance Music 02-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946572.jpg" />
 </div>
 
 
@@ -678,64 +736,6 @@ VA - Black Hole Trance Music 02-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A26C2C2B9C91E7F4072E42CFC36AFB372F92B485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362648   (946570) от 25.02.2020
-
-Chromatics - Kill for Love (2012) Remastered 2017 [FLAC|Lossless|tracks + .cue] <Synthpop, Indie Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Black
-02. Kill For Love
-03. Back From The Grave
-04. The Page(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A304DBCB5C9F82A687D004F14BA7A068E4F59A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982877   (946526) от 04.02.2016
-
-Scooter - Ace (2016) [MP3|320 кб/с] <Techno, Jumpstyle>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace
-02. Oi
-03. Mary Got No Lamb
-04. Riot(   Читать дальше...   )Жанр: Techno, JumpstyleПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9065B24D41559BD03C86D4243C1F749901AE608
 ```
 
 https://mybot314.ru/tekegram_catalog/

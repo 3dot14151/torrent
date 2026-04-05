@@ -1,3 +1,56 @@
+###  Публикация: 1371833   (872214) от 10.04.2020
+
+Дьявол и десять заповедей / Le Diable et les dix commandements / The Devil and the Ten Commandments (1962) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872214.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дьявол и десять заповедей» — французский фильм Жюльена Дювивье 1962 года, состоящий из семи эпизодов-новелл, в которых снялись в главных ролях Фернандель, Луи де Фюнес, Ален Делон и другие звёзды французского кино.
+Перед нами – каталог человеческих слабостей, искушений, тщетных надежд, гордыни, а также – простоты, которая отнюдь не хуже воровства. Банально, но в (   Читать дальше...   )Производство: Франция, Италия /  Filmsonor S.A., Incei Film, Mondex Films, ProcinexЖанр: Комедия, драмаРежиссер: Жюльен ДювивьеАктеры: Мишель Симон, Ален Делон, Луи де Фюнес, Мишлин Прель, Шарль Азнавур, Жан-Клод Бриали, Фернандель, Мэл Феррер, Лино Вентура,  Клод Дофэн, Гастон Модо, Француаза АрнульПеревод: Дублированный, многоголосый профессиональный, двухголосый профессиональныйСубтитры: отсутствуютПродолжительность: 02:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B820A2CE5692B748003CB56FE052213A056268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994335   (871869) от 18.03.2016
+
+Ради нескольких долларов / Per pochi dollari ancora (1966) DVDRip [H.264] [АVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нахрапистые северяне уже вовсю теснят по всем фронтам южан, общая победа предрешена, но война ещё не окончена. Одного из пленённых южан, которого сыграл героический Джулиано Джемма, просят в качестве проводника довести двух северян до форта Юма.Производство: Италия, Франция, Испания / poca Films S.A., Fida Cinematografica, Les Productions Jacques RoitfeldЖанр: Вестерн, ВоенныйРежиссер: Джорджио ФеррониАктеры: Джулиано Джемма, Дэн Вадис, Софи Домье, Жак Серна, Нелло Паццафини, Хосе Кальво, Анхель дель Позо, Жак Эрлен, Андреа Босич, Антонио Молино РохоПеревод: Авторский (М.Иванов)Субтитры: ОтсутствуютПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96238E85CA5A20EB27526CFFDB01FC2007015BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105972   (871219) от 20.02.2017
 
 Мистер Питкин: Ранняя пташка / The Early Bird (1965) DVDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871219.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871073.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871044.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869826.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868309.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868117.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867998.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867996.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867786.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867698.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867248.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867188.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865440.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865359.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864752.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864670.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864343.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864143.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863671.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863373.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863014.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863010.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862819.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862775.jpg" />
 </div>
 
 
@@ -620,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:592D06C4AC63DB5AE92139C0AFBDC227514F1FF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994560   (862515) от 23.03.2016
-
-Ночь генералов / The Night of the Generals (1967) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862515.jpg" />
-</div>
-
-
-###  Подробнее
-
-В оккупированной нацистами Варшаве в 1942 году убивают проститутку. В ходе расследования убийства подозреваемыми становятся три известных генерала вермахта. Дело спускают на тормозах, а обвиняемых спешно переводят в Париж. Однако вскоре и здесь обнаруживают труп девушки легкого поведения. Майора Грау, взявшегося за это таинственное дело, вынуждают прекратить дальнейшее (   Читать дальше...   )Производство: Великобритания, Франция, Columbia Pictures, Filmsonor S.A., Horizon Pictures (II)Жанр: Военный, Детектив, ТриллерРежиссер: Анатоль ЛитвакАктеры: Питер О`Тул, Омар Шариф, Том Кортни, Дональд Плезенс, Джоанна Петтет, Филипп Нуаре, Чарльз Грей, Корэл Браун, Джон Грегсон, Найджел Сток, Кристофер Пламмер, Жюльетт Греко, Ив Брэнвиль, Саша Питоефф, Шарль МийоПеревод: Многоголосый закадровый, одноголосый закадровыйПродолжительность: 02:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2249DEB16E191525D0E1D49233F77DC9FE0E15E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871336   (862477) от 03.03.2015
-
-Займемся любовью / Let's Make Love (1960) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер Жан-Марк Клеман — потомственный бизнесмен и привлекательный мужчина. Он умеет делать деньги и очень любит женщин. Жан-Марк привык блистать в обществе и считает, что для него нет ничего невозможного.
-Получив шокирующее известие о том, что он — «гений бизнеса» — станет объектом насмешек в юмористическом спектакле, Клеман решает самостоятельно разобраться (   Читать дальше...   )Производство: США / Jerry Wald ProductionsЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Джордж КьюкорАктеры: Мэрилин Монро, Ив Монтан, Тони Рэндалл, Фрэнки Вон, Уилфрид Хайд-Уайт, Дэвид Барнс, Майкл Дэвид, Мара Линн, Дэннис Кинг мл., Джо БессерПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1516BD2A7512A91362F10F6969992FE9704791C
 ```
 
 https://mybot314.ru/tekegram_catalog/

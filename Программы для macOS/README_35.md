@@ -1,3 +1,58 @@
+###  Публикация: 1379231   (841089) от 28.04.2020
+
+Clipboard Center 2.2.2 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clipboard Center простой в использовании и мощный менеджер буфера обмена. Через историю, разделенные списки и гибкий интерфейс, позволяет копировать и вставлять изображения, тексты и файлы более эффективным способом.
+
+Списки позволяют сохранять и упорядочивать захваченные данные из буфера обмена.  Окно приложения может быть прикреплено в верхнем правом углу экрана, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26.04.2020Разработчик: Jérémy MarchandПоддерживаемая ОС: OS X 10.14 +Язык интерфейса: Английский, Голландский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8009D6376A9CD62C8BA4654E0780FA30AB392D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379259   (841083) от 28.04.2020
+
+liquivid Video Stabilization 1.4.1 [En/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Liquivid Video Stabilization — это простое в использовании приложение, которое уменьшает дрожание камеры, находящейся в руках, или на клипах, снятых экшн-камерами или беспилотными аппаратами (например, квадрокоптерами).
+Имейте в виду, что стабилизация в пост-обработке всегда означает, что часть вашего видео будет обрезана навсегда: чем сильнее дрожание камеры, тем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2020Разработчик: Razvan ChisuzvanПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B5261DDD831BB588766073FBFDD6E305607410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379241   (840976) от 28.04.2020
 
 liquivid Video Deflickering 1.4.1 [En/Rus]
@@ -6,7 +61,7 @@ liquivid Video Deflickering 1.4.1 [En/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840976.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Macsome Spotify Downloader 1.0.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840853.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ Esko Studio Web 14 + Visualizer 14.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840263.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ iNet Network Scanner 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840103.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ ePub Metadata Editor 1.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840007.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ JetBrains WebStorm 2016.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839177.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ Hazel 3.3.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838308.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ Reflect Studio 2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838298.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ Paprika Recipe Manager 2.2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838050.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ Mirror for Samsung TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837942.jpg" />
 </div>
 
 
@@ -281,7 +336,7 @@ Topaz ReMask Prime 1.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837750.jpg" />
 </div>
 
 
@@ -309,7 +364,7 @@ SimpleMind Full 1.12.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836782.jpg" />
 </div>
 
 
@@ -337,7 +392,7 @@ iStatistica 1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836672.jpg" />
 </div>
 
 
@@ -366,7 +421,7 @@ FileSalvage 9.1 (3.0) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836607.jpg" />
 </div>
 
 
@@ -395,7 +450,7 @@ VLC media player 2.2.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836160.jpg" />
 </div>
 
 
@@ -421,7 +476,7 @@ CCleaner Professional Edition for Mac 1.12.339 [En/Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836040.jpg" />
 </div>
 
 
@@ -448,7 +503,7 @@ PullTube 0.9.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835232.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ Mirror for Philips TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835166.jpg" />
 </div>
 
 
@@ -506,7 +561,7 @@ Day One 2.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834364.jpg" />
 </div>
 
 
@@ -533,7 +588,7 @@ Capture One Pro 9.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833920.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ SEO Checker 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833157.jpg" />
 </div>
 
 
@@ -589,7 +644,7 @@ Resume Templates for Pages 2016 v2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832469.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ DirEqual 3.8.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831910.jpg" />
 </div>
 
 
@@ -644,7 +699,7 @@ WidsMob HDR 2.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831903.jpg" />
 </div>
 
 
@@ -655,59 +710,6 @@ WidsMob HDR 2.13 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35769711E55CC1893AE7095BEDC4C6D857C1056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501982   (831900) от 12.10.2021
-
-Clearview 2.3.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clearview - приложение для удобного чтения электронных книг на вашем Mac.
-Приложение работает с такими форматами, как PDF, EPUB, CHM, и MOBI. В процессе чтения вы можете добавлять аннотации, ставить закладки и использовать поиск по тексту. Чтобы добавить книги в вашу библиотеку - просто перетащите содержащую их папку в окно программы и вся информация будет быстро (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2021Разработчик: Canoe SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79E634D75F7DB1541E532C27991139B6F151247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502026   (831813) от 12.10.2021
-
-Aquarium HD Screensaver 3.3.0 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите ваш экран в красивый аквариум. Запускайте сцены аквариума вручную или в качестве экранной заставки.Тип издания: macOS SoftwareРелиз состоялся: 11.07.2021Разработчик: Voros InnovationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D214EEBDB5D7A4639FDCF5A2E6E18E3C8C7DD1C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

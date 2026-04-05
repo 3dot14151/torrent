@@ -1,3 +1,211 @@
+###  Публикация: 1751927   (42182) от 28.09.2024
+
+Discord может быть заблокирован или замедлен в России в ближайшие дни.
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный в ИТ-среде и игровом сообществе мессенджер Discord может быть вскоре официально заблокирован в России из-за нарушения законодательства, пишет «Коммерсантъ» со ссылкой на информированный источник.Как сообщается, со ссылкой на данные из реестра запрещённых сайтов ведомства, с 20 сентября Роскомнадзор вынес пять новых решений по поводу работы Discord в России, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727393   (42177) от 28.09.2024
+
+Яндекс.Погода v24.9.20 Mod by vadj [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42177.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 27.09.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0437257D3F4FF31B0004EC52B3288D98F4E03A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206037   (42166) от 28.09.2024
+
+Наутилус Помпилиус (Nautilus Pompilius) - Discography (45CD) (1983..2008) [MP3|320 kbps]<Русский Рок>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Русский РокПродолжительность: 34:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D18ED7C4FDD73B3C64570AC853E01C633C75872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748074   (42165) от 28.09.2024
+
+Ребел Ридж / Rebel Ridge (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший морпех вступает в схватку с коррупцией в небольшом городке, когда местные правоохранители незаконно изымают у него крупную сумму, необходимую для залога за кузена.Производство: США / Bonneville Pictures, Film ScienceЖанр: боевик, триллер, драма, криминалРежиссер: Джереми СолньеАктеры: Аарон Пьер, Дон Джонсон, Аннасофия Робб, Дэвид Денман, Эмори Коэн, Oscar Gale, Reid Williams, Стив Зиссис, Дэниэл Чунг, Дэна ЛиПеревод: Многоголосый (TVShows, HDrezka Studio, LE-Production), Двуголосый (ViruseProject), Авторский (М.Яроцкий)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, Английские (Full, SDH)Продолжительность: 02:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6A9625DD86D8BC1691FF2B6F125CAF96BA52FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751783   (42164) от 28.09.2024
+
+Одинокие волки / Wolfs (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пути двух соперничающих решал пересекаются, когда их обоих вызывают помочь скрыть промах видного нью-йоркского чиновника. В течение одной взрывоопасной ночи им придётся отбросить свои мелкие обиды и эго, чтобы довести дело до конца.Производство: Великобритания, США / Apple Studios, Columbia Pictures Corporation, Plan B Entertainment, Smoke HouseЖанр: триллер, криминалРежиссер: Джон УоттсАктеры: Брэд Питт, Джордж Клуни, Эми Райан, Остин Абрамс, Пурна Джаганнатан, Wael Alroyly, Златко Бурич, Линда Карола, Ирина Дубова, Ричард КайндПеревод: Профессиональный многоголосый (RGB)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECF4C16D9DA5541566CDFEE5062B8B7F1BC766C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221192   (42163) от 28.09.2024
+
+Жили-были (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старинная деревня в русской глубинке. Из жителей только два одиноких немолодых мужчины и внезапно овдовевшая женщина. Один из друзей решает, что пора завязывать с одиночеством и собирается предложить вдове руку и сердце. Но второй мужчина в корне с этим не согласен и тоже претендует на вакантное место. Лучшие друзья объявляют друг другу войну.Производство: Россия, Продюсерский центр Фёдора ДобронравоваЖанр: КомедияРежиссер: Эдуард ПарриАктеры: Фёдор Добронравов, Ирина Розанова, Роман Мадянов, Виктор Супрун, Владимир Капустин, Альбина Евтушевская, Алексей Ведерников, Ирина Сойкина, Владимир КарповПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0557459B7A0767B38F7D785CC3F73C26A51327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751466   (42126) от 28.09.2024
+
+Российские сотовые операторы внедряют блокчейн в сим-карты
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотовые операторы по всему миру начинают внедрять блокчейн-технологии в сим-карты, что обещает улучшить безопасность и упростить доступ к криптокошелькам для пользователей. В России МТС также изучает возможность интеграции блокчейна в смартфоны, сообщает РБК.Такие сим-карты будут способны хранить открытые и закрытые ключи пользователей, управлять ими и обеспечивать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751559   (42072) от 29.09.2024
+
+"АвтоВАЗ" запустил производство электромобилей Lada e-Largus за 3 млн рублей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42072.jpg" />
+</div>
+
+
+###  Подробнее
+
+На входящем в «АвтоВАЗ» заводе «Lada Ижевск» началось массовое производство электромобиля Lada e-Largus, передаёт «Интерфакс» со ссылкой на пресс-службу компании. В посвящённом событию мероприятии приняли участие президент «АвтоВАЗа» Максим Соколов и глава Удмуртии Александр Бречалов.К концу года предприятие выпустит несколько десятков электромобилей, заявил господин (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751468   (42067) от 29.09.2024
 
 В России создан 50-кубитный ионный квантовый компьютер
@@ -6,7 +214,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42067.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41970.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41967.jpg" />
 </div>
 
 
@@ -85,7 +293,7 @@ Westinghouse готова к массовому производству ато�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41965.jpg" />
 </div>
 
 
@@ -111,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41953.jpg" />
 </div>
 
 
@@ -137,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41862.jpg" />
 </div>
 
 
@@ -163,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41849.jpg" />
 </div>
 
 
@@ -189,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41848.jpg" />
 </div>
 
 
@@ -215,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41823.jpg" />
 </div>
 
 
@@ -241,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41747.jpg" />
 </div>
 
 
@@ -267,7 +475,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Repack Decepticon [Alex Murp
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41743.jpg" />
 </div>
 
 
@@ -293,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41725.jpg" />
 </div>
 
 
@@ -319,7 +527,7 @@ Microsoft начала распространение Windows 11 24H2: Wi-Fi 7, 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41646.jpg" />
 </div>
 
 
@@ -345,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41622.jpg" />
 </div>
 
 
@@ -371,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41544.jpg" />
 </div>
 
 
@@ -397,7 +605,7 @@ YouTube начал вносить в теневой бан аккаунты за
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41541.jpg" />
 </div>
 
 
@@ -425,7 +633,7 @@ v2rayN 6.60 Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41539.jpg" />
 </div>
 
 
@@ -451,7 +659,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (1.0.3.7) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41538.jpg" />
 </div>
 
 
@@ -462,220 +670,6 @@ VLADiK BRUTAL (2024) [Ru/Multi] (1.0.3.7) Repack Decepticon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9B518E37E5DE730A8289B497AFA6F17CD8BCF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753424   (41441) от 05.10.2024
-
-В Windows 11 24H2 появилась файловая система ReFS — в ней гигабайты  копируются за миллисекунды
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновление Windows 11 2024 Update (24H2) впервые привнесло в потребительскую ОС поддержку файловой системы ReFS (Resilient File System) и функцию блочного клонирования файлов Block Cloning, которая значительно ускоряет операции копирования. Изначально эти возможности были доступны только пользователям Windows Server.Файловая система ReFS, дебютировавшая в 2012 году, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751981   (41434) от 05.10.2024
-
-Одинокие волки / Wolfs (2024) WEB-DLRip [H.264] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пути двух соперничающих решал пересекаются, когда их обоих вызывают помочь скрыть промах видного нью-йоркского чиновника. В течение одной взрывоопасной ночи им придётся отбросить свои мелкие обиды и эго, чтобы довести дело до конца.Производство: Великобритания, США / Apple Studios, Columbia Pictures Corporation, Plan B Entertainment, Smoke HouseЖанр: триллер, криминалРежиссер: Джон УоттсАктеры: Брэд Питт, Джордж Клуни, Эми Райан, Остин Абрамс, Пурна Джаганнатан, Wael Alroyly, Златко Бурич, Линда Карола, Ирина Дубова, Ричард КайндПеревод: Многоголосый профессиональный (HDRezka Studio, RGB)Язык озвучки: русский, английскийСубтитры: русские (2 x forced, full), английские (forced, full, SDH), украинские, немецкие, испанские, французскиеПродолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4086C091AA1974CEDDE1EEB3BB3E1A3666B4D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753144   (41345) от 06.10.2024
-
-Корм для квадроберов появился на маркетплейсах в России
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41345.jpg" />
-</div>
-
-
-###  Подробнее
-
-На маркетплейсах в России начали продавать корм для квадроберов. В частности, в одном из объявлений сладкий корм в упаковке на 480 граммов предлагается купить за 998 рублей. В состав входит сахар, какао, сухое молоко и кокосовое масло.В последнее время квадробинг стал популярен у подростков. Грубо говоря, это вид спорта, суть которого заключается в беге и прыжках (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621205   (41330) от 06.10.2024
-
-Треугольник / Triangle (2009) [1080p] BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грег приглашает свою подругу Джесс, молодую мать-одиночку, провести день на яхте в кругу своих друзей. Начавшийся сильный шторм переворачивает судно, и оставшиеся в живых вынуждены дожидаться помощи, цепляясь за перевернутый корпус яхты. Спасение приходит в виде огромного океанического лайнера. Судно оказывается пустым, часы на борту остановились. Но они не одни (   Читать дальше...   )Жанр: Ужасы, Триллер, ДетективРежиссер: Кристофер СмитАктеры: Мелисса Джордж, Джошуа МакИвор, Джек Тейлор, Майкл Дорман, Генри Никсон, Рейчал Карпани, Эмма Ланг, Лиам Хемсворт, Брайан ПробетсПеревод: • Профессиональный (многоголосый закадровый)
-   • Профессиональный (двухголосый закадровый)
-   • Авторский (одноголосый закадровый)Язык субтитров: РусскийПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE34BC66339A3C00738171D2473CB9AFCBB7DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753641   (41328) от 06.10.2024
-
-Windows 11 24H2 26100.1742 5in1 by SmokieBlahBlah 2024.10.05 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41328.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 русскоязычных редакций Windows 11, основанные на оригинальном русском дистрибутиве (Microsoft Windows 11 [10.0.26100.1742], Version 24H2)
-
-В самой Windows ничего не изменено и не вырезано. Интегрирован Framework 3.5.
-(   Читать дальше...   )Язык интерфейса: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26F625B3EE137AECF2251D2965F2EEB06D3CA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753217   (41327) от 06.10.2024
-
-Затерянные (2024) WEBRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо коллег едут в командировку, чтобы заключить важный договор, выслужиться перед начальством и заработать повышение. Но на обратном пути все идет не по плану: они оказываются без денег и связи в очень странном городке.Производство: Россия / All Media Company, QS Films, STARTЖанр: ТриллерРежиссер: Роман КаримовАктеры: Егор Корешков, Никита Кологривый, Артём Цуканов, Даниил Толстокулаков, Серафима Соловьёва, Алина Федорова, Александр Киргинцев, Сергей Ершов, Дмитрий СафроновЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF405E7DBE213BC7E0838ED5261CFF300297FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752694   (41310) от 06.10.2024
-
-Квантовые компьютеры оказались слишком слабыми для запуска Doom
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпущенная в 1993 году игра Doom имеет по сегодняшним меркам настолько скромные системные требования, что её запускают на самом неожиданном оборудовании: это может быть встроенный в клавишу Backspace крошечный экран, ёлочная игрушка, воксельный дисплей,  умная газонокосилка или стандартная программа Windows. Но не квантовый компьютер.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753605   (41238) от 07.10.2024
-
-Telegram приглашает к разработке аналога YouTube
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда мессенджера Telegram начала работу над проектом собственного видеохостинга, который может стать аналогом YouTube. Такой вывод можно сделать из условий конкурса для разработчиков, который объявила администрация сервиса.Об этом сказано в публикации верифицированного канала Telegram Contest 4 октября. Условия предполагают создание видеохостинга внутри приложения. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

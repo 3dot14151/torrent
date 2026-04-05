@@ -1,3 +1,56 @@
+###  Публикация: 1434270   (153482) от 23.12.2020
+
+Artlantis 2021 v9.5.2.25095 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artlantis  – профессиональный набор инструментов, предназначенный для создания изображений и видеороликов высокого качества на основе 3D-моделей. В процессе работы пользователь может применять различные текстуры, изменять цвета проекта и параметры источников света. Программа также включает в себя инструменты, позволяющие редактировать свойства существующих материалов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2020Разработчик: AbventПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A758C2080D5D9A81F56121BB6AA3E38EF93D3BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518812   (153192) от 21.12.2021
+
+Aerate Pro 2.0.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко «сжимайте» изображения без потери качества. Aerate предлагает лучший в отрасли режим по умолчанию, а также новые быстрые и экстремальные предустановки. Быстро переключайтесь между режимами с помощью нового ползунка сжатия.
+Aerate также включает первый в своем роде многоядерный режим, который позволяет вам в полной мере использовать возможности вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.10.2019Разработчик: © 2019 BZG Inc. and Binyamin GoldmanПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE9625FCBDC3549CA81E800546DD98218FE1694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518899   (153091) от 21.12.2021
 
 DupeZap 4.1.4 fix [En]
@@ -6,7 +59,7 @@ DupeZap 4.1.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153091.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Xee 3.5.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152794.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Color Palette from Image Pro 2.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152481.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Live Home 3D Standart 3.5.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152329.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ News Explorer 1.9.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152201.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ AnyTrans for iOS 8.9.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152050.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Movavi Video Editor Plus 15.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151896.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Noise Reducer Pro 1.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151774.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ AirFoil+Airfoil Satellite 5.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151764.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ Pixelmator Pro 1.5.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151703.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ ON1 Photo RAW 2020.6 v14.6.0.9837 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151641.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Note Studio 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151571.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ Music Player for VK 3.0 [En/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151488.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ Vectorize! 1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151361.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ CloudMounter 3.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150984.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ Davinci Resolve Studio 17.4.3 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150288.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ Memory Clean 2 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150084.jpg" />
 </div>
 
 
@@ -465,7 +518,7 @@ Gif Recorder - Record Your Screen 1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150026.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ SuperPhoto 2.21 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149991.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ CopyLess 1.8.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149934.jpg" />
 </div>
 
 
@@ -550,7 +603,7 @@ Desktopr - make wallpaper from any website 1.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149922.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ GIF'ted 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149901.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ Panorama 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149836.jpg" />
 </div>
 
 
@@ -631,7 +684,7 @@ balenaEtcher for macOS 1.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149772.jpg" />
 </div>
 
 
@@ -643,62 +696,6 @@ balenaEtcher предлагает вам возможность с легкос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C051C4FDED9FA2A63506354001B2FE65C1571C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519235   (149717) от 23.12.2021
-
-TouchRetouch for Mac 2.3.5 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149717.jpg" />
-</div>
-
-
-###  Подробнее
-
-TouchRetouch — это приложение, которое поможет в одно мгновение убрать ненужные объекты с вашых фото. Приложение также пригодится при работе с цветокоррекцией и проблемами в композиции.
-
-Всего за несколько простых шагов вы сможете эффективно удалить следующие элементы с ваших фотографий:
-● Нежелательные объекты, такие как мусор, мусорные баки, уличные знаки, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2021Разработчик: © 2021 ADVA SoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DDD1DDFDED1C03B311F693CD3D4204A44102F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086830   (149389) от 25.12.2016
-
-Hopper Disassembler 4.0.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hopper Disassembler  - дизассемблер для macOS
-По возможностям Hopper Disassembler основательно уступает IDA Pro, но, в большинстве случаев вся мощь IDA Pro не очень-то нужна и возможностей Hopper вполне хватает. Hopper Disassembler поддерживает множество нужных форматов бинарников (включая Win32, ELF, Mach-O), поддерживает, в частности, x86_64 и ARMv7. А самое главное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2016Разработчик: Cryptic Apps SARLПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEB941862D66BF9968FF2E22A611A0DC5C97168
 ```
 
 https://mybot314.ru/tekegram_catalog/

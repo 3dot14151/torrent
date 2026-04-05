@@ -6,7 +6,7 @@ Primus - Pork Soda (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316910.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Primus - Frizzle Fry (1990) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316786.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Primus - Brown Album (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314695.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Primus - The Desaturating Seven (2017) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314673.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Dagger Threat - Weltschmerz (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314669.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Once Was Never - The Great Dying (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314556.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Suffer UK - Sorrow We Sow, the Hatred We Know (2022) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314530.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Chef Aid - The South Park Album (1998) Compilation [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313990.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Daniel Lanois - For the Beauty of Wynona (1993) American Edition [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312050.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Muse - Simulation Theory (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311618.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Alter Bridge - Walk the Sky 2.0 (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310721.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Cure - Concert: The Cure Live (1984) Fiction 823 682-2 [FLAC|Lossless|image 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310712.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ane Brun - A Temporary Dive (2005) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310117.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Waterparks - FANDOM (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309870.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ The Rasmus - Dark Matters (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309677.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Swans - Leaving Meaning (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Post-P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309366.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Mikal Cronin - Seeker (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307661.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jimmy Eat World - Surviving (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307644.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Euringer (Jimmy Urine of Mindless Self Indulgence) - Euringer (2018) [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305586.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Mark Lanegan - Somebody's Knocking (2019) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303431.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Stereophonics - Kind (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303421.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Nirvana - Seattle Grunge Years (2019) Compilation [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303286.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Bring Me The Horizon - POST HUMAN: SURVIVAL HORROR (2020) EP [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301892.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Stereophonics - Scream Above The Sounds (2017) [FLAC|Lossless|tracks + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301178.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Editors - Black Gold (2019) Compilation 2CD [FLAC|Lossless|tracks + .cue] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298949.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Green Day - Greatest Hits: God's Favorite Band (2017) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298705.jpg" />
 </div>
 
 

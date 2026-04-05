@@ -6,7 +6,7 @@ Udemy, Denis Buchel, Vyara Georgieva | Композиция в фотограф�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866076.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Profileschool | Предметная съемка в лайткубе (2015) PCR
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865980.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Liveclasses, Антон Мартынов | Выбор объектива 2021 (2
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864458.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Profileschool | Съёмка города в режимное время: инт
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860741.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Highlights School | Авторская обработка (2015) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860733.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860110.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859298.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859295.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Jerry Ghionis | День с Джерри Гионисом (2011) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858533.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858527.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858438.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858436.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858426.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Profileschool | Американское Искусство (2016) PCRec [H.264]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853367.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Profileschool | Введение в предметную съемку (2015) PCR
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850322.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849363.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847533.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844459.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844408.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844361.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844359.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Zillionarts | Реалистичная цифровая живопись (2018) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844265.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ video2brain | Calvinize. The Wrong Place for Pure Photography -   Не мест�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840705.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839287.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833693.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833690.jpg" />
 </div>
 
 

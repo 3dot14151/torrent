@@ -6,7 +6,7 @@ VA - Инструментальная музыка (2012) vol. № 78 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464694.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Инструментальная музыка (2012) vol. № 76 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464685.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Инструментальная музыка (2012) vol. № 77 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464684.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Relaxation Well-Being and Serenity Music (2016) [MP3|320 Kbps] <New Age, Re
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461728.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Wychazel - Earth Dance (2020) Compilation, 2CD [MP3|320 Kbps] <New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459780.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - New Age Style - Enigmatic 22 (2015) [MP3|320 кб/с]<New Age, Enigmatic, E
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459711.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Temple of Relaxation: Lounge Relax Deep Meditation for Relaxation, New Age 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457251.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - 100 World Best Chillout Classics (2016) [MP3|178-320 Kbps] <Lounge, New Age
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454728.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Deep Sleep: music for sleeping (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450785.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Medwyn Goodall - Beautiful World (2015) [MP3|320 кб/с]<New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449429.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Инструментальная музыка (2012) vol. № 81 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448168.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Инструментальная музыка (2012) vol. № 83 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448165.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Инструментальная музыка (2012) vol. № 82 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448161.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - Инструментальная музыка (2012) vol. № 79 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448039.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Инструментальная музыка (2012) vol. № 80 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448018.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Инструментальная музыка (2012) vol. № 84 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447927.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Nature Sound For Meditation And Yoga (2017) [MP3|320 Kbps] <Relax, Chillout
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446048.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Relax Autumn Songs Of Rain (2017) [MP3|320 Kbps] <New Age, Deep Ambient, Re
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445935.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Sexy Jazz Guitar Lounge - Sensual Jazz Music Tantric Chillout Hot and Cool 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444915.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Chill Piano (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444257.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Therapy Of The Soul: New Age Current Version (2017) [MP3|320 Kbps] <New Age
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443776.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Инструментальная музыка (2012) vol. № 86[MP3|320 к
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443605.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Инструментальная музыка (2012) vol. № 85 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443603.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ VA - Инструментальная музыка (2012) vol. № 87 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443598.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443534.jpg" />
 </div>
 
 
@@ -782,7 +782,7 @@ VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mel
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440231.jpg" />
 </div>
 
 

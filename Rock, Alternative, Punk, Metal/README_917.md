@@ -1,3 +1,32 @@
+###  Публикация: 1583264   (230017) от 14.10.2022
+
+VA - Rock Workout 2023 (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears For Fears - Everybody Wants To Rule The World (04:13)
+02. The Killers - Mr. Brightside (03:44)
+03. The All-American Rejects - Gives You Hell (03:34)
+04. Bon Jovi - Livin' On A Prayer (04:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AF07C9E37EBF32F6E44A9B2FA6D94E9BBFCF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341503   (229985) от 28.11.2019
 
 Nirvana - Under The Covers (2019) [FLAC|Lossless|tracks] <Alternative Rock>
@@ -6,7 +35,7 @@ Nirvana - Under The Covers (2019) [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229985.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Marillion - With Friends From The Orchestra (2019) [FLAC|24/96|Lossless|WEB-DL|t
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229971.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Roxette - Charm School (2011) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229888.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Michael Schenker Group - The Unforgiven (1998) 1999, Unofficial Release [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229846.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Stargazer - Dinomania (1994) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229805.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ After The Burial - Wolves Within (2013) [MP3|320 кб/с]<Progressive Metalcore 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229782.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229777.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Magnesis - La Bete du Gevaudan (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229731.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Molly Hatchet - Southern Rock Masters (2008) [FLAC|Lossless|tracks + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229628.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Art Of Life - Find the Light (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229504.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Green Labyrinth - Shadow of My Past (2014) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229502.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Death Destroyer - Death Destroyer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229494.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Melt - Replica of Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229488.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Green Labyrinth - Shadow of My Past (2014) [MP3|320 Kbps] <Symphonic Metal, Fema
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229462.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Astralborne - Across The Aeons (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229454.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ In Mourning - The Bleeding Veil (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229450.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Angra - Secret Garden (2015) [MP3|320 кб/с]<Power / Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229445.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Hitten - Triumph & Tragedy (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229443.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Fortress - Don't Spare The Wicked (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229434.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Tony Mitchell - Hot Endless Summer Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229428.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Night Legion - Night Legion (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229380.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Nevergreen - Ab Ovo (2003) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229375.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Sainted Sinners - Taste It (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229374.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Sgt. Splendor - Death Of The Hoochie Koo (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229371.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Carlos Lucena - Medium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229355.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Carlos Lucena - Medium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E25BC909EBAF75CEC930F0016AA4A3D186121E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649612   (229347) от 28.07.2023
-
-Green Labyrinth - Sequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamland (08:11)
-02. Haunted (05:22)
-03. Limited (06:43)
-04. The Art Of Betrayal (06:42)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0268C90CC8037035C75521BAC790C60CD036A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

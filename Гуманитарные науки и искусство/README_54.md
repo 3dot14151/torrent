@@ -1,82 +1,3 @@
-###  Публикация: 909142   (628467) от 17.06.2015
-
-Вячеслав Морозов | Россия и Другие. Идентичность и границы политического сообщества (2009) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существование международных отношений как научной дисциплины решающим образом зависит от разделения политики на внутреннюю и внешнюю. Однако проблема учреждения границ между внутренним миром политического сообщества и сферой международной политики лишь относительно недавно стала предметом рефлексии ученых-международников. В книге петербургского исследователя Вячеслава (   Читать дальше...   )Жанр: ПолитикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695AB039797C586DA520EAEA966C4CFED0497072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908970   (628465) от 17.06.2015
-
-Джеймс Брайс | Священная римская империя (1891) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628465.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сочинении Брайс обнаружил светлое понимание всемирной истории, привычку следить за идеей в самых разнообразных её превращениях и способность улавливать изгибы средневекового ума во всех его проявлениях. Сочинение это доставило ему в 1870 г. одну из самых почетных кафедр в Оксфорде — кафедру гражданского, то есть римского права, ведущую свое начало, по крайней (   Читать дальше...   )Жанр: ИсторияПеревод: Д. М. ПетрушевокФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB76D84001F71256414EEC1ED866664AF7F5C529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908941   (628339) от 17.06.2015
-
-Анатолий Собенников | Художественный символ в драматургии А.П. Чехова (1989) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена малоизученной проблеме жанрово-родовых функций символа. Анализ символической образности в пьесах А. П. Чехова, Г. Ибсена, М. Метерлинка позволяет выявить основные тенденции развития драмы на рубеже веков.
-Рассчитана на преподавателей, аспирантов, студентов филологических факультетов, театральных училищ, на всех интересующихся историей русской (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF0E63EC0582CC22CF128E6ADC19F7247B039E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909365   (628203) от 17.06.2015
 
 Бенджамин Раш и др. | Американские просветители. Избранные произведения в двух томах [2 книги. Том I, II] (1968-1969) [FB2, EPUB]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628203.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628195.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627936.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627777.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627766.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627741.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627608.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627602.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627507.jpg" />
 </div>
 
 
@@ -324,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627465.jpg" />
 </div>
 
 
@@ -350,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627232.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626715.jpg" />
 </div>
 
 
@@ -404,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626136.jpg" />
 </div>
 
 
@@ -430,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625799.jpg" />
 </div>
 
 
@@ -458,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625757.jpg" />
 </div>
 
 
@@ -484,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624799.jpg" />
 </div>
 
 
@@ -510,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624541.jpg" />
 </div>
 
 
@@ -538,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624538.jpg" />
 </div>
 
 
@@ -566,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624536.jpg" />
 </div>
 
 
@@ -594,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624453.jpg" />
 </div>
 
 
@@ -622,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624450.jpg" />
 </div>
 
 
@@ -650,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624444.jpg" />
 </div>
 
 
@@ -676,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624430.jpg" />
 </div>
 
 
@@ -687,6 +608,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCA77AD332FF2C774B48A6BCF73C469DF59C161B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229598   (624354) от 07.06.2018
+
+А. Я. Вышинский и др. (ред.) | Криминалистика: учебник для слушателей правовых вузов [2 книги] (1935-1936) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник по криминалистике, подготовленный Научно-исследовательским институтом уголовной политики, является основным учебным пособием по курсу криминалистики для слушателей правовых вузов и практическим пособием для органов расследования и судебно-прокурорских работников.
+
+Учебник издается в двух книгах:
+(   Читать дальше...   )Жанр: История, политология, правоведение, криминалистика, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB745A8C7BBB35CA0105683DAF2F6800E896490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909394   (624323) от 19.06.2015
+
+К. Г. Левыкин | Памятью сердца в минувшее… (2004) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624323.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой читателю книге автор продолжает свою повесть воспоминаниями о том, как он стал москвичом, как непросто приходилось его родителям устраиваться в новой московской жизни покинув родной дом в деревне в конце двадцатых годов. Она начиналась по временной прописке в Протопоповском переулке и на Третьей Мещанской улице, в квартирах коренных московских обывателей, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226FF9F3C1BDFC4E3ACCF30C4F00D34BC2F755DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909326   (624321) от 19.06.2015
+
+М. Тугушева | Под знаком четырех (1991) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624321.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге живо и увлекательно рассказывается о судьбе произведений Э. По, А. К. Дойла, А. Кристи, Ж. Сименона. Читатель познакомится с историей создания детективов, встретится с любимыми литературными персонажами — О. Дюпеном, Шерлоком Холмсом, Пуаро, Мегрэ.Жанр: ЛитературоведениеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E537F932F041F2EA63AFBEA653337DC4CB09FE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

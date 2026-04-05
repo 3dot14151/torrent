@@ -1,32 +1,3 @@
-###  Публикация: 1428056   (180596) от 01.12.2020
-
-Massive Attack - Mezzanine  (1998) 2013, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180596.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Angel
-A2 Risingson
-A3 Teardrop
-B1 Inertia Creeps(   Читать дальше...   )Жанр: Trip HopПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F856FFF29F9FC2FC57918BCF9FF411AA729D221F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593366   (180375) от 27.11.2022
 
 Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Grunge, Hard Rock>
@@ -35,7 +6,7 @@ Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180375.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180373.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_180368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180368.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Angry at the World - Angry at the World (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180360.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ SHeDaisy - Whole SHebang (2003) [DTS-ES Discrete 6.1 CD-DA|44.1/16|image+.cue|DV
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180353.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ YqpY - Near (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Electronic>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180285.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180259.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Wolf - Studio Albums (9 releases) (2000-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_180248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180248.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180228.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dan
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180178.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180116.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180013.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179695.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179676.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ VA - Superior Audiophile (2022) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179548.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179068.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179060.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Steeler - Rulin' The Earth (1985) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179036.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Nocturnal Abbey - The great blackened swan (2023) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179032.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178953.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Dogstar - Somewhere Between the Power Lines and Palm Trees (2023) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178949.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Prince & The New Power Generation - Diamonds and Pearls (1991) Remaster, 2023,  
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178851.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178702.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Svalbard - The Weight Of The Mask (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178421.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ The Riverboat Minstrels - Stereo Minstrel Show (1971) [FLAC 2.0|24/96|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178416.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ A4 Roll Away, Clouds(   Читать дальше...   )Жанр: Jazz, Pop, Eas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA3514335938754EA527CE7B81CE607123CA7589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666989   (178391) от 06.10.2023
+
+Karfagen, Sunchild & Hoggwash - A Message of Peace Tour Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Friday Night (Live at Parkvilla Theater, Nl, 2022) [00:09:09]
+02. Shall We Run? (Live at Parkvilla Theater, Nl, 2022) [00:04:35]
+03. Rain Drops (Live at Parkvilla Theater, Nl, 2022) [00:06:40]
+04. The Reason Why (Live at Parkvilla Theater, Nl, 2022) [00:04:38](   Читать дальше...   )Жанр: progressive rockПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA4F5B0F485E4AEFA79D77036301BA4DE88571B
 ```
 
 https://mybot314.ru/tekegram_catalog/

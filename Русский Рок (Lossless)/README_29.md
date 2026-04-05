@@ -1,116 +1,3 @@
-###  Публикация: 1318840   (490895) от 08.08.2019
-
-Карелия - Планета (2018) [FLAC|Lossless|tracks + .cue] <Folk, Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Олень (5:06)
-02.Планета (6:25)
-03.Луна (5:51)
-04.Тёмные мысли (7:11)(   Читать дальше...   )Жанр: Folk, Rock, BritpopПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E7126C35BFAD29E2A53393DF8624FE8A9E81DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243572   (490120) от 28.08.2018
-
-Сергей Маврин - Фортуна (2007) 2CD [FLAC|Lossless|tracks + .cue] <Heavy Metal, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Волен (2:01)
-02. Фортуна (5:42)
-03. Виктория (3:11)
-04. Истерия (6:27)(   Читать дальше...   )Жанр: Heavy Metal, Instrumental RockПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552AC366C2829FE38EA8E465412981CF4A8DCCE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 139844   (485148) от 13.09.2009
-
-Алиса - Переиздание номерных альбомов Real Collection (17 альбомов) (2009) [FLAC|lossless]<Rock>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 15:43:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405486   (483686) от 30.08.2020
-
-Veladelyra - Золото погибших кораблей (2020) [FLAC|Lossless|tracks] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каллиопа [00:04:03]
-02. Новая эра [00:03:40]
-03. Зал двух истин [00:03:57]
-04. Избей меня [00:04:13](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E2F948E74D4F8248B83B70857DF8C5477B6FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405488   (483377) от 30.08.2020
 
 Otto Dix - Автократор (2020) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, Alternative>
@@ -119,7 +6,7 @@ Otto Dix - Автократор (2020) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483377.jpg" />
 </div>
 
 
@@ -148,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483370.jpg" />
 </div>
 
 
@@ -177,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483219.jpg" />
 </div>
 
 
@@ -212,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482424.jpg" />
 </div>
 
 
@@ -247,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479824.jpg" />
 </div>
 
 
@@ -276,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478205.jpg" />
 </div>
 
 
@@ -302,7 +189,7 @@ Tracktor Bowling - Бесконечность (2015) [FLAC|Lossless|WEB-DL]<Alte
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475489.jpg" />
 </div>
 
 
@@ -331,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475380.jpg" />
 </div>
 
 
@@ -360,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475244.jpg" />
 </div>
 
 
@@ -389,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474014.jpg" />
 </div>
 
 
@@ -418,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473998.jpg" />
 </div>
 
 
@@ -447,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473996.jpg" />
 </div>
 
 
@@ -476,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473462.jpg" />
 </div>
 
 
@@ -505,7 +392,7 @@ VA - Детский сад. Штаны на лямках (2002) [FLAC|lossless|i
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472756.jpg" />
 </div>
 
 
@@ -534,7 +421,7 @@ Amatory - Книга мертвых (2006) Reissue, 15th Anniversary Edition, 20
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470191.jpg" />
 </div>
 
 
@@ -563,7 +450,7 @@ Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469163.jpg" />
 </div>
 
 
@@ -592,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469071.jpg" />
 </div>
 
 
@@ -621,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467098.jpg" />
 </div>
 
 
@@ -650,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466079.jpg" />
 </div>
 
 
@@ -677,7 +564,7 @@ V.A. - Монстры Рока СССР: 20 Лет Спустя (2012) [FLAC|Los
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464676.jpg" />
 </div>
 
 
@@ -712,7 +599,7 @@ Znaki (Знаки) - 3 Альбома (2007-2012) [FLAC|Lossless] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464360.jpg" />
 </div>
 
 
@@ -747,7 +634,7 @@ KCHORTOO (KCHÖRTOO) - SARANCHA (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464264.jpg" />
 </div>
 
 
@@ -761,6 +648,125 @@ KCHORTOO (KCHÖRTOO) - SARANCHA (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CBD7E9C14D70C7B87C4C2C716E60B89DBC1E0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407609   (462425) от 09.09.2020
+
+АукцЫон - Мечты (2020) [WavPack|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Догоняя волны (03:57)
+02. Сердце (04:43)
+03. Мечты (07:56)
+04. Очень белые глаза (05:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88677CD248138A64ECC7806082F08352D4A39121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 825219   (462301) от 26.09.2014
+
+Парк Горького - Gorky Park II (Moscow Calling) (1993) [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moscow Calling   (5:10)
+02.  All Roads   (5:12)
+03.  Politics Of Love   (4:06)
+04.  Tomorrow   (5:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE46AD1499FBEABFA67BF1593864EC0EAA05A2DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242022   (457710) от 02.10.2010
+
+Ленинград - Последний Концерт Ленинграда (2010) [FLAC|Lossless]<Ska Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, Moscow
+02. МДМ
+03. ИТД
+04. Паганини
+05. Когда нет денег
+06. Группа крови
+07. xxxасы
+08. Дача
+09. Свобода
+10. WWW(   Читать дальше...   )Жанр: Ska RockПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868761   (456500) от 02.09.2017
+
+Чебуратор - 18 альбомов (2005-2016) [FLAC|Lossless|tracks]<Brutal death metal, Grindgore, Goregrind>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Brutal death metal, Grindgore, GoregrindПродолжительность: 22:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C8BB120139A62208962A939BCDAF42025493B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

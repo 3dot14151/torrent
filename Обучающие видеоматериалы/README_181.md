@@ -1,3 +1,30 @@
+###  Публикация: 1625024   (255391) от 08.04.2023
+
+Виктория Шубина | Авторский курс по нейросети Midjourney (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на обучающую программу по нейросети Midjourney. Если вы тут, значит вы хотите идти в ногу со временем и не хотите упускать новые возможности. Время стремительно меняется и профессия иллюстратора тоже. Не стоит бояться, что искусственный интеллект отнимет вашу работу, стоит с ним подружиться и идти вместе только вперед.
+Пусть искусственный интеллект (   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 03:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99839EAE52A160E09FECBFC12A04CCF2600DC95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625851   (255290) от 11.04.2023
 
 CGMA, Louis Manjarres | Houdini Production Studio: Destruction FX (2022) WEB-DL [EN, RU / EN, CHI Sub]
@@ -6,7 +33,7 @@ CGMA, Louis Manjarres | Houdini Production Studio: Destruction FX (2022) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255290.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Ben Marriott | Master Motion Design (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255284.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Thinknetica, Артем Нистратов | Event-Driven Architecture (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255212.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255210.jpg" />
 </div>
 
 
@@ -117,7 +144,7 @@ javascript.ru, Владимир Шевчук | Мастер-класс по ар
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255149.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ Gumroad, FlyCat | Avatar Character Modeling in Blender (2023) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255115.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ Convert Monster | Тренинг по тестированию посадочн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255111.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255047.jpg" />
 </div>
 
 
@@ -224,7 +251,7 @@ Excellentschool, Ольга Базалева | Интерактивные даш
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255034.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ Motion Design School | 2D Character Design Magician (2022) WEB-DL [AD] [EN / EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255014.jpg" />
 </div>
 
 
@@ -281,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254975.jpg" />
 </div>
 
 
@@ -308,7 +335,7 @@ Udemy, Антон Ларичев | JavaScript Advanced - продвинутые 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254826.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ Easy.Dom, Ольга Вайлапова | Практический курс. С�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254775.jpg" />
 </div>
 
 
@@ -363,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254737.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ NeuroLera | Нейрометодика — самый эффективный с�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254723.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254666.jpg" />
 </div>
 
 
@@ -448,7 +475,7 @@ Udemy, Nafay Sheikh | Realistic Natural Environments in Unreal Engine 5 (2023) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254664.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ Apeiron, Алексей Арестович | Модуль "Профайлинг"
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254546.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254526.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254520.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254512.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254511.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254510.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254506.jpg" />
 </div>
 
 
@@ -675,7 +702,7 @@ Udemy, Mefodiy Kelevra | OSINT и профессиональное исполь�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254502.jpg" />
 </div>
 
 
@@ -688,32 +715,6 @@ Udemy, Mefodiy Kelevra | OSINT и профессиональное исполь�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06CAC2342C53E5EBA2E84BE5D875B102F50E8A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632588   (254468) от 10.05.2023
-
-kontentica, Сергей Беляк | Нейросети. Старт (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254468.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЧТО НЕЙРОСЕТИ УЖЕ МОГУТ ДЕЛАТЬ ЗА ТЕБЯ:Производство: kontenticaЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 05:38:09Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04BF3EB9C2138200AB153E4D3D461E9E289FD7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

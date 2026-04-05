@@ -6,7 +6,7 @@ BBC: Галапагосы / Galapagos (2006) HDTVRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_584600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584600.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Прогулки с чудовищами / Walking with Beasts (2001) 2хDV
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_584590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584590.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC: Мир природы. Бабочки. Британская страсть 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583811.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC: Секреты Рейха. Тайны нацизма / BBC: Secrets of Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_582557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582557.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC: По странам и континентам: Южная Америка, �
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_582547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582547.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580913.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC. Планета людей - Арктика / Human planet - Arctic (2011) H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580799.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ BBC. Освенцим (Аушвиц): Нацисты и «Окончательн
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579798.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_579698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579698.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ BBC: Всемирная история живописи / Sister Wendy’s Story
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_579620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579620.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ BBC: 80 чудес света / Around the World in 80 Treasures (2005) 5хDVD9 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_579619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579619.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ BBC: Встреча с Ураном / Horizon. Uranus Encounter (1986) VHSRip [E
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578927.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ BBC. Снежные медведи / Snow Bears (2017) DVB [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577995.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ BBC: Мир природы. В поисках легенды – чёрный л
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_577820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577820.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577115.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ BBC: Мир природы: Снежный Барс / BBC: Natural World: Snow L
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576761.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ BBC: Борьба за жизнь / Fight for Life (2007) 3хDVD5
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576673.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ BBC: Разум человека (Лабиринты мозга) / The Human Min
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576643.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ BBC. Большое австралийское приключение (Викт�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575910.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ BBC: Выдающиеся женщины ХХ столетия. Уоллис С�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574891.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ BBC: Выдающиеся женщины ХХ столетия. Мадам Ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574721.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ BBC: Дикие животные: Завоевание мегаполиса / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574138.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ BBC: Сверхчеловек (6 серий из 6) / BBC: Superhuman (2001) [DV
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_573140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_573140.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ BBC: Жизнь в микромире / Life in the Undergrowth (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571434.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ BBC: Борьба за жизнь / Fight for Life (2007) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_571336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571336.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ BBC: Освенцим (Аушвиц). Окончательное решение 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_571210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571210.jpg" />
 </div>
 
 

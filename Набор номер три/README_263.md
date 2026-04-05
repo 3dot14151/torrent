@@ -1,3 +1,160 @@
+###  Публикация: 672734   (694382) от 29.06.2013
+
+За отказ удалять пиратский контент предложили ввести миллионные штрафы
+
+>>3
+>>15
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чего ждать Рунету от закона о защите авторских правДепутаты Станислав Говорухин и Станислав Левин внесли 25 июня в Госдуму законопроект о штрафах за отказ удалять пиратский контент. Документ опубликован на сайте нижней палаты парламента.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674079   (694378) от 29.06.2013
+
+Падение Олимпа / Olympus Has Fallen (2013) HDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на Белый Дом нападают террористы, а президента берут в заложники, дискредитированный бывший охранник главы государства Майк Бэннинг оказывается внутри захваченного здания. И теперь он единственный, кто сможет спасти президента…Производство: США / Millennium Films, West Coast Film Partners, Nu-Image FilmsЖанр: Триллер, БоевикРежиссер: Антуан ФукуаАктеры: Джерард Батлер, Аарон Экхарт, Морган Фриман, Эшли Джадд, Мелисса Лео, Финли Якобсен, Дилан МакДермотт, Рик Юн, Анджела Бассетт, Рада МитчеллПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECA8A0DB884B81C3068826D33AA25A44DFA427F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027743   (693884) от 20.06.2016
+
+Anvir Task Manager 8.1.2 DC 18.06.2016 Final RePack (& Portable) by KpoJIuK [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693884.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnVir Task Manager предоставляет подробную информацию о работе системы и, в то же время, предоставляет большое количество инструментов для управления Windows. Для того, чтобы заменить все функции AnVir Task Manager, придется установить около 10 разных программ.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E25FC59D1344C92F03E47E3D3188D51E5E0122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027763   (693878) от 20.06.2016
+
+Набор обновлений UpdatePack7R2 16.6.20 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E401D6DFE1A33A8D5B87D1068877DEC2155A44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027736   (693872) от 20.06.2016
+
+Call of Duty: Black Ops 2 (2012) [Ru] (1.0.0.1/upd3/MP+SP+tr) Repack =nemos=
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие второго эпизода Black Ops, посвященного секретным операциям вооруженного до зубов спецназа, развернется в 2025 году. Развитие технологий не сказалось на здравом смысле, а слоган «мир во всем мире» так и остался недостижимой мечтой. Ведущие страны погрязли в новой холодной войне, и отыскать выход из сложившегося тупика способны лишь элитные бойцы особого (   Читать дальше...   )Тип издания: RepackРазработчик: TreyarchЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95100024B7B0E56595967105D02FCCE66D738F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016168   (693871) от 20.06.2016
+
+Гoморра / Gomorra (2016) HDRip [H.264/720p-LQ] (сезон 2, серии 1-12 из 12) SunshineStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматический сериала «Гоморра» снят по мотивам одноименного произведения итальянского писателя и журналиста Роберто Савино. Опубликованный в 2006 году роман стал настоящим бестселлером, и это не удивительно, ведь из-за него автор и по сей день находиться в смертельной опасности, так как влиятельная преступная организация «Каморра» была очень возмущена книгой, и (   Читать дальше...   )Производство: Италия, ГерманияЖанр: Боевик, Драма, КриминалРежиссер: Стефано Соллима, Клаудио Капеллини, Франческа КоменчиниАктеры: Сальваторе Эспозито, Марко Д’Амор, Фортунато Серлино, Мария Пиа Кальцоне, Доменико Бальзамо, Кармине Монако, Алессио Галло и другиеПеревод: Двуголосый закадровый, любительский - SunshineStudioПродолжительность: ~00:56:00 серияРеклама: присутствуют аудио, видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE10F23CEF849962E19BF9CDD9FA3077F8DE7946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027814   (693870) от 20.06.2016
 
 Последний налёт / Последний Хайст / The Last Heist (2016) WEB-DLRip
@@ -6,7 +163,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693870.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693869.jpg" />
 </div>
 
 
@@ -60,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_693726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_693726.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693703.jpg" />
 </div>
 
 
@@ -114,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_693621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_693621.jpg" />
 </div>
 
 
@@ -140,7 +297,7 @@ Parallels Desktop Business Edition 16.0.04 + Toolbox 4.0.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693610.jpg" />
 </div>
 
 
@@ -168,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_693515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_693515.jpg" />
 </div>
 
 
@@ -194,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693396.jpg" />
 </div>
 
 
@@ -220,7 +377,7 @@ ESET NOD32 Antivirus/Internet Security/Smart Security Premium 12.1.31.0 RePack b
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693395.jpg" />
 </div>
 
 
@@ -246,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693130.jpg" />
 </div>
 
 
@@ -272,7 +429,7 @@ Perfect World: Legends of the Seas / Идеальный Мир: Легенды �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693102.jpg" />
 </div>
 
 
@@ -298,7 +455,7 @@ VA - 333 Лучшие Детские Песни (2004) 12CD [MP3|320 кб/с]<Д
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693090.jpg" />
 </div>
 
 
@@ -329,7 +486,7 @@ ESET Endpoint Security / Antivirus 6.1.2227.3 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693062.jpg" />
 </div>
 
 
@@ -355,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693058.jpg" />
 </div>
 
 
@@ -381,7 +538,7 @@ Kaspersky Reset Trial 5.0.0.111 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693051.jpg" />
 </div>
 
 
@@ -407,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693044.jpg" />
 </div>
 
 
@@ -433,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693043.jpg" />
 </div>
 
 
@@ -459,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693042.jpg" />
 </div>
 
 
@@ -485,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_692796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_692796.jpg" />
 </div>
 
 
@@ -511,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_692774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_692774.jpg" />
 </div>
 
 
@@ -522,162 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133510   (692733) от 13.05.2017
-
-ICO Factory 1.0.0.0 [Ru] (авторское ПО)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692733.jpg" />
-</div>
-
-
-###  Подробнее
-
-ICO Factory - легковесный конвертер изображений в формате JPG/PNG/BMP/GIF/TIFF в мультиразмерные иконки формата ICO. Программа обладает приятным интерфейсом в стиле Mac OS.Разработчик: neovit3Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87AEF2204579C963E784388EFB5825FEE289173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133541   (692641) от 13.05.2017
-
-Госпоисковик «Спутник» всё?
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_692641.jpg" />
-</div>
-
-
-###  Подробнее
-
-С начала года признан провальным уже второй грандиозный проект крупнейшей российской телекоммуникационной компании, имеющей с государством особенные отношения.Вслед за коммуникационным сервисом «Аллё», который должен был стать платным конкурентом Skype, на отдых отправилась поисковая система «Спутник», которую «Ростелеком» запустил весной 2014 г. В виду своей неприлично (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133742   (692635) от 13.05.2017
-
-Adobe After Effects CC 2017 (v14.2.0) Multilingual Update 2
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe After Effects CC 2017 - популярная программа для редактирования видео и динамических изображений, создания композиций, различных эффектов и анимации. Наиболее часто ее используют для обработки видеоматериалов (постпродакшн), создания музыкальных клипов, рекламных роликов, анимации, титров, а также множества других элементов, для которых необходимы цифровые (   Читать дальше...   )Язык интерфейса: Английский / Испанский / Итальянский / Китайский (упрощенный) / Корейский / Немецкий / Португальский / Русский / Французский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой иврита / Английский (Великобритания) / Испанский (Мексика) / Французский (Канада) / Французский (Марокко)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEF7BA98A1B9E929C41ABC12EFF896B596A95AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133458   (692634) от 13.05.2017
-
-Защитники (2016) BDRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: Россия / Enjoy MoviesЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила МаксимоваПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D0D64AF0155ADB4AF9F46D14748368636C5199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133674   (692629) от 13.05.2017
-
-Adobe Illustrator CC 2017.1.0 21.1.0.326 Portable by XpucT [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Illustrator СС является мощным инструментом работы с векторной графикой. Продукт Adobe Illustrator СС предназначен для профессиональных дизайнеров, разработчиков интерактивных проектов и web-страниц, аниматоров и специалистов в сфере видео. Adobe Mercury Performance System позволяет обрабатывать большие файлы с высокой скоростью и надежностью, предлагает современный (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876543A709206232436BA2415059F59CF8A506BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133779   (692625) от 13.05.2017
-
-Adobe Photoshop CC 2017 (v18.1.1) x86-x64 RUS/ENG Update 3
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC 2017 - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F06C78AC6A2B3A1B6DF18F5013CF05FBD93087
 ```
 
 https://mybot314.ru/tekegram_catalog/

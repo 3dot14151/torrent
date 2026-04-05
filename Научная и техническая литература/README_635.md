@@ -1,139 +1,3 @@
-###  Публикация: 1773582   (30675) от 17.01.2025
-
-Библиотека ЖАФИК, Vol. 6: Фотожурналистика, История в фотографиях (События, Политика, Люди, Планета, Война, Антифашизм, Протесты, Криминал) (1964-2024) [371 книг] [PDF, CBZ] [ENG]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы фотографий. Большая часть: материалы «золотой эры» фотожурналистики (1930-1950 годы) от фотокорреспондентов Life (США), Associated Press (Нью-Йорк) , The Daily Graphic (Нью-Йорк), Press Assotiation Photos (Лондон), The Daily Mirror (Лондон), Paris Match (Париж), и иных ведущих зарубежных издательств.
-
-Ключевые фигуры: Доротеея Ланж, Роберт Капа, Виджи, Альфред (   Читать дальше...   )Жанр: Живопись, альбомыЯзык: АнглийскийИздательство: РазличныеФормат: PDF, CBZКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AC6441C84DDE16A987EBAA6EE2551AA7569B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773737   (30652) от 17.01.2025
-
-А.С. Просвиров | Жуки. Второе издание (2018) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карманный справочник посвящен видам, встречающимся в Европейской части нашей страны. Особенность книги - краткая характеристика их биологии и великолепные профессиональные фотографии жуков, сделанные опытными энтомологами.
-Карманный справочник "Жуки" предназначен всем любознательным людям, тем, кого интересует окружающий мир. Его автор, кандидат биологических (   Читать дальше...   )Жанр: энтомология, колеоптерология, справочникИздательство: Фитон XXIФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:102DA17F08F5CCDF4580552A7D655DFC303EA9EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773764   (30647) от 17.01.2025
-
-Е. Пчелов | История России языком дворянских гербов (2025) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционная геральдика, берущая начало в культуре высокого Средневековья, - это целая символическая система, «дешифровка» и исследование которой может быть нетривиальным источником сведений о том или ином периоде человеческой истории.
-Книга Евгения Пчелова знакомит читателей с российской дореволюционной дворянской геральдикой и преломлением в ней истории России (   Читать дальше...   )Жанр: геральдика, историяИздательство: Новое литературное обозрениеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D059E5187BB677CF6E5210A33CF6800B0BBBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773599   (30640) от 17.01.2025
-
-Библиотека ЖАФИК, Vol. 5: Альбомы фотография (Город, Люди, Автомобили, История, Планета) (1971-2024) [108 книг] [PDF, DJVU] [ENG]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фото и художественные альбомы издательства Taschen (60%), иные зарубежные издательства (40%)
-Оцифровка: профессиональная, планетарный сканерЖанр: Живопись, альбомыЯзык: АнглийскийИздательство: РазличныеФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41558D24086FF1C475EFD7735E825773B7217DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773730   (30618) от 17.01.2025
-
-Б.С. Гершунский, Е.Г. Ранский | Лабораторный практикум по основам электронной и полупроводниковой техники (1974) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30618.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии приведено описание 30 лабораторных работ в соответствии с программой курса "Основы электронной и полупроводниковой техники" для техникумов по специальности "Электронные вычислительные машины, приборы и устройства".
-Для каждой работы указаны цель работы, рекомендуемая литература, контрольные вопросы, описание схемы исследования, (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5030B0C75FAAD4FEDF185E46355EEC125A4D43FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773947   (30569) от 18.01.2025
 
 Моше Фельденкрайз | Искусство движения (2018) [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30569.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30549.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30523.jpg" />
 </div>
 
 
@@ -220,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30520.jpg" />
 </div>
 
 
@@ -246,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30500.jpg" />
 </div>
 
 
@@ -272,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30469.jpg" />
 </div>
 
 
@@ -301,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30464.jpg" />
 </div>
 
 
@@ -328,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30456.jpg" />
 </div>
 
 
@@ -355,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30442.jpg" />
 </div>
 
 
@@ -381,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30435.jpg" />
 </div>
 
 
@@ -407,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30356.jpg" />
 </div>
 
 
@@ -433,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30345.jpg" />
 </div>
 
 
@@ -459,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30331.jpg" />
 </div>
 
 
@@ -485,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30266.jpg" />
 </div>
 
 
@@ -512,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30128.jpg" />
 </div>
 
 
@@ -538,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30121.jpg" />
 </div>
 
 
@@ -564,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29924.jpg" />
 </div>
 
 
@@ -590,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29917.jpg" />
 </div>
 
 
@@ -616,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29886.jpg" />
 </div>
 
 
@@ -642,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29884.jpg" />
 </div>
 
 
@@ -668,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29860.jpg" />
 </div>
 
 
@@ -680,6 +544,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:783FE638D64AD040B78883D644E55A412933E76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775182   (29794) от 25.01.2025
+
+В.С. Шипачев | Высшая математика (1998) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены элементы теории множеств и вещественных чисел, числовые последовательности и теория пределов, аналитическая геометрия на плоскости и в пространстве, основы дифференциального и интегрального исчислений функций одной и нескольких переменных, элементы высшей алгебры, теория рядов и обыкновенные дифференциальные уравнения. Теоретический материал иллюстрируется (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87123136295918A8EED3E48155113A5AD699F15F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775213   (29783) от 25.01.2025
+
+С.В. Тамакулова (ред.) | Инструкция по возведению землебитных фортификационных сооружений (1943) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29783.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложены вопросы устройства оборонительных рубежей, опорных пунктов и других укреплений. Инструкция составлена Штабом инженерных войск Красной Армии.Жанр: учебное пособиеИздательство: Управление военного издательства Народного Комиссариата ОбороныФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3BA701F3F46EC6F7A94654E5AE7FDC94E63F608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775402   (29735) от 26.01.2025
+
+Дж. Хокинс, Э. Делаханти, Ф. Макдональд | Толковый словарь английского языка Oxford (2008) [PDF, DJVU] [RU, EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словарь содержит 40 000 слов и выражений с подробной разработкой значений слов и примерами употребления в речи. Дано много полезной информации грамматического и лексического характера, много сведений из истории английского языка; знакомит словарь и с произношением трудных слов. Особое внимание уделено этимологии трудных слов, это углубляет знания изучающих английский (   Читать дальше...   )Жанр: словариЯзык: АнглийскийИздательство: Оксфорд Юниверсити Пресс, АСТ, АстрельФормат: PDF, DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC911D72461A9B6105B459033198110340AFC723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775295   (29710) от 26.01.2025
+
+Р.А. Калнин | Курс алгебры для техникумов (1956) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга написана применительно к программе по математике для техникумов, утвержденной Министерством высшего образования СССР, и предназначена быть учебником для техникумов различных специальностей. Для социально-экономических техникумов включена специальная глава, посвященная элементам теории соединений. Для техникумов электротехнической и машиностроительной (   Читать дальше...   )Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CDD09A7DF80190C26669D2637A2E2DA6D061B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775288   (29702) от 26.01.2025
+
+А.Б. Шкарин, А.М. Федянов, Б.Г. Сандлер | Алгебраические задачи в технике (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник задач технического характера по отдельным вопросам алгебры, по нашему мнению, может оказать известную помощь учителям средней школы в преподавании математики. Часть задач сборника может быть использована для внеклассной и кружковой работы. При его составлении авторы стремились на конкретных примерах показать приложение элементарной математики к (   Читать дальше...   )Жанр: МатематикаИздательство: УчпедгизФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256D0C00ABAE94024857185371283F227E0A21D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

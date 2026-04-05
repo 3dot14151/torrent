@@ -1,3 +1,133 @@
+###  Публикация: 1640658   (233917) от 19.06.2023
+
+Попытка разорения банка / An Attempt to Smash a Bank (1909) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не показался мне фильм очень уж увлекательным. Скорее это учебный фильм для финансистов :) Иллюстрирует такое явление как банковский кризис вследствии ажиотажного спроса. Одному похотливому, но очень крупному вкладчику банка отказала дочь банкира. И в отместку он закрыл свой счет и другим вкладчикам наговорил про банк гадостей. Ну и понеслась...Производство: Великобритания, HepworthЖанр: драма, короткометражный, немое киноРежиссер: Тео ФренкельАктеры: Нет сведенийПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB2E09A38112AC0DCCBD12EB87E834D86036849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641036   (233769) от 20.06.2023
+
+Стэн Лорел. Оплачивает адресат / Postage Due (1924) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите отправить прикольную фоточку своей девушке, что вы делаете? Правильно, берете смартфон, фоткаетесь и с этого же смартфона отправляете. Все! Никакой романтики. А как раньше? Надо было пойти в фотоателье, фотограф Вас сфотографирует. Потом с фоткой (бумажной фоткой, Карл!) надо было пойти на почту, написать письмо, вложить в конверт фото и отправить (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джордж ДжескеАктеры: Стэн Лорел, Джеймс Финлейсон, Джордж Роу, Эна Грегори, Эдди Бэйкер, Дик Гилберт, Мартин «Тоннейдж» Уолфкил, Джек Экройд, Уильям Гиллеспи, Чарли ХоллПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0870EFF83354ECAE82A926DF3B1F17E296C07FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645063   (233611) от 07.07.2023
+
+Энни Холл / Annie Hall (1977) DVDRemux [Fullscreen]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма, работающий комиком, с юмором и иронией рассказывает о своей жизни, о людях, которые его окружают. Он скептически анализирует свои неудачи в личной жизни, в которой было несколько любимых женщин…Производство: США / Jack Rollins & Charles H. Joffe Productions, Rollins-Joffe ProductionsЖанр: мелодрама, комедияРежиссер: Вуди АлленАктеры: Вуди Аллен, Дайэн Китон, Тони Робертс, Кэрол Кэйн, Пол Саймон, Шелли Дюволл, Джэнет Марголин, Коллин Дьюхерст, Кристофер УокенПеревод: Многоголосый профессиональный, двухголосыйЯзык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CC2988BFE7329F4876A8FD6642DBA4CC495F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626725   (233578) от 15.04.2023
+
+Оливер Харди. Любовь и долг / Love and Duty (1916) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной фильм про двух персонажей - Пухлика (солдата) и Мелка (лейтенант). Все крутится вокруг двух девушек, одна из которых вроде любит Пухлика, но Пухлик любит другую.Производство: США, Vim Comedy Film CompanyЖанр: комедия, короткометражный, немое киноРежиссер: Will LouisАктеры: Оливер Харди, Билли Рюге, Берт Трейси, Эдна Рейнольдс, Рей ГодфриПеревод: немой с интертитрами (bankolya)Субтитры: русские (интертитры)Продолжительность: 00:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32EC4BFF92AB5C91DE8BAA84B72F799A42F8EDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634490   (233490) от 20.05.2023
+
+Стычка в ночи / Clash by Night (1952) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на пьесе Клиффорда Одетса "Ночное столкновение" 1941 года, адаптированной для экрана писателем Альфредом Хейсом. Мэй Дойл - разочаровавшаяся в жизни женщина. После смерти своего гражданского мужа она после десятилетнего отсутствия возвращается в родной рыбацкий городок Монтеррей, откуда бежала в поисках свободы и новой жизни. Здесь, поселившись (   Читать дальше...   )Производство: США, RKO Radio Pictures, Wald/Krasna ProductionsЖанр: нуар, драма, мелодрамаРежиссер: Фриц ЛангАктеры: Барбара Стэнвик, Пол Дуглас, Роберт Райан, Мэрилин Монро, Дж. Кэррол Нэш, Кит Эндес, Сильвио Минчотти, Тони Мартин, Уильям БэйлиПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67A88FA3D6F77A9BEC26D885BF8A8745459B9BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642277   (233409) от 26.06.2023
 
 Стэн Лорел. Китайский ералаш / A Mandarin Mixup (1924) WEBRip
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233409.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233402.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233380.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233335.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233255.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233199.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233149.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233140.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233126.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233119.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233062.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232933.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232865.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232839.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232836.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232833.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232771.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232613.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232583.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232577.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232570.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A01672504C88FCB02EFD4BFE6DD0720E50C9448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645840   (232520) от 11.07.2023
-
-Стэн Лорел. Недоделанный / Half a Man (1925) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уинчел МакСвини - очень просто и беззаботный молодой человек, ну ОЧЕНЬ ПРОСТОЙ. Отец его разорился, и ему приходится уйти из дома, чтобы самому зарабатывать на жизнь. Его неудержимо тянет к морю, он попадает на корабль, где много девушек-матросов, почти как в нашем фильме "Берегите женщин". Но наш герой, в отличие от героя отечественного фильма, получил (   Читать дальше...   )Производство: США, Joe Rock Comedies (I), Standard Photoplay CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Джо Рок, Гарри СвитАктеры: Стэн Лорел, Туи Боу, Джули Леонард, Бланш Пейсон, Мюррэй РокПеревод: немой с интертитрами (bankolya)Субтитры: русские (интертитры) / английские (интертитры), русские отдельным файломПродолжительность: ~00:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1717682DEBD030CBA83E30684867523701E6A39D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645944   (232403) от 12.07.2023
-
-Школьные друзья / Compagni di scuola (1988) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то они были лучшими друзьями-одноклассниками, но потом жизнь развела их по разные стороны баррикад. Сейчас Фредерике 35 лет, и недавно её бросил богатый любовник. Недолго думая, женщина решает устроить встречу с бывшими друзьями. Так она надеется развеять свою грусть. После школы они не виделись более 15 лет. Само собой, за это время у всех накопилось немало (   Читать дальше...   )Производство: Италия, Cecchi Gori Group Tiger CinematograficaЖанр: драма, мелодрама, комедияРежиссер: Карло ВердонеАктеры: Карло Вердоне, Алессандро Бенвенути, Анджело Бернабуччи, Нэнси Брилли, Джузи Катальдо, Атина Ченчи, Маурицио Феррини, Иза Галлинелли, Массимо Гини, Элеонора ДжорджиПеревод: любительский одноголосыйЯзык озвучки: русский, итальянскийСубтитры: русские (Александр Герусов), английские, итальянскиеКачество: BDRipПродолжительность: 02:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E2E1EC61F18D6BA99DCF9E673D3FB009E43294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646258   (232359) от 13.07.2023
-
-Друг стенографистки / The Stenographer's Friend (1910) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное название этого фильма - "Друг стенографистки; Или чего добился бизнес-фонограф Эдисона", А кинокомпания-производитель этого фильма это "Edison Manufacturing Company". Жанр понятен? ;) Видимо это один из самых первых промофильмов. Ну, а вы что думали, рекламу придумали лет 20-30 назад? Нет, несколько раньше.Производство: США, Edison Manufacturing CompanyЖанр: короткометражный, немое киноРежиссер: нет сведенийАктеры: Джон Р. Кампсон, Этель Джютт, Марк МакДермоттПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC1A5F565A55ED5D64FC58F174990D50B06A284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635638   (232308) от 26.05.2023
-
-Стэн Лорел. Подручный / The Handy Man (1923) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стэн работает подручным при доме Стиллвеллов. А кухарка у них - пышная женщина, с которой у Стэна роман. Но смотритель дома узнает в этой пышной женщине пропавшую наследницу, разыскиваемую через газету.Производство: США, Quality Film ProductionsЖанр: комедия, короткометражный, немое киноРежиссер: Роберт П. КеррАктеры: Стэн Лорел, Мерта Стерлинг, Отто Фрайс, Гарри Манн, Бэйб Лондон, Матильда КомонПеревод: немой с интертитрами (bankolya)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5617D3F7F5F17BCDB10A5D162F94DA515876A6EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646257   (232304) от 13.07.2023
-
-Стэн Лорел. Гуляй, пока молодой / Get 'Em Young (1926) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орвид Джой находится в плавании, там же с ним и его дворецкий (Стэн). Случайно Орвид знакомится на корабле с девушкой, влюбляется и там же женится на ней. В это время ему по завещанию достается миллион долларов, но при условии, что он представит свою жену к оговоренному сроку. Где завещание - там и стряпчий, и ему (стряпчему) самому хочется получить кусочек из этого (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Фред Гиол, Стэн ЛорелАктеры: Гарри Майерс, Евгения Гилберт, Стэн Лорел, Макс Дэвидсон, Шарлотта Мино, Фред Малатеста, Эрнест ВудПеревод: немой с интертитрами (bankolya)Субтитры: русские (интертитры)Продолжительность: 00:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A47C7CB1A6EDA437E2C1EE56A0E4E817141306
 ```
 
 https://mybot314.ru/tekegram_catalog/

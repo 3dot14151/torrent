@@ -1,3 +1,82 @@
+###  Публикация: 439345   (681893) от 08.03.2022
+
+Лицо со шрамом / Scarface (1983) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем - «Лицо со шрамом»...Производство: США / Universal PicturesЖанр: Драма, КриминалРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель СаласарПеревод: Многоголосый, Двуголосый, Авторский, ОдноголосыйЯзык озвучки: Русский, английскийСубтитры: русские, английские (Forced, Full, SDH)Продолжительность: 02:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFBC7837F5129DF84AC2C0BFF1596C109FA78CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026967   (680076) от 27.06.2016
+
+Она носила желтую ленту / She Wore a Yellow Ribbon (1949) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Нэйтан Бриттлс, кавалерийский офицер, дослуживает последние дни перед вынужденной отставкой. Он получает задание сопроводить двух женщин Оливию и Эбби из форта в местечко Садроу Уоллс, где они должны сесть на дилижанс. В это время местные индейцы, жаждущие отмщения за поражение в недавней схватке с бледнолицыми, вновь встают на тропу войны…Производство: США / Argosy Pictures CorporationЖанр: Драма, Мелодрама, ВестернРежиссер: Джон ФордАктеры: Джон Уэйн, Джоэнн Дрю, Джон Агар, Бен Джонсон, Гарри Кэри мл., Виктор МакЛаглен, Милдред Нэтвик, Джордж О’Брайен, Артур Шилдс, Майкл ДуганПеревод: Многоголосый закадровый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A60CCF17EF3798DB46AEC2B409CD0DB76130125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897528   (679337) от 16.05.2015
+
+В случае убийства набирайте «М» / Dial M for Murder (1954) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тони Вендис, бывший плейбой и звезда большого тенниса, прожигающий деньги своей красавицы-жены Марго, решается на преступление, когда узнает, что может лишиться ее миллионов, так как Марго увлеклась американским писателем детективных романов Марком Холлидэем.
+Тони придумывает план идеального убийства, находит надежного исполнителя и организует себе безупречное алиби. (   Читать дальше...   )Производство: СШАЖанр: триллер, криминал, детективРежиссер: Альфред ХичкокАктеры: Рэй Милланд, Грэйс Келли, Роберт Каммингс, Джон Уильямс, Энтони Доусон, Лео Бритт, Патрик Аллен, Джордж Ли, Джордж Алдерсон, Робин ХьюзПеревод: Многоголосый закадровыйЯзык субтитров: русские, английскиеПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C647A1AF44C6DF1213DFD68E8D0B54D683261D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 336602   (678113) от 14.05.2011
 
 Римские каникулы / Roman Holiday (1953) HDTVRip [H.264/720p]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678113.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677978.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677115.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676876.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676858.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674930.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674488.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674278.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673177.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672760.jpg" />
 </div>
 
 
@@ -261,6 +340,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897648   (671129) от 20.05.2015
+
+Китаянка / La chinoise (1967) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_671129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая группа французских студентов изучают жизнь Мао, пытаясь найти свое место в мире и понять как меняется мир под воздействием маоизма.Производство: Франция / Anouchka Films, Les Productions de la Guville, Athos Films, Parc Film, Simar FilmsЖанр: Драма, КомедияРежиссер: Жан-Люк ГодарАктеры: Анн Вяземски, Жан-Пьер Лео, Жюльет Берто, Мишель Семеньяко, Лекс Де Брёйн, Омар Диоп, Френсис Жансон, Бландин Жансон, Элен ДжованьолиПеревод: Одноголосый закадровыйЯзык субтитров: Русский, Английский, ФранцузскийПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57586ECB8E618D6472C308703E184384E1CD66C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 422313   (670217) от 24.03.2019
 
 Поезд ужасов / Horror Express (1973) BDRip [H.264/720p] [VO]
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670217.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669330.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669074.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669059.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668509.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665882.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664074.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663994.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663988.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662955.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662910.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660850.jpg" />
 </div>
 
 
@@ -574,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01CF07CF9ACBAA7C2E0DA1F8D37458B1E6B10742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510350   (659940) от 23.03.2022
-
-Ярость / Fury (1936) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по одноимённому роману Нормана Красна. Джо Уилсон повенчан с Кэтрин Грант. Скоро они должны пожениться. Но для свадьбы нужны деньги, и Джо уезжает в Чикаго работать на заводе. Спустя некоторое время он увольняется и покупает бензоколонку. Заработав на автомобиль, герой пускается в путешествие к своей любимой. Неожиданно на просёлочной дороге путь ему преграждает (   Читать дальше...   )Производство: США, Metro-Goldwyn-MayerЖанр: нуар, драма, мелодрама, криминал, триллерРежиссер: Фриц ЛангАктеры: Сильвия Сидни, Спенсер Трэйси, Уолтер Абель, Брюс Кэбот, Эдвард Эллис, Уолтер Бреннан, Фрэнк Альбертсон, Джордж Уэлкотт, Артур Стоун, Морган УоллесПеревод: профессиональный многоголосый (DVD Classic), профессиональный одноголосый (Светла)Субтитры: английские (SDH)Продолжительность: Качество видео: BDRip
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD017681EB243AC638A5B69A3554E254AEF1F0AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222511   (658589) от 17.05.2018
-
-Лорд Джим / Lord Jim (1965) BDRemux [H.264/1080p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офицер торгового флота Джим Берк в сильный шторм покидает корабль, не позаботившись о пассажирах. Их спасает французское судно. Джим оставляет службу, понимая, что опозорил мундир офицера. Мучаясь от угрызений совести, он ищет случая искупить свою вину. Судьба приводит его в Азию. Здесь он возглавляет борьбу туземцев против местного феодала и становится их героем. (   Читать дальше...   )Производство: Великобритания, США / Columbia British Productions Ltd., Columbia Pictures Corporation, Keep FilmsЖанр: Драма, ПриключенияРежиссер: Ричард БруксАктеры: Питер О’Тул, Джеймс Мейсон, Курд Юргенс, Илай Уоллак, Джек Хоукинс, Пол Лукас, Далия Лави, Аким Тамирофф, Дзюдзо Итами, Тацуо СайтоПеревод: Многоголосый закадровыйСубтитры: английские, французскиеПродолжительность: 02:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB632D7176BCB213D4BFF2D15B28F7660EE88979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222681   (657720) от 18.05.2018
-
-Непобежденные / The Undefeated (1969) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гражданская война в США окончена. Бывший полковник армии Севера Джон Томас перегоняет большой табун лошадей в Мексику. В то же время бывший полковник южан Джеймс Лонгдон так же отправляется в Мексику — вместе со своей семьёй он хочет начать новую жизнь в чужой стране.
-Их пути пересекаются, когда они подвергаются нападению мексиканских головорезов. Теперь бывшие враги (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: ВестернРежиссер: Эндрю В. МакЛагленАктеры: Джон Уэйн, Рок Хадсон, Антонио Агилар, Роман Гэбриел, Мэриэн МакКарго, Ли Меривезер, Мерлин Олсен, Мелисса Ньюман, Брюс Кэбот, Ян-Майкл ВинсентПеревод: Многоголосый закадровый (SomeWax)Субтитры: Русские, английские (полные, SDH)Продолжительность: 01:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7F588C08B5DDC4648B65F57019F6631C72E7A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223774   (657642) от 18.05.2018
-
-Горгона / The Gorgon (1964) BDRemux [H.264/1080p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657642.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одной деревне центральной Европы происходят жуткие вещи - девушка обратилась в камень, а её парень найден повешенным. Местные замалчивают дикие подробности, поэтому покойник объявляется убийцей, наложившим на себя руки в порыве раскаяния, но его отец - уважаемый мифолог - считает, что тут замешано древнее зло. Пытаясь разобраться, мужчина тоже нарывается на неприятности (   Читать дальше...   )Производство: Великобритания, Hammer FilmsЖанр: УжасыРежиссер: Теренс ФишерАктеры: Кристофер Ли, Питер Кушинг, Ричард Паско, Барбара Шелли, Майкл Гудлифф Патрик Тротон, Джозеф О’Конор, Пруденс Химэн, Джек Уотсон, Редмонд ФиллипсПеревод: Многоголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11472832B9411CB930EDE1D5A7FDCD8C2A74B1D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

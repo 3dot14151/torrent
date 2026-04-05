@@ -1,3 +1,134 @@
+###  Публикация: 1036119   (620726) от 20.07.2016
+
+Газета | Мой друг компьютер №14 (241) (июль 2016) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620726.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мой друг компьютер» - издание для обычных пользователей компьютера расскажет, как выбрать компьютерную технику, установить и настроить разные программы, модернизировать компьютер с минимальными финансовыми затратами, защитить от вирусов и не стать жертвой хакеров.Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4026EC6B6075F239588A8BD9484ED65E0AAD4C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910990   (620674) от 21.06.2015
+
+Газета | Сад, огород – кормилец и лекарь №12 (248) (Июнь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сад, огород – кормилец и лекарь — журнал, который поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E579DE8BF4330C8CEF2E9E7FCF60F1EEACA9DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910793   (620672) от 21.06.2015
+
+Журнал | Календарь дачника №4 (Май 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный журнал «Календарь дачника» содержит множество полезных
+советов, садоводов и огородников. Практический опыт, которым они делятся, делает журнал незаменимым помощником каждого, у кого есть дача. Каждый новый выпуск относиться к определенному месяцу. В журнале напечатаны различные советы и рекомендации именно для этого месяца дачного сезона.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B758B252BC00FA5F5967102A8CC13BE3D2DEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910870   (620666) от 21.06.2015
+
+Журнал | Вооруженные силы стран мира №93 (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55DA879AE64BCB359FC62CF67218160BE6A6A915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910905   (620663) от 21.06.2015
+
+Журнал | Золотые рецепты наших читателей №8 (138) (апрель 2015) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56CB84D8DA1BD136B026E074B0018F96247395DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910909   (620661) от 21.06.2015
 
 Журнал | Золотые рецепты наших читателей №10 (140) (май 2015) [PDF]
@@ -6,7 +137,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620661.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620637.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620636.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620625.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620572.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620537.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620531.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620529.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620525.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620521.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620520.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620467.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620368.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620295.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620241.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619979.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619805.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619613.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619609.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619311.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619254.jpg" />
 </div>
 
 
@@ -539,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E189AE78EE785E16399B5594CC411E927EC9CC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036682   (619250) от 21.07.2016
-
-Журнал | Дачный клуб №7 (Июль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619250.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом журнале собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC8D28D3E8C2C5767D2B03B540CFB55D0DE38F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036603   (619244) от 21.07.2016
-
-Журнал | Огородыч №6 (51) (2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дачники и дачницы, огородники и огородницы, садовники и садовницы, опытом, знаниями и полезной информацией о том, как выбрать семена и рассаду, победить сорняки и вредителей, вырастить и сохранить богатый урожай, щедро делится с вами журнал «Огородыч» — лучший друг и незаменимый советчик современного дачника. Дача, сад, огород – уход без хлопот!Жанр: дача, сад, огород, урожайФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE7C72CC3E9BBCC6DCE4740D4966B22CBA10FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523343   (619233) от 15.07.2012
-
-Журнал | 8-БИТ №11 [июль 2012] [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619233.jpg" />
-</div>
-
-
-###  Подробнее
-
-"8-БИТ" - Журнал создавался чтобы информировать народ о новинках информационных технологий, которые будут собраны в одном месте, а не раскиданы по всему рунету, потом пришли идеи создать другие рубрики, такие как юмор, обзор программ, делаем сайты, которые делают журнал более интересным.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1811C7F24EDA8E303D95DC4C403984413E844D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036695   (619140) от 21.07.2016
-
-Журнал | Садовод и огородник №13 (336) (июль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов и дачников, владельцев загородных участков, который предлагает множество практических советов по садоводству и огородничеству, содержанию животных, ландшафтному дизайну. Издание расскажет как обустроить свой садовый участок, поделится секретами выращивания яблонь, груш, винограда, других плодовых деревьев и ягодных кустарников.Жанр: Сад и ОгородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D780580743952A09DE2CF440F375010BEB83D114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523277   (619042) от 15.07.2012
-
-Журнал | Лиза. Гороскоп № 08 [2012] [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619042.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лиза Гороскоп» — глянцевый журнал для женщин, которые сверяют свою жизнь со звездами и любят получать положительные эмоции. Как стать хозяйкой своей судьбы? Звезды Вам советуют. Ежемесячные прогнозы для всех знаков Зодиака. Любовь: ее психология и выбор партнера. Погода на завтра. Исцели себя сама. Великие маги и пророки.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF581F1B9A5D90A6DC05D5F597D5AFCD9F4B34BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

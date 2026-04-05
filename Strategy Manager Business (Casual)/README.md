@@ -7,7 +7,7 @@ Craftlings (2026) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060143.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ New Yankee 17: Jelly Chaos / Янки 17: Желейный хаос (2026) [Ru] 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057275.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Archimedes II: Some Like It Hot / Архимед II: Некоторые любя
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055259.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Argonauts Agency 12: Patterns of Morpheus / Агентство Аргонавт�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053404.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Drop Duchy (2025) [Ru/Multi] (1.2.12/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047523.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046520.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Forager (2019) [Ru/Multi] (4.1.8) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042634.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Duskers (2016) [En] (1.205) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041218.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Mad Games Tycoon (2016) [Ru/Multi] (1.171020ax) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038230.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ New Yankee 10: Under the Genies Thumb / Янки 10: На службе у джи
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028811.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adventures of Megara 3: Demeter's Cat-astrophe / Приключения Мега
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026860.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Farm Frenzy Refreshed / Весёлая Ферма: Возвращение (2021)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021656.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Viking Heroes 2 / Герои викинги 2 (2021) [Ru] (1.0) Unofficial [Coll
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007350.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Roads of Rome: Portals / Дороги Рима: Порталы (2021) [Ru] (1.0)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006578.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Rebuild 3: Gangs of Deadsville (2015) [En] (1.6.41) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002196.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Hermes 4: Tricks of Thanatos / Гермес 4: Проделки Танатоса
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001118.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Fieldrunners 2 [En] (RePack) 2013 | Scorp1oN
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982129.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Stronghold Kingdoms: Era Worlds (2012) [Ru] (2.0.35.3) License
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968329.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The Bridge [En/Multi10] (L) 2013 | FANiSO
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956338.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Gratuitous Space Battles + 8 DLC [En] (Steam-Rip/1.62) 2009 | R.G. Игрома�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953133.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Crashlands (2016) [En] (1.07) Repack MasterDarkness
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944767.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Westward Kingdoms (P) [En] 2010
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938889.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Incredible Dracula III: Family Secret / Невероятный Дракула II
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938196.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Virtual Families 2 – Our Dream House (2013) [En] Unofficial
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934359.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Northern Tales 5: Revival / Сказания севера 5: Возрожден�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931494.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Crown of the Empire 2: Around the World / Корона империи 2: Вок�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925181.jpg" />
 </div>
 
 

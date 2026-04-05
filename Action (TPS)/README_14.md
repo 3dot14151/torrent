@@ -6,7 +6,7 @@ POSTAL Redux (2016) [En] (1.1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749476.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/dlc) License PROPHET [Complete Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749472.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747876.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747728.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.458.0/dlc) Repack CoD - MW2 [Defin
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747623.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747473.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mafia II / Мафия 2 (2011)  [Ru/Multi] (1.0.0.1/upd5/dlc) License GOG [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747263.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mafia / Мафия (2002) [Ru/Multi] (1.3.16073) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747256.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [En/Multi] (1.0) Licen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745921.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [En/Multi] (1.0/upd1) 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744422.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Assassin’s Creed (2008) [Ru/En] (1.02) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744347.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Devil May Cry 4 (2015) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Special Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742961.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Goat Simulator: Waste of Space (2016) [Ru/Multi] (1.3.58280/dlc) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742874.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Phoning Home (2017) [Ru/Multi] (1.4.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742100.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Shadow Man Remastered (2021) [Ru/Multi] (1.4) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741877.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Outbreak: The Nightmare Chronicles (2018) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741710.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.0/dlc) Repack R.G. 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740657.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740529.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Crows Eye (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736295.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Evil Within (2015) [Ru/Multi] (27.05.2016/dlc) License PROPHET [Complete Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732299.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Apocalypse: Party's Over (2016) [En/Pt] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730279.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Elite vs. Freedom (2016) [Eng] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730219.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729458.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729455.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) License GOG [The Full Pack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729295.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Saints Row IV (2013) [Ru/Multi] (1.0.6.1/dlc) License GOG [Game of the Century E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728103.jpg" />
 </div>
 
 

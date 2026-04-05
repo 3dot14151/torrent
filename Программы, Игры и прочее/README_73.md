@@ -1,3 +1,113 @@
+###  Публикация: 1368163   (420570) от 27.08.2022
+
+Electronics Database v2.36 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой справочник параметров импортных полупроводниковых элементов (без цоколевок). На данный момент в базе содержится более 8000 электронных компонентов.
+
+Приложение содержит в себе базу с функциями поиска по наименованию и параметрам для следующих элементов:
+- транзисторы (биполярные, MOSFET, IGBT);(   Читать дальше...   )Тип издания: AdFree (удалена реклама)Релиз состоялся: 25.08.2022Разработчик: Alexander GlushanenkoПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E155539727F2FF479D2651AC93511F23E63B7009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947194   (420057) от 16.10.2015
+
+Фортуна Астрология 1.0 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фортуна Астрология (приложение также известно как "Гороскоп + Периоды Судьбы" =
+Основные функции:
+* Астрологический расчёт жизненных периодов (на основе расчета прогрессии Луны)
+* Расчет астрологических коэффициентов активности, риска, удачи(   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 14 августа 2014Разработчик: Sinin StudioПоддерживаемая ОС: 3.0 +Язык интерфейса: Русский/Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D37AB7A6983B5761F2F828AFE26D2AC805033D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947323   (420048) от 16.10.2015
+
+ГИБДД + ШТРАФЫ PRO 15.0.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всегда под рукой самые актуальные ПДД, Дорожные знаки, КоАП и Штрафы ГИБДД с пояснениями, Приказ 185 МВД РФТип издания: ПираткаРелиз состоялся: 13 декабря 2014Разработчик: tvoiAndroidПоддерживаемая ОС: Android 3.2 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE93D2F96F842171B94EA1CE1B78783EECA9C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947200   (419906) от 16.10.2015
+
+VideoReg Pro 6.96 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа фиксирования на видео движения вашего автомобиля.Тип издания: ПираткаРелиз состоялся: 16.10.15Разработчик: RubberBigPepperПоддерживаемая ОС: 1.5 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC54E3071CB1210FCBCDFFCEC9023E2031DC9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947174   (419895) от 16.10.2015
 
 RocketDial Dialer&Contacts Pro 3.8.6.1 [Ru] - Звонилка с широким спектром возможностей
@@ -6,7 +116,7 @@ RocketDial Dialer&Contacts Pro 3.8.6.1 [Ru] - Звонилка с широким
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419895.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419634.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ Grammatisch 2.4.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419316.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417910.jpg" />
 </div>
 
 
@@ -110,7 +220,7 @@ Doninn Audio Editor Pro 1.08 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411220.jpg" />
 </div>
 
 
@@ -136,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410693.jpg" />
 </div>
 
 
@@ -162,7 +272,7 @@ Baby Sleep Sound Machine 1.1.104 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410406.jpg" />
 </div>
 
 
@@ -188,7 +298,7 @@ Panels - sidebar (edge screen) 1.364 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410310.jpg" />
 </div>
 
 
@@ -214,7 +324,7 @@ Tools for Google Maps 5.30 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410213.jpg" />
 </div>
 
 
@@ -240,7 +350,7 @@ Flud v1.8.3.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410211.jpg" />
 </div>
 
 
@@ -266,7 +376,7 @@ Terraria v1.2.10333 / Мод-много денег [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408940.jpg" />
 </div>
 
 
@@ -292,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408574.jpg" />
 </div>
 
 
@@ -318,7 +428,7 @@ DailyRoads Voyager v7.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407982.jpg" />
 </div>
 
 
@@ -344,7 +454,7 @@ Tail Gun Charlie v1.3.36 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407286.jpg" />
 </div>
 
 
@@ -370,7 +480,7 @@ Marine Aquarium v3.3.21 PRO [Ru\En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406977.jpg" />
 </div>
 
 
@@ -396,7 +506,7 @@ ABBYY FineScanner Pro v1.13.1157 [Ru/Multi] - сканер для любых д�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403672.jpg" />
 </div>
 
 
@@ -422,7 +532,7 @@ Sound & Voice Recorder - ASR Premium v83 [Ru/Multi] - Мультиформатн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396351.jpg" />
 </div>
 
 
@@ -448,7 +558,7 @@ Facetune 1.1.4 [RU]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393761.jpg" />
 </div>
 
 
@@ -474,7 +584,7 @@ Don't Starve: Shipwrecked 0.10 [RU/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393693.jpg" />
 </div>
 
 
@@ -500,7 +610,7 @@ Diabetes:M v8.0.8 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386810.jpg" />
 </div>
 
 
@@ -526,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385478.jpg" />
 </div>
 
 
@@ -552,7 +662,7 @@ Ebook Reader 5.1.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383537.jpg" />
 </div>
 
 
@@ -563,115 +673,6 @@ eBooks.com Ebook Reader позволяет читать любимые книг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B8215A0BF9C166D96FC6725704BC92C381137EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574998   (381310) от 07.09.2022
-
-Volume Styles 4.4.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите полный контроль над ползунками громкости с помощью самого продвинутого приложения регулировки громкости в Play Store.
-Volume Styles позволит вам полностью настроить панель громкости и ползунки.
-Изменение цвета, применение различных тем, таких как iOS и MIUI, изменение положения и многое другое!
-Также, вы можете добавить дополнительные ярлыки и изменить яркость, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16 июн. 2022 г.Разработчик: Tom BayleyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3F7DD96732F57032E25010F6323784886C6C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574827   (381300) от 07.09.2022
-
-No Smoking 2.1.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимание! Наша программа содержит страшные картинки!!!
-Мы создали приложение для людей, которые решили бросить курить и которые нуждаются в дополнительной мотивации.
-Наше приложение, поможет Вам более детально понять, какой ущерб Вы приносите вашему здоровью от курения сигарет.Тип издания: AdfreeРелиз состоялся: 10 февр. 2022 г.Разработчик: Vizorg AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD20366425FBCA6F34917A1195DFA1FC099C9F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574947   (380960) от 07.09.2022
-
-1C Big Keyboard 1.89 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мне 58. Зрение не самое лучшее, на руках пальцы, а не спички. Эту клавиатуру дизайнил для себя. Если Вам нет 35, она понадобится Вам попозже, а вот вашим родителям определенно может пригодиться.Тип издания: AdfreeРелиз состоялся: 1 сент. 2022 г.Разработчик: 1C WearableПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630A4CF73971F9D3D0E2842F6C69C86CBAC06DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175300   (380925) от 17.10.2017
-
-Багаж - список вещей v2.0 AdFree [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Багаж - список вещей - это бесплатное приложение, которое поможет Вам составить список вещей, которые необходимо взять в поездку. В зависимости от времени и цели поездки, приложение самостоятельно сформирует список необходимых вещей и поможет ничего не забыть взять с собой. Сформировав список вещей, Вы можете поделится им с друзьями и знакомыми, чтобы они также ничего (   Читать дальше...   )Тип издания: Пиратка (удалена реклама)Релиз состоялся: 17.05.2017Разработчик: ianchuk.comПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86208C69D397986F8CBCF94EBBE7829BB83597F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552857.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552844.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552794.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552618.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552281.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551381.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Hatebreed - Live Dominance (2008) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551377.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550320.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550092.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550014.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549295.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Just Play - Концерт в клубе "Вермель" (2017) WEBRip [H.264/1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549262.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549170.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548765.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Eric Clapton - Live At Baloise Session (2013) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548721.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Santana & McLaughlin: Live at Montreux - Invitation to Illumination 2011 (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548168.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547700.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547647.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547443.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547305.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547303.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546670.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546127.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545822.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545780.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Kiss. Rocks Vegas 2014 (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545551.jpg" />
 </div>
 
 

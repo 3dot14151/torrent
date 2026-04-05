@@ -1,3 +1,133 @@
+###  Публикация: 1384402   (802633) от 20.05.2020
+
+Сабвей Серф / Subway Surfers (2018) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-11 из 11)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802633.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о приключениях дружной компании подростков во главе с любителем уличного искусства Джейком. Их веселые похождения принимают совсем другой размах, когда они обнаруживают загадочную дыру под старыми рельсами. Красочный и стильный мультсериал на основе сверхпопулярной мобильной игры Subway Surfers, которую полюбили миллионы пользователей по всему миру. Оказывается, (   Читать дальше...   )Производство: ДанияЖанр: Мультсериал, Детский, ПриключенияРежиссер: Майкл ХэгнерПеревод: Русский / ДублированныйСубтитры: ОтсутствуютПродолжительность: ~00:04:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5454ACA677C3CB4A251E5B5CE6A4C52C4B80756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505757   (802627) от 28.10.2021
+
+Ковёр-самолёт / Hodja fra Pjort (2018) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой растёт мечтательным мальчиком, который хочет увидеть мир. Его отец, смотря на жизнь куда более реалистично, настаивает, чтобы сын выбросил никчёмные мысли из головы и выучился на портного. Но мальчик не перестаёт мечтать о путешествиях в далекие края, и в один прекрасный день встречает купца ЭльФазу, который готов пожаловать ему ковер-самолёт, если (   Читать дальше...   )Производство: Дания / M&M Productions, A. Film, Danmarks Radio (DR)Жанр: Мультфильм, СемейныйРежиссер: Карстен КилерихАктеры: Вибеке Дюхольм, Петер Фрёдин, Эрик Холми, Ребекка Ронде Килерих, Сонни Лэхи, Туре Линдхардт, Михаэль Зуков Мардорф, Сьюзи Пауэр, Биргитте Рааберг, Ларс РантеПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFE8794299E13086441368FB61D2C6F7FE4F2DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199200   (802591) от 14.01.2018
+
+Знаешь, как я тебя люблю / Guess How Much I Love You: The Adventures of Little Nutbrown Hare (2012-2015) SATRip (1-41 серии)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с Маленьким Зайчонком и его друзьями, чтобы вместе с ними ощутить все те радости, какими вас способны одарить четыре времени года.Производство: США, Австралия, ВеликобританияЖанр: Детский, мультфильм, семейныйРежиссер: Стиви Вэлланс / SLR Productions, Scrawl Studios, Home Plate EntertainmentПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 41 серия по ~00:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153F8D8E25CBD67F20FF1613EF7FDC49EBA13B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199042   (802473) от 14.01.2018
+
+Тэд-путешественник и тайна царя Мидаса / Tadeo Jones 2: El secreto del Rey Midas (2017) Blu-ray [H.264/1080p] [2D/3D] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тэд, не самый удачливый и ловкий исследователь и путешественник, и его странноватые друзья, в числе которых настоящая мумия и смышленый пес Джефф, отправляются на розыски злобного богача Джека Рэкхема, похитившего Сару. Любимая Тэда обнаружила, где спрятаны сокровища легендарного царя Мидаса, и злодей надеется их заполучить. Но Тэд и его команда должны разрушить (   Читать дальше...   )Производство: Испания, Ikiru Films, Institut Catala de les Empreses Culturals (ICEC)Жанр: Мультфильм, комедия, приключения, семейныйРежиссер: Давид Алонсо, Энрике ГатоАктеры: Оскар Барберан, Мишель Хеннер, Адриана Угарте, Луис Посада, Мигель Анхель Хеннер, Хосе Корбачо, Росер Баталья, Рафаэль Калво, Давид Брау, Франческ БельдаПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full)Продолжительность: 01:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA0879AA9E26E29FE74A9C6F57BA8E45B6E7666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199165   (802471) от 14.01.2018
+
+Дозор джунглей / Les as de la jungle (2017) Blu-ray [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пингвин Морис тигрового окраса уверен, что он и в самом деле тигр — герой, в котором нуждаются джунгли. Вместе со своей энергичной командой разношерстных животных под названием «Дозор джунглей» он неусыпно стоит на страже справедливости и покоя. С переменным успехом, конечно, но они стараются. Однако вскоре ему предстоит столкнуться с невероятно коварным и безжалостным (   Читать дальше...   )Производство: Франция, TAT Productions, Master Films, Vanilla Seed, France Televisions, Centre National de la Cinematographie (CNC), Region Midi-Pyrenees, Procirep, AngoaЖанр: Мультфильм, приключения, семейныйРежиссер: Дэвид АлоАктеры: Пол Борн, Филипп Бозо, Паскаль Касанова, Эммануэль Кюртиль, Мишель Меля, Селин Монсарра, Лоран Морто, Жан-Филипп Пюмартин, Барбара Тиссье, Алексис ТомассианПеревод: Дублированный (Лицензия Blu-Ray RUS)Субтитры: ОтсутствуютПродолжительность: 01:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAE3BE938E84B3A6C3E520879168F30B2FB3647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384552   (802408) от 20.05.2020
 
 Скуби-ду / Scoob! (2020) WEBRip [H.264/1080p] [MVO]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802408.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802384.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802374.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802365.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802301.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802286.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801994.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801991.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801943.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801727.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801667.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801618.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801564.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801420.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801346.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801102.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801043.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800977.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800894.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800873.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800855.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D249EEA49DF1393D85D3D8B0B75BC6A9A55EF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506169   (800837) от 30.10.2021
-
-Щенячий патруль в кино / PAW Patrol: The Movie (2021) BDRip [H.264/1080p-LQ] [hand made 16:9]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда злодей Хамдингер становится мэром города Приключений, бесстрашные щенки бросают ему вызов. Райдера с друзьями ждут опасности и веселье, тайны прошлого и новые знакомства — так, к патрулю присоединяется находчивая такса Либерти. Вооружившись новыми гаджетами, смекалкой и дружбой, команда хвостатых героев готова противостоять Хамдингеру и спасти жителей города (   Читать дальше...   )Производство: Канада, США /  Spin Master Entertainment, Paramount Pictures, Nickelodeon MoviesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Кэллан БрункерАктеры: Иэн Армитедж, Марсаи Мартин, Рон Пардо, Яра Шахиди, Ким Кардашьян Уэст, Рэндолл Пак, Дэкс Шепард, Тайлер Перри, Джимми Киммел, Уилл БрисбинПеревод: Дублированный (SDI Media)Субтитры: отсутствуютПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3A603F69090CA16809C806434A308139E6AC6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506343   (800832) от 30.10.2021
-
-Лови волну! / Surf's Up (2007) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда пингвинов-документалистов приглашает зрителей взглянуть за кулисы самого спортивного, драматичного и опасного соревнования серфингистов на планете — Ежегодного Пингвиньего чемпионата мира по серфингу.Производство: США, Канада /  Sony Pictures AnimationЖанр: мультфильм, комедия, семейный, спортРежиссер: Эш Браннон, Крис БакАктеры: Шайа ЛаБаф, Джефф Бриджес, Зои Дешанель, Джон Хидер, Джеймс Вудс, Дидрих Бадер, Марио Кантоне, Келли Слэйтер, Роб Мачадо, Сал МасикелаПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4783FA9CA83B63BD662C586559782631BE728052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506232   (800774) от 30.10.2021
-
-Щенячий патруль в кино / PAW Patrol: The Movie (2021) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда злодей Хамдингер становится мэром города Приключений, бесстрашные щенки бросают ему вызов. Райдера с друзьями ждут опасности и веселье, тайны прошлого и новые знакомства — так, к патрулю присоединяется находчивая такса Либерти. Вооружившись новыми гаджетами, смекалкой и дружбой, команда хвостатых героев готова противостоять Хамдингеру и спасти жителей города (   Читать дальше...   )Производство: Канада, США /  Spin Master Entertainment, Paramount PicturesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Кэллан БрункерАктеры: Иэн Армитедж, Марсаи Мартин, Рон Пардо, Яра Шахиди, Ким Кардашьян Уэст, Рэндолл Пак, Дэкс Шепард, Тайлер Перри, Джимми Киммел, Уилл БрисбинПеревод: Дублированный (SDI Media)Субтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93A05BE2BFA4B192BDC1219CCA340DD440A95E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505945   (800763) от 30.10.2021
-
-Кощей. Начало (2021) WEB-DL [H.264/720p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800763.jpg" />
-</div>
-
-
-###  Подробнее
-
-В давние времена люди и сказочные существа жили вместе. Пока в Дивноземское княжество не нагрянул Белый призрак, безжалостный монстр, способный уничтожить весь мир. Но лишь одному герою под силу остановить чудище. Он молод, силен, красив, а еще водит байк… Его зовут Кощей.Производство: Россия / ПаровозЖанр: Мультфильм, семейный, приключения, фэнтезиРежиссер: Андрей КолпинАктеры: Никита Волков, Ирина Старшенбаум, Арсений Перель, Тимур Родригез, Юрий Гальцев, Павел Баршак, Владислав Ветров, Ирина Медведева, Юлия Зимина, Мирослава КарповичСубтитры: РусскиеПродолжительность: 01:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5119C5BE76BA336E9AD7BE575F3B9599AE06B285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384646   (800745) от 22.05.2020
-
-Вперёд / Onward (2020) BDRip [H.265/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно в сказочном мире царила магия, но после открытия электричества маги стали не нужны, и развитие пошло по техногенному пути. Теперь эльфы, тролли, гоблины, мантикоры, феи, кентавры и единороги летают на самолетах, пользуются автомобилями и мобильниками и ведут в целом прозаичную жизнь.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дэн СкэнлонПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные), английскиеПродолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71520F89DA84546F762D48109C5012EA8D3FA621
 ```
 
 https://mybot314.ru/tekegram_catalog/

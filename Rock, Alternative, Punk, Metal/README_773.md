@@ -1,3 +1,32 @@
+###  Публикация: 964145   (284137) от 10.12.2015
+
+Cachemire - Photochope-moi (2015) [FLAC|Lossless]<Pop-Rock, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'animal [2:37]
+02. Hasbeen [3:22]
+03. Mustang [3:43]
+04. Photochope-moi [5:04](   Читать дальше...   )Жанр: Pop-Rock, Hard-RockПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84055FE1C52D184777F76BD472E4335CE83EC963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963952   (284131) от 10.12.2015
 
 The Delgados - Universal Audio (2004) [FLAC|tracks+.cue]<Indie Rock>
@@ -6,7 +35,7 @@ The Delgados - Universal Audio (2004) [FLAC|tracks+.cue]<Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284131.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ After Hours - Take Off (1988) [MP3|320 кб/с]<AOR, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284129.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Texas - White On Blonde (1997) [FLAC|tracks+.cue]<Pop Rock, Downtempo>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284125.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Sandy and The Wild Wombats - Devoted to Rock`n`Roll (2017) [MP3|320 Kbps] <Rocka
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284062.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Garden Of Delights 200 CD + 2 DVD (1991-2017) CD-Katalog [WavPack, APE|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284021.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Khymera - The Grand Design (Japanese Edition) (2015) [FLAC|Image+cue]<Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283948.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ AC/DC - Transmission Impossible Legendary Broadcasts From The 1970s (2016) [MP3|
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283941.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Vorna - Ei Valo Minua Seuraa (2015) [MP3|320 кб/с]<Pagan Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283797.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Edenbridge - 10 альбомов (2000-2013) [MP3|320 кб/с]<Symphonic Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283793.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ V.A. - Classic Rock Magazine presents: The Best Of The Year 2015 (2015) [FLAC|Im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283781.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Skunk Anansie - 9 Albums (1995 - 2019) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283752.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283742.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283409.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Votum - Metafiction (2009)  [FLAC|Lossless|image + .cue]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283070.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283005.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ The Alan Bown - Listen & Stretching Out (1970-71) Compilation, 1993, Edsel Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282959.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Eye Empire - Moment Of Impact (2010) [MP3|320 kbps]<Alt. Metal / Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282917.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282899.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282892.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ Experience Hendrix - The Best Of Jimi Hendrix (1997) Remastered, 2008, Universal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282797.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ Accept - Symphonic Terror (Live at Wacken 2017) (2018) [MP3|320 Kbps] <Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282663.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ The Score - ATLAS (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282574.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ Alan Simon - Excalibur (Quadrology) (1998-2017) [FLAC|Lossless|image + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282572.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ Van Morrison - Versatile (2017) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282531.jpg" />
 </div>
 
 
@@ -712,7 +741,7 @@ Chris Norman - The Complete Story Of Chris Norman (2008) 5CD Box Set [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282507.jpg" />
 </div>
 
 
@@ -726,35 +755,6 @@ Chris Norman - The Complete Story Of Chris Norman (2008) 5CD Box Set [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC47493A20BC0C86E3F11B86BA47C1C5B2812BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811107   (282481) от 22.11.2018
-
-Alice in Chains - 7 альбомов, 2 EP  (1990 - 2018) [FLAC|Lossless|image + .cue|tracks + .cue]<Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два года Alice In Chains потратила на концерты в местных клубах, а в 1989-м при помощи демо "The Treehouse Tapes" ей удалось попасть под крышу Columbia Records. Пробный миньон We Die Young породил серьезный хит для радио, и лейбл поспешил загнать музыкантов обратно в студию для подготовки дебютного альбома. Вышедший в августе 1990-го Facelift поначалу не (   Читать дальше...   )Список альбомов:
-Alice In Chains - 1990 - Facelift
-Alice In Chains - 1992 -  Dirt
-Alice In Chains - 1994 - Jar Of Flies & SapЖанр: GrungeПродолжительность: 07:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2BB17150A82ED678FEF4A0065B43468456106A
 ```
 
 https://mybot314.ru/tekegram_catalog/

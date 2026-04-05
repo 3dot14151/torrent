@@ -1,3 +1,163 @@
+###  Публикация: 1455952   (1025174) от 21.03.2021
+
+NASA успешно испытало ступень самой большой ракеты в мире
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025174.jpg" />
+</div>
+
+
+###  Подробнее
+
+NASA наконец-то провело успешное испытание основной ступени ракеты Space Launch System (SLS), завершив восьмиминутные испытания потоками пламени из сопел четырех двигателей RS025 в космическом центре имени Джона Стенниса.На сегодняшний день SLS стоит более 20 миллиардов долларов и является ключевым компонентом программы NASA Artemis, направленной на обеспечение постоянного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455947   (1025170) от 21.03.2021
+
+6 неожиданных фактов о человеческом сне
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы проводите треть своей жизни лежа на любимой подушке и сладко посапывая, пока мерзкий звук будильника не разбудит вас. Но что вы знаете о сне как таковом, кроме банальностей, вроде той, что это полезно для организма? Ученые пока до конца не могут объяснить, почему же мы спим, но продолжают обнаруживать интересные и даже абсурдные факты об этом пока еще загадочном физиологическом процессе. Вот шесть наиболее удивительных из них.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455547   (1025149) от 21.03.2021
+
+Лига справедливости Зака Снайдера / Zack Snyder's Justice League (2021) WEB-DLRip [H.265/1080p-LQ] [HDR, 10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновившись самопожертвованием Супермена, Брюс Уэйн вновь обретает веру в человечество. Он заручается поддержкой новой союзницы Дианы Принс, чтобы сразиться с ещё более могущественным противником. Бэтмен и Чудо-женщина набирают команду сверхлюдей для борьбы с пробудившейся угрозой.Производство: США / Atlas Entertainment, DC Entertainment, DC FilmsЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Зак СнайдерАктеры: Бен Аффлек, Галь Гадот, Генри Кавилл, Дайан Лэйн, Джаред Лето, Эзра Миллер, Джейсон Момоа, Конни Нильсен, Дж.К. Симмонс, Робин РайтПеревод: Дублированный (КиноПоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 04:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B046CC2DCB4D6D359747F1A7EE7956AD96EB7B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214829   (1025146) от 21.03.2021
+
+Surviving Mars (2018) [Ru/Multi] (1001551/dlc) Repack Other s [Digital Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Surviving Mars — это научно-фантастический симулятор поселения, где вашей целью будет колонизировать Марс и не умереть в процессе. Выберите космическое агентство, которое будет обеспечивать вам логистику и финансовую поддержку, затем определитесь с местом для колонии. Возводите купола и остальную инфраструктуру, исследуйте новые возможности, используйте дронов, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Haemimont GamesЖанр: Simulation, Strategy, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9045CD5DCBE18230562B89422FB848FC152BF494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696915   (1025145) от 21.03.2021
+
+Tor Win64 0.4.5.7
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tor (сокр. от англ. The Onion Router) — свободное программное обеспечение для реализации второго поколения так называемой «луковой маршрутизации». Это система, позволяющая устанавливать анонимное сетевое соединение, защищённое от прослушивания. Рассматривается как анонимная сеть, предоставляющая передачу данных в зашифрованном виде. Предлагаемый пакет представляет (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E468FA919C18F83FE2F16C27E58FD57F47A90B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455756   (1025144) от 21.03.2021
+
+Windows 10 20H2 Compact & FULL x64 [19042.746] by Flibustier 13.01.2021 [Ru]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компактная сборка Windows 10 20H2, включает два индекса и все последние наработки:
+● Индекс 1 - Compact "FULL" (практически полная, минимально урезанная, установятся все обновления).
+● Индекс 2 - Compact (урезана по максимуму, обновления устанавливаться не будут).
+● Включены все пакеты для правильной интеграции и установки английского (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A7B21F4427EA93838671B74911E1B47E458FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454405   (1025143) от 21.03.2021
 
 Рыцари справедливости / Retfaerdighedens ryttere (2020) WEBRip [H.264/1080p-LQ] [Line] [PR]
@@ -6,7 +166,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025143.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025142.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025035.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ Apple оштрафована в Бразилии на 2 млн долларов 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025016.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ Windows 10 20H2 (19042.870) x64 Home + Pro + Enterprise (3in1) by Brux v.03.2021
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024973.jpg" />
 </div>
 
 
@@ -136,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024966.jpg" />
 </div>
 
 
@@ -162,7 +322,7 @@ BELOFF 2021.03 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024965.jpg" />
 </div>
 
 
@@ -188,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024963.jpg" />
 </div>
 
 
@@ -214,7 +374,7 @@ HD VideoBox Plus v2.31 [Ru/Ua]
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024962.jpg" />
 </div>
 
 
@@ -240,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024829.jpg" />
 </div>
 
 
@@ -266,7 +426,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024800.jpg" />
 </div>
 
 
@@ -292,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024797.jpg" />
 </div>
 
 
@@ -320,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024796.jpg" />
 </div>
 
 
@@ -346,7 +506,7 @@ Mushoku Tensei: Перерождение безработного | Реинка
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024789.jpg" />
 </div>
 
 
@@ -372,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024788.jpg" />
 </div>
 
 
@@ -398,7 +558,7 @@ Assassins Creed: Valhalla (2020) [Ru/En] (1.1.2/dlc) Uplay-Rip InsaneRamZes
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024661.jpg" />
 </div>
 
 
@@ -424,7 +584,7 @@ Intel готовит революцию. Новые процессоры пок�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024659.jpg" />
 </div>
 
 
@@ -450,7 +610,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.68/dlc) License GOG [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024654.jpg" />
 </div>
 
 
@@ -476,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024653.jpg" />
 </div>
 
 
@@ -502,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024650.jpg" />
 </div>
 
 
@@ -513,162 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F5AC6A72E36E6996B13FC72FA880EB38D477566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561641   (1024649) от 24.03.2021
-
-Ходячие мертвецы / The Walking Dead (2012) WEB-DL [H.264/720p] (Сезон 3, серии 1-16 из 16) Fox Crime
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалипсических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: США / Circle of Confusion, AMC StudiosЖанр: ужасы, мистика, триллерРежиссер: Эрнест Р. Дикерсон, Билл Джирхарт, Гай ФерлендАктеры: Эндрю Линкольн, Сара Уэйн Кэллис, Лори Холден, Стивен Юн, Чендлер Риггз, Норман Ридус, Айрон Э. Синглтон, Мелисса Сюзанн МакБрайд, Лорен Коэн, Джон Бернтал и др.Перевод: Многоголосый профессиональный - Fox CrimeЯзык озвучки: русскийПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25201045E1EA5FBC8A30BD3E11512CB51D1B723E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456649   (1024501) от 25.03.2021
-
-Microsoft готова купить геймерский чат за 10 млрд долларов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммуникационная платформа Discord, популярная у геймеров, рассматривает предложения о покупке от нескольких покупателей, наиболее заметным из которых является Microsoft. Компанию в ходе переговоров оценивают более чем в 10 млрд долларов.Discord — работающая на всех популярных операционных системах платформа для общения, объединяющая чаты, голосовые и видеозвонки, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456760   (1024472) от 25.03.2021
-
-Банк России выпустит банкноты нового дизайна
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банк России планирует к 2025 году выпустить обновленные банкноты, на которых представит достопримечательности всех федеральных округов. Об этом рассказал заместитель председателя ЦБ Михаил Алексеев.Он напомнил, что банкноты новых номиналов — 200 и 2000 рублей — выпустили в оборот в 2017 году. Они отличаются современным дизайном и защитным комплексом на лучшем мировом (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395226   (1024465) от 25.03.2021
-
-Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альтернативном мире с нуля [ТВ-2] [2020, TV, 25 эп.] WebRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024465.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПродолжениеПроизводство: студия White FoxЖанр: фэнтези, драмаРежиссер: Ватанабэ МасахаруПеревод: CrunchyRollСубтитры: #1: Английские; #2: Русские;Продолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B0DC47E8469DCBAEE662389170F129BAD00BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457356   (1024305) от 26.03.2021
-
-Черный код: в процессорах Intel нашли две критические уязвимости
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024305.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некоторых случаях скрытые функции устройств могут служить для несанкционированного перехвата управления компьютером.В процессорах Intel обнаружили две новые уязвимости, рассказали «Известиям» специалисты по информационной безопасности. Речь о недокументированных производителем возможностях, которые позволяют перехватить контроль над устройством. Доступ к ним открывается (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457149   (1024276) от 26.03.2021
-
-Windows 7/10 Pro х86-x64 by g0dl1ke 21.03.20 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе оригинальных русских Windows 7/10 Pro x86-x64 с обновлениями и отключением телеметрии по рекомендациям simplix, в соавторстве с systempЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D8B9ABD16EC455CD1F4CA9FCA339A199C4CD88
 ```
 
 https://mybot314.ru/tekegram_catalog/

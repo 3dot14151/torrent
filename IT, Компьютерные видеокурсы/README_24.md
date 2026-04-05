@@ -1,29 +1,3 @@
-###  Публикация: 1477901   (1010586) от 17.06.2021
-
-A Cloud Guru / LinuxAcademy | Red Hat Certified Specialist in Linux Diagnostics and Troubleshooting Exam Prep (RH342) (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс подготовит вас к экзамену Red Hat Certified Specialist in Linux Diagnostics and Troubleshooting (EX342). Вы научитесь устранять неполадки, диагностировать и разрешать (или предоставлять доказательства) проблемы, которые вызывают снижение производительности и потерю производительности. В дополнение к подготовке к экзамену этот курс подходит для тех, кто (   Читать дальше...   )Производство: A Cloud Guru / LinuxAcademyЖанр: Программирование, администрированиеЯзык озвучки: АнглийскийПродолжительность: 04:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B18D91AECDA297A897E2CC9DB11FEF3D011BD47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478082   (1010553) от 17.06.2021
 
 Edston, Николай Петров | Создание чат-ботов в WhatsApp, Telegram, Viber для маркетинга и продаж (2021) PCRec
@@ -32,7 +6,7 @@ Edston, Николай Петров | Создание чат-ботов в What
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010553.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Udemy, Trevor Sawler | Deploying a Secure Virtual Private Server with Ubuntu 20.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010434.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ A Cloud Guru / LinuxAcademy | LPIC-2: Linux Engineer Exam 201 [En] (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010428.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009928.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009604.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009200.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ RuFrame, Ленар Баширов | Командная строка Windows  (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008891.jpg" />
 </div>
 
 
@@ -226,7 +200,7 @@ Udemy, Исмаил Усеинов | jQuery для начинающих (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008795.jpg" />
 </div>
 
 
@@ -253,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008777.jpg" />
 </div>
 
 
@@ -282,7 +256,7 @@ fullstack.io, Rob Kendal | Real World React: Руководство для на�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008422.jpg" />
 </div>
 
 
@@ -309,7 +283,7 @@ JavaScript.Ninja | Мастер-класс: ﻿тестирование Vue-пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008394.jpg" />
 </div>
 
 
@@ -335,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008377.jpg" />
 </div>
 
 
@@ -364,7 +338,7 @@ Skillbox, Сергей Корниенко и др. | Веб-вёрстка (2020
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008371.jpg" />
 </div>
 
 
@@ -393,7 +367,7 @@ A Cloud Guru / LinuxAcademy | Introduction to LVM (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008278.jpg" />
 </div>
 
 
@@ -419,7 +393,7 @@ Academind Pro, Maximilian Schwarzmüller | Начало работы с Golang /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008215.jpg" />
 </div>
 
 
@@ -446,7 +420,7 @@ A Cloud Guru / LinuxAcademy | Kali Linux Deep Dive (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008212.jpg" />
 </div>
 
 
@@ -472,7 +446,7 @@ Udemy, Prateek Narang и др. | Graph Theory Algorithms for Competitive Program
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008129.jpg" />
 </div>
 
 
@@ -499,7 +473,7 @@ Udemy, Catalin Stefan | Complete Kotlin development masterclass (2021) PCRec [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008094.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Udemy, Cristian Calinescu | Windows Server 2019 Hyper-V, Storage, Clustering and
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007826.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Udemy, Sergey Shmatovskiy | Laravel 8 (PHP). Выполнение реально
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007507.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Udemy, Josh Werner, Learn Tech Plus | Front End Web Development Ultimate Course 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007374.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Skillbox, Александр Кузнецов  и др. | JavaScript-фрейм�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007205.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ Coding With Mitch, Mitch Tabian | Kotlin Multiplatform Mobile  (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006958.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Udemy, Trevor Sawler | Building Modern Web Applications with Go (Golang)  (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006814.jpg" />
 </div>
 
 
@@ -693,7 +667,7 @@ Udemy, Data Is Good Academy | Data Analysis Masterclass (4 courses in 1)  (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006723.jpg" />
 </div>
 
 
@@ -706,6 +680,34 @@ Udemy, Data Is Good Academy | Data Analysis Masterclass (4 courses in 1)  (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2DE7F370BA990CE23F4C7D0CA0CC98117913C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483515   (1006687) от 14.07.2021
+
+software-testing.ru, О. Назина | Автоматизация тестов для REST API при помощи Postman (2021) PCRec [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006687.jpg" />
+</div>
+
+
+###  Подробнее
+
+а курсе мы будем писать автотесты для API-методов в программе Postman. Мы пройдем полный цикл — от первого автотеста до настройки CI (Continuous Integration). От Math.random до циклов и условий. От простого include до регулярных выражений. Это курс вам подойдет, если:
+Вы не умеете автоматизировать — Postman дает отличный и простой старт.
+Вы тестируете API черным (   Читать дальше...   )Производство: software-testing.ruЖанр: ТестированиеПродолжительность: 38:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A9152A030EA2BE5B628C42CB5250639F78BE0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

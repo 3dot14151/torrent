@@ -1,3 +1,55 @@
+###  Публикация: 1420813   (323692) от 02.11.2020
+
+В.А. Петин, А.А. Биняковский | Практическая энциклопедия Arduino, 2-е издание (2020) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323692.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге обобщаются данные по основным компонентам конструкций на основе платформы Arduino, которую представляет самая массовая на сегодняшний день версия ArduinoUNO или аналогичные ей многочисленные клоны. Книга представляет собой набор из 33 глав-экспериментов. В каждом эксперименте рассмотрена работа платы Arduino c определенным электронным компонентом или модулем, (   Читать дальше...   )Жанр: Техническая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06A8861D85F24DBA246DF59BE8DFC9ED82D0949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958230   (323036) от 21.11.2015
+
+П. Хоровиц, У. Хилл / Paul Horowitz, Winfield Hill | Искусство схемотехники. 3-е издание / The Art of Electronics. 3rd Edition (2015) [PDF] [En]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, которая для многих любителей стала поистине проводником в мир электроники и DIY, в последний раз переиздавалась авторами Полом Хоровитцем и Уинфилдом Хиллом в 1989 году. Книга в доступной форме, с юморком и без чрезмерного углубления в физику и матан на страницах трёх томов даёт представление о физических основах электротехники, активных и пассивных элементах, (   Читать дальше...   )Жанр: Радиоэлектроника, электротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D304E77568CF92A065C22DDC3F9A7687EA6392C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075088   (320429) от 22.11.2016
 
 Дж. Прескилл | Квантовая информация и квантовые вычисления. [2 тома] (2008, 2011) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320429.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318642.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318128.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316162.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314871.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314490.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312061.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311747.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308143.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307406.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307367.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305328.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304712.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300766.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293988.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293148.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292854.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292810.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292767.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292756.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292550.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Service Manuals for Notebook | Сервис Мануалы для ноутбук
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292262.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290217.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289211.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19F0C68EBDC5CF7C81CB266DC499EB836A91B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334877   (289200) от 01.11.2019
-
-В.А. Майстренко и др. | Современные радиоэлектронные средства и технологии информационной безопасности (2017) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена современным радиоэлектронным каналам и системам связи сверхвысокочастотного диапазона волн, используемым в качестве оружия информационных технологий. Важное внимание уделено актуальным вопросам криптографии и информационно-коммуникационным технологиям безопасности и защиты информации современных радиоэлектронных средств.
-Рассмотрены особенности (   Читать дальше...   )Жанр: Электроника, безопасностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9B1A4F6C8990EEECAEBCFB7174B1CFB1CF97EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962810   (288777) от 07.12.2015
-
-Г. П. Зедгинидзе, Р. Ш. Гогсадзе | Математические методы в измерительной технике (1970) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288777.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге освещены теоретические основы применения математических методов в решении современных задач измерительной техники и пути их практической реализации. Рассмотрены приемы и способы математического описания процессов измерений и алгоритмизации математических задач для их автоматического (машинного) решения; описывается применение методов математики и технической (   Читать дальше...   )Жанр: Технические наукиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1769B146443EBE561B99C8EE669D6C3CF0D2A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

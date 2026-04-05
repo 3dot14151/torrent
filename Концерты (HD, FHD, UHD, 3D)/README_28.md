@@ -6,7 +6,7 @@ Dream Theater - Live at Luna Park (2013) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381335.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380647.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379956.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ U2-Концерт/Чикаго (2015) WEBRip[H.264/2160p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379152.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378415.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Madonna: Rebel Heart Tour (2016) BDRemux [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375706.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Santana - Santana IV Live at the House of Blues (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375566.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Metallica - Концерт в Москве (2015) WEBRip [1080p/60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374350.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Madonna: Rebel Heart Tour (2016) BDRip [H.264/720p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373919.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373060.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372255.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Papa Roach -  Live in Moscow (2015) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370097.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ The Australian Pink Floyd Show - Live at the Hammersmith Apollo (2011) [1080i] B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369932.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369117.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367924.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custo
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366936.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Coldplay - Live 2012 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365146.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363376.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362730.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_359780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359780.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Metallica и Симфонический оркестр Сан-Франциско
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357552.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tarja Turunen - Act 1 (2012) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357004.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356891.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356675.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Gregorian - Live! Masters of Chant  Final Chapter Tour (2016) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356382.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356161.jpg" />
 </div>
 
 

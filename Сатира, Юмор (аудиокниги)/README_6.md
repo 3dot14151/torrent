@@ -6,7 +6,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743907.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740737.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739706.jpg" />
 </div>
 
 
@@ -80,33 +80,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 786144   (736680) от 17.05.2014
-
-Эльдар Рязанов, Владимир Моисеенко, Александр Новотоцкий | Старые клячи (2014) [MP3, Светлана Репина]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_736680.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Старые клячи» — киноповесть, литературная основа российского художественного фильма 2000 года, снятого Эльдаром Рязановым.
-История начинается начинается с встречи четырёх подруг, женщин средних лет: профсоюзной активистки, завлаба, железнодорожницы и школьной учительницы, в 1989 году. Сын одной из них, Любы (Лия Ахеджакова), погиб в Афганистане. Подруги поют под (   Читать дальше...   )Жанр: КиноповестьПродолжительность: 04:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529F073102FDEA508A5D464CCFD9F8627145C054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397932   (736613) от 24.07.2020
 
 Виктор Ардов | Рассказы (2011) [MP3, Олег Исаев, Фаина Раневская]
@@ -115,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736613.jpg" />
 </div>
 
 
@@ -144,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736406.jpg" />
 </div>
 
 
@@ -170,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730652.jpg" />
 </div>
 
 
@@ -196,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727074.jpg" />
 </div>
 
 
@@ -222,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724331.jpg" />
 </div>
 
 
@@ -248,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724323.jpg" />
 </div>
 
 
@@ -274,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719612.jpg" />
 </div>
 
 
@@ -301,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718964.jpg" />
 </div>
 
 
@@ -327,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714473.jpg" />
 </div>
 
 
@@ -355,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712902.jpg" />
 </div>
 
 
@@ -381,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708765.jpg" />
 </div>
 
 
@@ -408,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702166.jpg" />
 </div>
 
 
@@ -434,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697588.jpg" />
 </div>
 
 
@@ -460,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695259.jpg" />
 </div>
 
 
@@ -486,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684588.jpg" />
 </div>
 
 
@@ -515,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682388.jpg" />
 </div>
 
 
@@ -541,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681410.jpg" />
 </div>
 
 
@@ -567,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681396.jpg" />
 </div>
 
 
@@ -594,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677007.jpg" />
 </div>
 
 
@@ -621,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676011.jpg" />
 </div>
 
 
@@ -647,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673219.jpg" />
 </div>
 
 
@@ -675,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670924.jpg" />
 </div>
 
 
@@ -686,6 +659,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2077929AEFB083467F6F7073CE64D0935BA87F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899915   (669190) от 21.05.2015
+
+Андрей Загорцев | Особая группа (2015) [MP3, Владимир Воронцов (Доцент)]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для выполнения особо важных задач из состава наиболее подготовленных офицеров формируются особые группы специального назначения.
+Суровая реальность в 5 частях под общей редакцией В. ОлейникаЖанр: Армейский юморПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CE0C104CD787571E4EDFB69C5A502184DBE724
 ```
 
 https://mybot314.ru/tekegram_catalog/

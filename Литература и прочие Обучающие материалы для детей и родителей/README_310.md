@@ -1,3 +1,56 @@
+###  Публикация: 1419055   (344712) от 26.10.2020
+
+Андрес Мьедозо | Охотники за призраками. Лови волну, страшилка! Книга 3 (2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрес терпеть не может море и пляж. Хотя пикник у моря вместе с лучшим другом – совсем другое дело! Только в действительности денёк на пляже в компании Дезмонда Коула означает, что о спокойном отдыхе можно забыть.
+С призраками Андрес уже почти свыкся. Но в волнах появляются ещё более странные существа. Они явно замышляют что-то недоброе, и долг Призрачного патруля (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Анастасия ИвановаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8713BCD377C43E7897DBF96362142926D2EB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419047   (344711) от 26.10.2020
+
+Вашти Харди | Ярошторм. Экспедиция над облаками (2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающая приключенческая история с элементами расследования: Артур и Моди Ярошторм отправляются к неизведанным землям Третьего континента, чтобы узнать правду о гибели своего отца. Близнецы Артур и Моди Ярошторм получают известие, что их отец, первый в своем роду воздухоплаватель Эрнест Ярошторм, трагически погиб в экспедиции к Южному полюсу. А еще его нагло (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Мария СухотинаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662F320E3909071DB3EDAA640075D2A97458FB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418985   (344709) от 26.10.2020
 
 Лариса Калюжная | Бабушка, а почему? или Разговоры с внуками (2016) [EPUB]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344709.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344556.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344552.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344542.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344420.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344334.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344264.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343860.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343579.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343576.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343572.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343565.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343450.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343449.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343444.jpg" />
 </div>
 
 
@@ -410,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343443.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343441.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343437.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343381.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343126.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343097.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343087.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343071.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343065.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A628494930525938EE5A7599E7C9EAAFD0CF98E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725952   (342687) от 23.11.2013
-
-А. Н. Евсеевичева | Большая энциклопедия дошкольника (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342687.jpg" />
-</div>
-
-
-###  Подробнее
-
-О чем бы ни говорилось в "Большой энциклопедии дошкольника" - об исторических событиях или растениях, изобретениях или знаменитых людях, великих географических открытиях или животных, - она обращается к детям, приглашая их к знакомству с таким удивительным миром, как планета Земля. Энциклопедия отличается необыкновенно увлекательной, популярной формой изложения, благодаря разностороннему содержанию, подаче материала в виде небольших текстов, оригинальным иллюстрациям, дизайну. С помощью "Большой энциклопедии дошкольника" ваш ребенок поймет, что обучение может быть легким и приятным, а вы будете уверены, что он готов к школе.Жанр: Дошкольное обучение, энциклопедияПеревод: М. Силина, Т. Горбачева, Е. Литвинович (с итал.)Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1752A8D0A5E2DCC41AF77D8032A2977B859E5505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073908   (342545) от 17.11.2016
-
-Лев Генденштейн | Алиса в стране математики (1994) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга построена на занимательных сказочных сюжетах с персонажами всемирно известных сказок Льюиса Кэрролла "Алиса в Стране Чудес" и "Алиса в Зазеркалье" и призвана пробудить у детей интерес к математике, развить творческое воображение и логическое мышление. В книге содержатся также исторические экскурсы, знакомящие с великими математиками и историей (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD98EBD5A49CB9BA4363FE42D18C9648A5EEC68D
 ```
 
 https://mybot314.ru/tekegram_catalog/

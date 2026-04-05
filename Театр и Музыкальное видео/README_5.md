@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012307.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011947.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Ra
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011274.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011265.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Bobby McFerrin - Spontaneous Inventions (1986) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011263.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ One Desire - One Night Only - Live In Helsinki (2021) ВDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011097.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRip [EN]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011086.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011083.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010122.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009651.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009395.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Toto: С небольшой помощью моих друзей / Toto: With A 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008824.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008680.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008249.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007566.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006548.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Nazareth - Live from Classic T Stage (2005) DVDRip [H264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006247.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Uriah Heep - The Legend Continues (1999) DVDRip [H264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006239.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006211.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006056.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Renaissance - 50th Anniversary - Ashes Are Burning: An Anthology - Live In Conce
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006005.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004926.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004797.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004654.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004429.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004420.jpg" />
 </div>
 
 

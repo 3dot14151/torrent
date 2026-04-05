@@ -1,3 +1,29 @@
+###  Публикация: 235001   (498480) от 11.09.2010
+
+Pink Floyd - The Wall. 1979. (LPCM, 96 kHz, 24 bit, stereo) [Audio-DVD from Vinyl Rip]
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот Audio-DVD (музыкальный DVD-Video) диск был сделан мною на основе материала, предоставленного уважаемым Dr. Robert. Этот человек известен своим тщательнейшим отношением к звуку, да и техника, использованная им при риппинге, заслуживает глубочайшего уважения. Формат DVD-Video был выбран мною для авторинга из-за несомненных удобств, предоставляемых им: возможности (   Читать дальше...   )Жанр: Rock, какого не было
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 820471   (496444) от 10.09.2014
 
 Foreigner - 4 (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
@@ -6,7 +32,7 @@ Foreigner - 4 (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496444.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Rey Dorset & Mungo Jerry - Golden Orpheus Festival Live (1978) [FLAC 2.0 24/96|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496384.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Yes - Magnification (2001) [FLAC 2.0|96/24|tracks|DVD-Audio] <Progressive Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495893.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ VA - Мельница - Песни Игоря Николаева (1987) [DSD2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495428.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ Rainbow - On Stage (1977) 2LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494936.jpg" />
 </div>
 
 
@@ -151,7 +177,7 @@ Beth Hart - My California (2010) /2014/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494011.jpg" />
 </div>
 
 
@@ -180,7 +206,7 @@ Sting - Brand New Day (1999) [FLAC 2.0|48/24|tracks|DVD-Audio] <Pop, Soft Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491710.jpg" />
 </div>
 
 
@@ -209,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490675.jpg" />
 </div>
 
 
@@ -238,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488166.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ AC/DC - For Those About To Rock (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487780.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485173.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483272.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483138.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ VA - Робинзон - Леонид Дербенёв (1985) [DSD2.0|5,64MHz/1bi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481624.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479937.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479756.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479753.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ Supertramp - Even In The Quietest Moments... (1977) [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477957.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Enigma - A Posteriori (Limited Edition, Remastered, Pink Translucent) (2018) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477742.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Enigma - The Cross Of Changes (Limited Edition, Remastered, Yellow Translucent) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477738.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Enigma - MCMXC A.D. (2018) (Limited Edition, Remastered,Red Translucent) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477727.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Eva (Csepregi Éva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|96/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477194.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Enigma - Seven Lives Many Faces (Limited Edition, Remastered, Light Blue) (2018)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475535.jpg" />
 </div>
 
 
@@ -673,7 +699,7 @@ Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473898.jpg" />
 </div>
 
 
@@ -702,7 +728,7 @@ The Cars - Heartbeat City (1984)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473389.jpg" />
 </div>
 
 
@@ -716,35 +742,6 @@ A4. Drive (3:54)(   Читать дальше...   )Жанр: RockПродолж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10474A267B5E17CB39D435849E7E70C776752E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939680   (473210) от 22.09.2015
-
-Marie Laforet - Viens, Viens (1973) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Viens, Viens
-Written-By – H.R. Barnes, R. Bernet, Sven-Linus
-02.	Arlequin
-Written-By – D. Gerard, H.R. Barnes, R. BernetЖанр: Pop/ChansonПродолжительность: 00:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEE0E8208925C43244D34F399E72D0F17804CC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

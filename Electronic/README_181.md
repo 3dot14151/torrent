@@ -1,3 +1,61 @@
+###  Публикация: 1399652   (732875) от 01.08.2020
+
+Goasia - Landed On Wrong Planet LP (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outer Space Formant (06:09)
+02. Alien's Ultimatum (08:09)
+03. Back To Space (07:00)
+04. Hybrids (07:09)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC8B9E84D3DC761D30ADF4FC0685813101BF468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372817   (732837) от 01.08.2020
+
+VA - The Sound Of Psy-Trance, Vol.1-4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732837.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jarvith Bhaut Perz - Baby (6:29)
+2. Magnetic Resonance - Fraction Of A Point (Radio Edit) (5:03)
+3. Atype - Sleeping Illusion (6:35)
+4. Stepper - Open To Mistikan (7:37)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47920A6C185B44CC8F4DE92334C9E2AFE792492E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529301   (732705) от 06.02.2022
 
 Geotronika - Stardust (2021) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Ambient, Downtempo>
@@ -6,7 +64,7 @@ Geotronika - Stardust (2021) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Ambient, D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732705.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Geotronika - The Radiance Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732577.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Geotronika - Hypnosis Of Happiness (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732571.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Geotronika - In The Moonlight (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732559.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Lazy Hammock - Discography 23 Releases (2008-2022) [MP3|320 Kbps] <Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732530.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Spectra Of Trance Vol.2 (Mixed by Daniel Kandi) (2017) [FLAC|Lossless|WEB|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732163.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732144.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Key4050 (Bryan Kearney & John O'callaghan) - Tales From The Temple (2019) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732141.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732075.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Solarstone - .---- (2017) [FLAC|Lossless|WEB|tracks] <Progressive Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732074.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732065.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Nouvelle Vague - Rarities (2019) Anthology [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732046.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Cleopatra Records presents: Industrial Music For Fitness (2009) [MP3|320 Kb
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731948.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - A State Of Trance 2017 (Mixed by Armin Van Buuren) (2017) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731848.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731842.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Maduk - Never Give Up (2016) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731759.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - A State Of Trance 2017 (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731728.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ ATB - neXt (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Downtempo, 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731608.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ WellenVorm - Petrified Forest (2016) [MP3|320 Kbps] <Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731158.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Black Hole House Music 04-17 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731148.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Living Room’s Just Good Mood (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731143.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Ferry Corsten Presents Corstenas Countdown April (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731142.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ IooN-Cosmic Downtempo - Masters Of The Universe (2017) [MP3|320 Kbps] <Ambient, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731141.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Ultra Jogging Anthems 2019 Session [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731050.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Ultra Jogging Anthems 2019 Session [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCAC55EF3659D68A6AFE3D8DE4F4F8660CA7F3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283933   (731046) от 19.02.2019
-
-VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arkham Knights - First Light (World Premiere)
-02. Marcus Santoro - Give it All
-03. Above & Beyond - Distorted Truth
-04. Emme & Rodrigo Deem - Black Mamba(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA425E48326BC1544913739A7034D767408C60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127693   (731042) от 22.04.2017
-
-Sуntec - Тhе Веginning (2016) [FLAC|Lossless|image + .cue] <SynthPop, ElectroPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To The Beginning
-02. Catch My Fall (feat. Blind Passenger)
-03. Devil In Heaven
-04. I Don't Want To Lie Anymore(   Читать дальше...   )Жанр: SynthPop, ElectroPopПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED25FA6CA1AAE20A5EFA1C11C46C623EB51C499
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ History. Кругосветное путешествие Оззи и Джека 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274399.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274248.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Потоп / The Flood (2018) HDTV [H.264/1080i-LQ] (серии 1-2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274073.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274064.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273237.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Эд Стаффорд: Выживший / Ed Stafford: Left for Dead 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273149.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Голодное нападение / Striker (2007) HDTVRip [H.264/720p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272974.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: Голубая планета / The Blue Planet (2001) BDRemux [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272873.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272347.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271443.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG: Лики Власти / Icons of Power (2006) HDTV [H.264/1080i-LQ] (фил�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271433.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC. Энди Гамильтон в поисках Сатаны /Andy Hamilton's
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271432.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271425.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC. Сокровища Древнего Рима / The Treasures of Ancient Rom
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271379.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NGW: Династия дельфинов / Dolphin Dynasty (2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270890.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BBC Horizon. Следи за собой / Monitor Me (2013) HDTVRip [H.264/720p-
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270452.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG. Американская мафия изнутри / Inside the American Mob
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270404.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ National Geographic. Американская мафия изнутри / Inside
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270394.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BBC Horizon. Сделало ли приготовление пищи нас лю
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270211.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_270125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_270125.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG: Невероятное путешествие Хаббла / Hubble's Amazin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269992.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG: Марсоход Curiosity / Curiosity. Life of a Mars Rover (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269980.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery: Битва за Чернобыль / Battle of Chernobyl (2006) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269847.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC. Horizon: Чернобыль. Внутри саркофага / Inside Chern
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269782.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NG. Место жительства - Марс (Заселение Марса) /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269153.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ PBS Nature: Попугаи в стране Oз / Parrots in the Land of Oz (2008
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268750.jpg" />
 </div>
 
 

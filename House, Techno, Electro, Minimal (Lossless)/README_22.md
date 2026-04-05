@@ -1,3 +1,32 @@
+###  Публикация: 1205215   (783803) от 09.02.2018
+
+VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aaron Ross feat. Gia Mellish - Love Potion (4:03)
+02.Wez Clarke & Maxime Hardcastle feat. The Lovely Laura on Sax - Another Chance (Richard Earnshaw Mix) (5:03)
+03.Notus feat. Shena - Still in Love (Original Club Mix) (5:17)
+04.Steve Haines - Be with You (5:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8C0EC2C87C98256C45391977B3DD3BA21782E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204909   (783801) от 09.02.2018
 
 James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
@@ -6,7 +35,7 @@ James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783801.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783799.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783796.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783787.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Defected Presents Classics In The House (2009) [FLAC|Lossless|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783781.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Boris Brejcha - Chameleon (Live Stream Part 1) (2020) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783649.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Le Son Dancefloor (2009) [FLAC|Lossless|tracks] <House, Electro, Europop>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783551.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - House Goes 80's Vol. 3 (2009) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783543.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [FLAC|Lossless|image + 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783524.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Grum - Deep State Deluxe (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783402.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Tell - August EP (2014) House Running [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783253.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Clinique: The Best Of 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783222.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - A Taste Of Kandi Winter (2010) [FLAC|Lossless|tracks] <House, Disco, Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782983.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Hed Kandi (A Taste Of Kandi Summer 2009) (2009) [FLAC|Lossless|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782982.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Don Diablo - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782914.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Approaching Black - Dusk (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782688.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - CP OneHundred (2020) Counter Pulse [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782663.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ J. Albert - Measuring Things Up (2020) EXTRO jp [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782271.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782260.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Facechain - Accensor (2018) Dream Catalogue [FLAC|Lossless|WEB-DL|tracks] <Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782155.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Faithless - Forever Faithless: The Greatest Hits (2005) Limited Edition [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782101.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Fluida - Branches (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781742.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Boris Brejcha - Cocoloco (Live Stream Part 2) (2020) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781404.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Phon.O - Collection 16 Releases (2005-2020) 50Weapons, Shitkatapult, BPitch Cont
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781400.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781334.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206914   (781317) от 16.02.2018
-
-VA - Deep Progressive House Set | Mixed by Johnny M (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny M - Deep Progressive House Set (Dj Continuous Mix) (2:01:36)
-02. Nahuel Carrizo - Blind in the Mist (Original Mix) (8:44)
-03. Robert R. Hardy - Sensus (GMJ Rmx) (9:14)
-04. Robert R. Hardy - Chasing Pleasure (Silinder Rmx) (9:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98CA3BA4109400723AEED5866D75D37527ECCA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

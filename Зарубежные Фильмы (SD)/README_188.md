@@ -1,3 +1,29 @@
+###  Публикация: 1505934   (801332) от 29.10.2021
+
+Под гипнозом / Hypnotic (2021) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чувствуя себя в тупике как в личном, так и в профессиональном плане, Дженн обращается за помощью к гипнотерапевту, но вскоре оказывается в эпицентре смертельной игры.Производство: США / The Long GameЖанр: Триллер, драмаРежиссер: Мэтт Энджел, Suzanne CooteАктеры: Кейт Сигел, Джейсон О’Мара, Дьюли Хилл, Люси Гест, Джейм М. Каллика, Таня Диксон-Уоррен, Люк Родерик, Девин Далтон, Stephanie Cudmore, Джесси ФрайзерПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: РусскийСубтитры: Русские (Full), Английские (SDH)Продолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBB447D43269A73D58C1DA9BA197659F0030DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505775   (801329) от 29.10.2021
 
 Дюна / Dune: Part One (2021) WEB-DLRip [H.265]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801329.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801307.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801011.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801005.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801004.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800891.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800874.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800756.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800718.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800706.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800683.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800678.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800559.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800520.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800479.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800476.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800459.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800437.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800432.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800387.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800383.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800375.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800370.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800322.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800320.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A727DE30C2B1730BF69A65721C50ECE7501CA93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121449   (800309) от 02.04.2017
-
-Эксперимент / Das Experiment (2001) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800309.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе научного эксперимента 12 обыкновенных людей добровольно становятся на две недели «заключенными» тюрьмы, в то время как 8 таких же добровольцев становятся надзирателями. Задача первых — соблюдать правила тюремного режима; задача вторых — поддерживать порядок. Но человеческая природа берет свое, и эксперимент выходит из-под контроля: под бесстрастными взглядами (   Читать дальше...   )Производство: ГерманияЖанр: Триллер, драмаРежиссер: Оливер ХиршбигельАктеры: Мориц Бляйбтрой, Кристиан Беркель, Оливер Стоковски, Вотан Вилке Мёринг, Стефан Сцац, Полат Дал, Дэнни Рихтер, Ральф Меллер, Маркус Рудольф, Петер Физелер ...Перевод: Профессиональный многоголосыйСубтитры: Русский, английскийПродолжительность: 01:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2002AE0BB84169D5C8E1FE0D6CF65DD5BA8D10A
 ```
 
 https://mybot314.ru/tekegram_catalog/

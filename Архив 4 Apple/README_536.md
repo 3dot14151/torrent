@@ -6,7 +6,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233222.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Clipboard Manager 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233215.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PullTube 1.8.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233208.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Screenium 3 v3.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233206.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Task Office 8.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233188.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ GrandTotal 8.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233180.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Reader for Mac 4.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233124.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ CleanShot X 4.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233077.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ MediaInfo for Mac 23.06 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233047.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Hides 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233037.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Feeder 4 v.4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232950.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ CleanShot X 4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232943.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232941.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Speech 1.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232908.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ PDF Expert 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232802.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ SiteSucker 5.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232787.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Text Workflow 1.6.4  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232772.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MarsEdit 4 v.5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232743.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Feeder 4 v.4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232731.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Things 3 v.3.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232720.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ iShowU Instant (Advanced) 1.4.14 (beta version) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232699.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Grids for Instagram 8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232687.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Disk Xray 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232684.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ DMG Canvas 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232673.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232659.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ System Toolkit 5.10.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232647.jpg" />
 </div>
 
 

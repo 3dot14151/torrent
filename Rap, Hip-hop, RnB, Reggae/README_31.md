@@ -1,32 +1,3 @@
-###  Публикация: 1597746   (164988) от 16.12.2022
-
-Horus - Рагнарёк и точка (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Холоден [00:03:04]
-02 - Номад [00:04:03]
-03 - Адонай [00:03:42]
-04 - Красный урожай [00:02:59](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21189C6D26C43E2D648FE9E44EBB4D2B58CDC7C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597881   (164932) от 16.12.2022
 
 Руставели - МАГМА (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Hip-Hop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164932.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Alicia Keys - Keys (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B, Pop>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164207.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Jon Moskowitz presents: DJ Cappel & Smitty - Blue Eyes Meets Bed-Stuy (Notorious
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163127.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Eminem - Music To Be Murdered By: Side B (2020) Deluxe Edition, Explicit [FLAC|L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162890.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161921.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Eminem - Music To Be Murdered By - Side B (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161798.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161595.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161432.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Noize MC - Выход в город (2021) Deluxe Edition [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161418.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Dracondaz (Anacondaz) - Песни Фрайвура (2022) [FLAC|Lossless|WEB-DL
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159789.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158171.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Swizz Beatz - Poison (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Conscious, T
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157548.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Lindemann - Mathematik (2018) Single [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156980.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Pra(Killa'Gramm) - БЕЗОБРАЗИЕ (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155607.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153184.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ OBLADAET - PLAYERS CLUB 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151075.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Best of 2021: Sexy Songs [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150803.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Dizence - Немой (2022) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150799.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - 100 Greatest Rap (2020) Explicit [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149239.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Amerigo Gazaway - Nina Simone & Lauryn Hill - The Miseducation of Eunice Waymon 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146210.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143895.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ HammAli & Navai - JANAVI (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138939.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Bruno Mars - Unorthodox Jukebox (2012) Deluxe Edition [FLAC|Lossless]<Pop, R&B, 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135528.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ Apashe - Antagonist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Simphonic
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134852.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ Grebz - MC Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134226.jpg" />
 </div>
 
 
@@ -751,6 +722,41 @@ Grebz - MC Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11BF08D26F4B0BD3EA8EDCD049C8240ACA6C08A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594691   (133420) от 26.12.2012
+
+Rita Ora - Ora (2012) [FLAC (tracks+.cue)|Lossless]<R&B, Dance>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Facemelt
+02. Roc The Life
+03. How We Do (Party)
+04. R.I.P. (ft. Tinie Tempah)
+05. Radioactive
+06. Shine Ya Light
+07. Love & War (ft. J. Cole)
+08. Uneasy
+09. Fall in Love (ft. Will.I.Am)
+10. Been Lyin(   Читать дальше...   )Жанр: R&B, DanceПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

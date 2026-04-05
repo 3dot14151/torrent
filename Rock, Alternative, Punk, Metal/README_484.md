@@ -1,3 +1,158 @@
+###  Публикация: 526679   (597651) от 24.07.2012
+
+ReinXeed - Welcome To The Theater (2012) [FLAC|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome (Intro) (1:12)
+02. Life Will Find A Way (5:37)
+03. Follow Me (3:53)
+04. Save Us (5:56)
+05. Stranger Tides (5:31)
+06. Somewhere In Time (6:17)
+07. Freedom (8:14)
+08. No Fate (6:51)
+09. Temple Of The Crystal Skulls (4:36)
+10. Welcome To The Theater (3:46)Жанр: Symphonic Power MetalПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526766   (597650) от 24.07.2012
+
+V-EGO - Отречение (2012) [MP3|320 кб/с]<Dark Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597650.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Клеймо Тьмы (6:14)
+2.Один Итог (9:18)
+3.Цена Страданий (6:45)
+4.Изгой (6:37)
+5.Чужие Грехи (6:06)
+6.Я Не Могу Сказать Тебе Прощай (7:35)
+7.Главный вопрос (17:40)
+Альбом выдержан в атмосфере мрачной романтики, в которой лирические тексты искусно вплетены в музыкальное полотно, разворачивающееся в широком диапазоне стилей - от жесткого Dark Metal и Funeral Doom к готическим балладам.Жанр: Dark Doom MetalПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039105   (597632) от 31.07.2016
+
+Vixen - Rev It Up (1990) [WavPack|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rev It Up . . . . . . . .5:00
+ 02.Жанр: Hard'n'HeavyПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3C1011E6CFF88AFD02770E2D754EE2FF6026B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039260   (597624) от 31.07.2016
+
+Train - Does Led Zeppelin II (2016) [FLAC|Lossless|tracks] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole Lotta Love (5:31)
+02. What Is and What Should Never Be (4:51)
+03. The Lemon Song (6:24)
+04. Thank You (5:01)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 0:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6837C619F5B0C9D55AE5DB7EA89A7B781EF7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526440   (597438) от 24.07.2012
+
+Taal - Skymind (2003) [MP3|320 кб/с]<Art Rock/Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597438.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Skymind (9:53)
+2. Yellow Garden (7:38)
+3. Blind Child (6:10)
+4. The Purple Queen's Lips (9:48)
+5. The Egg Shapped Moon (9:07)
+6. Stratus (13:24)Жанр: Art Rock/Progressive RockПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B536A5AC750E4FEC7CD57FACB012C5E9AD32A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299528   (597413) от 02.05.2019
 
 Кукрыниксы - Раритеты (2019) Limited Edition [MP3|320 kbps] <Rock>
@@ -6,7 +161,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597413.jpg" />
 </div>
 
 
@@ -35,7 +190,7 @@ Crucified Barbara - The Midnight Chase (2012) [FLAC|Lossless]<Hard Rock, Heavy M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_597300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597300.jpg" />
 </div>
 
 
@@ -70,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597265.jpg" />
 </div>
 
 
@@ -99,7 +254,7 @@ Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition, Remastered, 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597160.jpg" />
 </div>
 
 
@@ -128,7 +283,7 @@ Heart - Greatest Hits (1985-1995) (2000) [MP3|320 кб/с]<Hard Rock / Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597074.jpg" />
 </div>
 
 
@@ -163,7 +318,7 @@ Decapitated - Anticult (2017) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596615.jpg" />
 </div>
 
 
@@ -192,7 +347,7 @@ Sir Mashalot - Welcome To Mashville (2015) [MP3|320 кб/с]<Alternative Country
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596587.jpg" />
 </div>
 
 
@@ -221,7 +376,7 @@ Paul Cowderoy - Wet Hessian Bag (2015) [MP3|320 кб/с]<Alternative Country Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596578.jpg" />
 </div>
 
 
@@ -250,7 +405,7 @@ Spoon Fight - Spoon Fight (2015) [MP3|320 кб/с]<Alternative, Groove Rock, Blu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596573.jpg" />
 </div>
 
 
@@ -279,7 +434,7 @@ The Fifty Dollar Band - One Hundred Years Of Grace (2015) [MP3|320 кб/с]<Alte
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596488.jpg" />
 </div>
 
 
@@ -308,7 +463,7 @@ Blackfoot Sue - 2 Albums (1973, 1974) Reissue CD, Repertoire Records, 1995 [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596354.jpg" />
 </div>
 
 
@@ -337,7 +492,7 @@ Green Hog Band - Crypt of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596279.jpg" />
 </div>
 
 
@@ -366,7 +521,7 @@ Tenebra - Moongazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596276.jpg" />
 </div>
 
 
@@ -395,7 +550,7 @@ Glaswald - Gamechanger (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596275.jpg" />
 </div>
 
 
@@ -424,7 +579,7 @@ Mors Principium Est - Liberate The Unborn Inhumanity (2022) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596273.jpg" />
 </div>
 
 
@@ -453,7 +608,7 @@ IZTUMANA - Zoomorph (2014) [APE|Lossless|image + .cue] <Space-Rock, Psychedelic 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596178.jpg" />
 </div>
 
 
@@ -482,7 +637,7 @@ Frank Carter & The Rattlesnakes - End of Suffering (2019) [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596176.jpg" />
 </div>
 
 
@@ -511,7 +666,7 @@ Bad Religion - Age of Unreason (2019) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596084.jpg" />
 </div>
 
 
@@ -540,7 +695,7 @@ Terry Reid - Bang, Bang You're Terry Reid (1968) 2000, Repertoire Records [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596065.jpg" />
 </div>
 
 
@@ -569,7 +724,7 @@ Greg Howe - Greg Howe (1988) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596056.jpg" />
 </div>
 
 
@@ -598,7 +753,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595753.jpg" />
 </div>
 
 
@@ -623,161 +778,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526726   (595648) от 25.07.2012
-
-Северные врата - 5 альбомов (2000-2008) [Mp3|320 kbps] <Slavonic Folk Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Года выпуска: 2000-2008Альбомлист:
-2000 - Отчизна
-2001 - На войну
-2003 - Правь
-2005 - Равновесие
-2008 - ВолотЖанр: Slavonic Folk Metal, Black MetalПродолжительность: 00:43:28
-
-01 | Волчья воля | 03:51
-02 | Знамение | 03:49
-03 | Выбор | 04:59
-04 | Пир | 03:54
-05 | Родные берега | 04:24
-06 | Укреп | 04:34
-07 | Притча | 03:35
-08 | Доблесть | 04:03(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1054B5759F9CF86E3D1BF5C2DAD8D106BF5FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039514   (595537) от 01.08.2016
-
-Deftones - Gore (2016) [FLAC|Lossless|image + .cue] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayers Triangles [03:37]
-02. Acid Hologram [04:05]
-03. Doomed User [04:26]
-04. Geometric Headdress [03:29](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D06499FE42A2BBE3BC5DF3D78908C495E9C669A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525800   (595462) от 25.07.2012
-
-George Harrison - The Best Of George Harrison (1976) /EMI C2 46682/ [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525759   (595447) от 25.07.2012
-
-George Harrison - Best Of Dark Horse 1976-1989 (1989) Japan 22P2-3071 [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595447.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1974 году, находясь в Лос-Анджелесе и готовясь к своему концертному туру, Джорж Харрисон открыл офис своей новой компании звукозаписи Dark Horse Records в здании, принадлежавшем лейблу A&M Records, на La Brea Avenue.
-На представляемом диске собраны лучшие песни, записанные на Dark Horse Records в разные годы.
-В сборнике включены композиции с дисков Харрисона: (   Читать дальше...   )1. Poor Little Girl (4:34)
-2. Blow Away (3:59)
-3. That's The Way It Goes (3:34)
-4. Cockamamie Business (5:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150223   (595218) от 14.07.2017
-
-Silverstein - Dead Reflection (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Looks
-02. Retrograde
-03. Lost Positives
-04. Ghost(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B5B69DF77974B9C9FCEF5D40E3D8C494649193
 ```
 
 https://mybot314.ru/tekegram_catalog/

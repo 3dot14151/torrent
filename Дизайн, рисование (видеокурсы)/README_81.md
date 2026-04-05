@@ -1,3 +1,57 @@
+###  Публикация: 1597464   (166206) от 14.12.2022
+
+Liveclasses, Никита Чесноков | Blender: быстрый старт (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blender – самая быстро развивающаяся и очень популярная программа для создания 3D графики и анимации. Она совершенно бесплатная и простая в освоении. С её помощью можно создавать 3D графику широкого спектра: 3D модели для игр, видео-эффекты для кино, анимацию для моушн-дизайна, персонажную анимацию для мультипликации и многое другое.
+
+Хотите заняться моделированием (   Читать дальше...   )Производство: LiveclassesЖанр: Создание видео, 3DЯзык озвучки: РусскийПродолжительность: 02:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56266623F72B0655B56ABE5B60698764C129CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597466   (166203) от 14.12.2022
+
+Liveclasses, Никита Чесноков | Blender: расширенные возможности (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот класс – продолжение знакомства с популярной программой для создания 3D графики, которая располагает возможностями для моделирования, скульптинга, анимации, симуляции, рендеринга, постобработки и монтажа видео со звуком, а также компоновки с помощью «узлов» и создания 2D-анимаций. Предыдущий класс уже познакомил вас с интерфейсом, рабочим пространством, а также (   Читать дальше...   )Производство: LiveclassesЖанр: Создание видео, 3DЯзык озвучки: РусскийПродолжительность: 02:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB66D4A04647BC1DA209AECACC41AEAECF925AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516374   (165891) от 11.12.2021
 
 Digital Tutors, Ron Friedman | Animating a Dialogue Scene in Maya (2013) PCRec
@@ -6,7 +60,7 @@ Digital Tutors, Ron Friedman | Animating a Dialogue Scene in Maya (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165891.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ RTFX Animation, Ринат Тимеркаев | Основы 2D FX анимац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165679.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Motion Design School, Данила Михайлов | Рисование спе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165647.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Lighting Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165479.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Domestika, Mattey | Cinema 4D Создавайте яркие 3D иллюстр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165447.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Udemy, Nexttut, Victor Yamakado | Zbrush Character Likeness Sculpting Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165404.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ The Gnomon Workshop, Maarten Verhoeven | The Making of Red Myst (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164729.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ sabatovsky.com, Азамат Сайфуллаев | Онлайн-курс по �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164688.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Mold3D Academy, Dylan Ekren | Creating Appealing Characters in 3D (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164643.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Over
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164617.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164590.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ The Gnomon Workshop, Ted Mebratu | Cinematic Lighting in Unreal Engine 5 (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164526.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ FlippedNormals, Henning Sanden | Character Face Texturing in Substance Painter (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164514.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ Udemy.com | Photoshop CC 2018 for Absolute Beginners (2018) PCRec [H.264/720p-LQ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164128.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ Cubebrush, Marc Brunet | Complete Guide to a Concept Art Career (2017) WEB-DLRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164064.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ Gumroad, Eugene Petrov | Handgun for Video games Tutorial (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164041.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ Motionguru, Jafar Fazel | Motion Design Course (Motion Hero) (2021) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163965.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ Levelup.Digital, Rosa Lee | Sculpting & Texturing Harley Quinn (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163747.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ CG Cookie, Jonathan Lampel | ASSEMBLE: Introduction to Procedural Modeling with 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163732.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ Domestika, Luis Alberto Gayoso Berrosp | Digital Sculpture of Fantastic Creature
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163637.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Guide to Unreal Engine 5 (2022) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163586.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ Skillbox, Дарья Макарова и др. | Скетчинг на план�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163376.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ Gumroad, Tim Bergholz | Blade Tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163305.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ Gumroad, Tim Bergholz | Blade Tutorial Extended Edition (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163272.jpg" />
 </div>
 
 
@@ -637,60 +691,6 @@ Gumroad, Tim Bergholz | Blade Tutorial Extended Edition (2016) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC427BBDA074D21F76D5061C31A69F7FEF7EA86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517258   (163243) от 14.12.2021
-
-Cubebrush, Marc Brunet | Drawing and Coloring Techniques (2014) WEB-DLRip [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163243.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном уроке Марк Брюне рассказывает о техниках рисования и раскраски чистого контура будущего изображения.Производство: CubebrushЖанр: Рисование, 2D, CG, Concept ArtЯзык озвучки: Русский, АнглийскийПродолжительность: 02:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9016B0EF7920271CBCBC426A0386C5B785D4368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673981   (163161) от 03.11.2023
-
-Kalachevaschool, Ирина Артамонова | Цветущая пастель. Тариф Стандарт (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163161.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Цветущая пастель» — вдохновляющий курс Ирины Артамоновой для всех, кто хочетсоздавать настоящие цветочные портреты, а не просто рисовать цветы!
-Как нарисовать нежный трепет лепестков, упругую плотность бутонов, восковой блеск листьев? Эти и многие другие вопросы вы разберёте в рамках курса.
-Цветы на курсе очень разные: с крупными бутонами, мелкими лепестками, кустовые (   Читать дальше...   )Производство: KalachevaschoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 14:40:13Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679705FB8AD601667A6B5D77878CCE7D4EA61108
 ```
 
 https://mybot314.ru/tekegram_catalog/

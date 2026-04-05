@@ -1,3 +1,32 @@
+###  Публикация: 1404738   (491018) от 26.08.2020
+
+Beyond Code | Настольные приложения с Electron / Desktop apps with Electron (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как создавать, публиковать и распространять настольные приложения с помощью HTML, JavaScript и CSS.
+Создавайте настольные приложения с помощью веб-технологий.
+Этот курс научит вас использовать имеющиеся у вас знания об инструментах, таких как VueJS, React, TailwindCSS и NodeJS, для создания кроссплатформенных настольных приложений.
+Даже если вы новичок, (   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53A8308454D74F31EE6DC2DDF6C03D28A4AA13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404608   (490924) от 26.08.2020
 
 Дмитрий Казимиров | Техника рисунка цветными карандашами (2020) HDTVRip
@@ -6,7 +35,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490924.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490920.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490822.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490803.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489073.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488974.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488860.jpg" />
 </div>
 
 
@@ -196,7 +225,7 @@ itgid | Практический JavaScript (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488425.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488188.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488063.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488055.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487897.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487854.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487450.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487336.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487318.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487316.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487314.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487313.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ CBT Nuggets | Видеокурс для подготовки к экзамену
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487080.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Udemy | SQL инъекции и тестирование баз данных д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486336.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Udemy | Создание сайтов без программирования н
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486331.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Udemy | PHP v.7+ и MySQL с нуля (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486324.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486013.jpg" />
 </div>
 
 
@@ -662,7 +691,7 @@ Anja Garcia | Inferno Heart Rate (2016) HDTVRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485673.jpg" />
 </div>
 
 
@@ -673,32 +702,6 @@ Inferno Heart Rate — это новый ультра-интенсивный к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF616BCBAFE9CF86DC84B40EDBF15D56069D833A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054919   (485358) от 23.09.2016
-
-Зузка Лайт | ZCUT Kettlebell Start with Zuzka Light (2015) DVDRip [H.264] [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гиря является одним из самых динамичных, универсальных и полезных единиц оборудования на спортивном рынке.  Zuzka Light, знакомит вас с основными моментами гиревого спорта и ведет вас через 12 коротких, умеренной интенсивности тренировок, которые дадут вам  результаты в два раза быстрее чем  в тренажерном зале. Эти гиревые тренировки всего тела сочетают в себе все преимущества (   Читать дальше...   )Производство: СШАЖанр: Фитнес, гиревой спортПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 04:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834B0B789BB903C79797E6E2CD33B734B07726BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

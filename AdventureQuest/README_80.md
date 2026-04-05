@@ -1,3 +1,81 @@
+###  Публикация: 1733122   (51728) от 28.06.2024
+
+Fork Road (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fork Road бросает вас с головой в тускло освещенный лабиринт, в ловушку и отчаянные поиски выхода. Забудьте об огромных открытых мирах - эта головоломка от первого лица от Саймона Ау Йенга ограничивает вас одной, пугающей локацией. Концепция освежающе проста: используйте свои глаза, решайте головоломки и будьте готовы к неожиданностям. Каждый уровень бросает новый (   Читать дальше...   )Тип издания: RepackРазработчик: Simon Au YeungЖанр: Приключенческие игры, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE8726FDAB68E9C3B2C7010228B409EC024C9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733327   (51694) от 28.06.2024
+
+COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра от Йеппе Карлсена, ведущего гейм-дизайнера LIMBO и INSIDE. Это путешествие по мирам внутри других миров. Овладейте механикой прыжков по мирам и разгадайте космическую тайну. Уникальный взгляд на головоломки и приключения. Здесь каждый мир – это сфера, которую можно буквально таскать на спине. Постигайте механику прыжков между мирами: манипулируйте ими, (   Читать дальше...   )Тип издания: SceneРазработчик: Geometric InteractiveЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA3221EAF4FF78D5E92C518383DF585C52336B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733464   (51676) от 29.06.2024
+
+Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте первый шаг в полный загадок и секретов мир Ривена и погрузитесь в историю интриг, предательств и других бед цивилизации, балансирующей на грани катастрофы. Удостоенная множества наград игра 1997 года была воссоздана с нуля и дополнена с помощью Unreal Engine 5. Выпущенная легендарной инди-студией Cyan Worlds в 1997 году игра Riven моментально стала хитом (   Читать дальше...   )Тип издания: RepackРазработчик: Cyan Worlds IncЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0100D26290ED67F1AB7D97B6944FE2CB099D4A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651120   (51577) от 30.06.2024
 
 Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
@@ -6,7 +84,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51577.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51542.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51526.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51517.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ GASPING.2 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51342.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51327.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ STUFFED (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51212.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51139.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Mountains of Madness (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51112.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51110.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ CRUELTY (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51106.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Psychopath Massacre (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51002.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Nancy Drew: Mystery of the Seven Keys (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50925.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ TOEM: A Photo Adventure (2021) [Ru/Multi] (3.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50863.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.31.23/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50847.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.4.8) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50730.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ REVEIL (2024) [Ru/Multi] (1.1.1/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50690.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Eyes of Destiny (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50596.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Myst (2021) [Ru/Multi] (1.8.7) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50583.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50518.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Murders on the Yangtze River (2024) [Multi] (1.4.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50452.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Whispering Lane: Horror (2024) [Ru/Multi] (1.0) Repack FitGirl [Collector's Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50401.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.11.4448/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50296.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Empyrion - Galactic Survival – это приключение с выживан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4373C13E5A27774046B30BFC7D748CBC48747579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736672   (50166) от 13.07.2024
-
-Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это игра-головоломка с легкой атмосферой, размещена в маноре вампира, вдохновленная опытом игры в "Castlevania series" и объединенная с пониманием и размышлением о культуре вампиров. Всё начинается с того, что вы лишились памяти и теперь отчаянно пытаетесь отыскать выход из замка. Сила страшной магии заключила замок в страшный бесконечный цикл. Максимально (   Читать дальше...   )Тип издания: SceneРазработчик: RobotЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FF2B3390D02F8E5A4304DC666339B8BC3C30AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736986   (50088) от 14.07.2024
-
-HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heirs – на самом деле наследство может быть разным, и не всегда оно может оказаться приятным, не так ли? Так откройте же для себя двери удивительного мира, в котором оживает прошлое и с каждым новым шагом вас ждет нечто совершенно новое. Чего же вы ждете? Как насчет сочетания оригинально сюжета, атмосферы и конечно же силы земли?Тип издания: RepackРазработчик: TEStudioЖанр: Приключенческие игры, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F307349D4FF4512424FAB04994AA236160A4E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736982   (50027) от 14.07.2024
-
-HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heirs – на самом деле наследство может быть разным, и не всегда оно может оказаться приятным, не так ли? Так откройте же для себя двери удивительного мира, в котором оживает прошлое и с каждым новым шагом вас ждет нечто совершенно новое. Чего же вы ждете? Как насчет сочетания оригинально сюжета, атмосферы и конечно же силы земли?Тип издания: SceneРазработчик: TEStudioЖанр: Приключенческие игры, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3CB9B3DBFC7DD4CDB08BEF7EA02A97B9E6CAF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

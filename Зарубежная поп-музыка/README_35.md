@@ -6,7 +6,7 @@ Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629993.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Let's Dance - Das Tanzalbum (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629976.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Hornettes - 2 Albums (1982, 1994) [MP3|320 Kbps] <Electronic, Europop, Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629968.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - NRJ Urban Hits 2019 (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629911.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Magic 90s (2018) 4CD [MP3|320 Kbps] <Pop, Rock, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629887.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - NRJ Summer Hits Only (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629849.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628376.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Ballermann XXL (Die besten Mallorca Party Schlager Hits zum Opening 2019 im
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628373.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Captain & Tennille - Love Will Keep Us Together (1975) CD, Album, Remastered, 20
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628368.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Monarchy - 3 Albums + 2 EP + 5 CDM + Singles (2010-2015) [MP3|162-320 кб/с]<E
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628344.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Andy Bell (Erasure) - 7 Albums (2005-2016) [MP3|320 Kbps] <Electronic, Pop, Synt
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628312.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Ballermann Sommerparty (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628217.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Heat Summer Anthems (2015) 3CD [MP3|320 кб/с]<Dance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628055.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Leslie Phillips - The Turning (серия "Другие восьмидесяты
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627886.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Eh440 - 2 Albums + 2 Single (2014-2016) [MP3|320 Kbps] <Vocal Pop, A Capella, So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626563.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Captain & Tennille - Song Of Joy (1976) CD, Album, Remastered, 2005, Universal M
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626110.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Captain & Tennille - Come In From The Rain (1977) CD, Album, Remastered, 2005, U
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624116.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Andee - Black And White Heart (2015) Deluxe Version [MP3|320 кб/с]<Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624080.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Lykke Li - So Sad So Sexy (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622705.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Leif Garrett - 3 Studio Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Pop Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622626.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - The Ultimate Collection. 70s Schooldays. 100 Super Hits Of The 70s (2013) 5
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621441.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Veorra - Official Discography (2015-2016) 4EP [MP3|320 Kbps] <EDM, Bass, Trap>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621410.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Bruce & Bongo - 1 Albums, 3 Singles & EPs (1986-1992) [MP3|320 Kbps] <Electronic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619094.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618850.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Marina Kaye - Fearless (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618310.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Ben Liebrand - Iconic Groove (2015) 2CD [MP3|320 кб/с]<70's Retropop, Synth P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618150.jpg" />
 </div>
 
 

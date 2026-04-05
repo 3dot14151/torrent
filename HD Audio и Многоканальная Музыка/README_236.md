@@ -1,32 +1,3 @@
-###  Публикация: 1765085   (34612) от 10.12.2024
-
-Babbba - Two to Tango (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, International Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispering dreams (3:06)
-02. Stepping lightly (3:02)
-03. Spin around (2:47)
-04. Wrap around (1:58)(   Читать дальше...   )Жанр: Smooth Jazz, International PopПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA403E5A1B10D6F5CBC0C7711D33330900B287AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764852   (34611) от 10.12.2024
 
 Vanessa Paradis - Live (1994) Remaster - 30th Anniversary Deluxe Edition, 2024, Universal Music Division Barclay [FLAC 24/48|Lossless|WEB-DL|tracks] <Acoustic, Chanson, Pop-Rock, French-Music>
@@ -35,7 +6,7 @@ Vanessa Paradis - Live (1994) Remaster - 30th Anniversary Deluxe Edition, 2024, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34611.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Babbba - Smooth as silk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34610.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Nancy Sinatra - Sugar (1967) Remastered, 2024, Boots Enterprises, Inc. [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34607.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Babbba - Skat Academy III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Inte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34590.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Babbba - Skat Academy III (part 2 by Babbba) (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34587.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Babbba - Midnight walk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34586.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ DelaDap - King of the Swing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34504.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Babbba - Virtual Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34503.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ relaXX - Вечная Музыка Любви И Секса. Afternoon (qeHb) (2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34488.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Love Music Zone, Marco Rinaldo, Sensual Lounge Music Universe, Sexual Piano Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34406.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ The James Oliver Band - Frantic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34399.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Tony D - Electric Delta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34396.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ The Black Sorrows - The Way We Do Business (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34394.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Toral Shah - Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34393.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Laibach - 1 Albums, 5 Singles (2023-2024) [FLAC 16, 24/44.1, 48, 96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34121.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Myst
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34061.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Wehmut - Flüstern der Freiheit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33979.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Nico Wayne Toussaint - With Love From Clarksdale (2024) [FLAC 24/88.2|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33975.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Kai Strauss - Wailin' In Vienna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33974.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Dark Lightning - Studio Albums (2 releases) (2023-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33973.jpg" />
 </div>
 
 
@@ -610,7 +581,7 @@ VA - Alfredo Golino & Collettivo 112 (Classe Pop Rock) (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33972.jpg" />
 </div>
 
 
@@ -639,7 +610,7 @@ The Smoothies - Let's Make Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33969.jpg" />
 </div>
 
 
@@ -668,7 +639,7 @@ Canblaster - Liberosis (Director'S Cut) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33758.jpg" />
 </div>
 
 
@@ -697,7 +668,7 @@ Therion - Studio Albums (21 releases) (1991-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33693.jpg" />
 </div>
 
 
@@ -726,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33667.jpg" />
 </div>
 
 
@@ -740,6 +711,35 @@ A3 Звезды На Небе(   Читать дальше...   )Жанр: Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A0DC527851F49B7ED651B9EDFD06869C124DEC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766996   (33452) от 21.12.2024
+
+Katy Perry - 1432 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33452.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Katy Perry - WOMAN’S WORLD (2:43)
+• 02. Katy Perry, 21 Savage - GIMME GIMME (2:58)
+• 03. Katy Perry, Kim Petras - GORGEOUS (3:17)
+• 04. Katy Perry, Doechii - I'M HIS, HE'S MINE (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59513F493F280A67AE83713DE35C95DC92B59441
 ```
 
 https://mybot314.ru/tekegram_catalog/

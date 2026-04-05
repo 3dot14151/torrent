@@ -1,3 +1,55 @@
+###  Публикация: 1362841   (782589) от 16.06.2020
+
+Кипо и Эра Чудесных Зверей / Kipo and the Age of Wonderbeasts (2020) WEB-DL  [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка по имени Кипо прожила всю жизнь в подземном убежище, но однажды она выбирается на поверхность и вместе с группой выживших отправляется в путешествие по постапокалиптической Земле.Производство: США, DreamWorks Animation TelevisionЖанр: Фэнтези, ПриключенияРежиссер: Чейз КонлиПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские (MWT),  английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B74FB0A617F923D4F6A2182FF895E83AA6F4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362839   (782195) от 17.06.2020
+
+Кипо и Эра Чудесных Зверей / Kipo and the Age of Wonderbeasts (2020) WEBRip (сезон 1, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка по имени Кипо прожила всю жизнь в подземном убежище, но однажды она выбирается на поверхность и вместе с группой выживших отправляется в путешествие по постапокалиптической Земле.Производство: США, DreamWorks Animation TelevisionЖанр: Фэнтези, ПриключенияРежиссер: Чейз КонлиПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7DC2083AC0BFC410BE67CF9205BC6BC77DF049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391117   (781774) от 18.06.2020
 
 Скрестив мечи / Crossing Swords (2020) WEB-DL [H.264/1080p-LQ] (1 сезон, серии 1-10 из 10)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781774.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781764.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781206.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780502.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779438.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779323.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776679.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775666.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774883.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774879.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774857.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773721.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773486.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772906.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772822.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772299.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771786.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771621.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771302.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771194.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769130.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768882.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767378.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764769.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CB2DA06AD42C01E10E380A992ACBBA773097CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394017   (764631) от 04.07.2020
-
-Школа Вэйсайд / Wayside (2007) WEB-DL [H.264/1080p-LQ] (сезоны 1-2, серии 1-26, 29-38, 41-52 из 52) Арт-Дубляж
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764631.jpg" />
-</div>
-
-
-###  Подробнее
-
-В школе Вэйсайд появился новый ученик по имени Тодд. Ему предстояло многое узнать об этой школе: Например, что там 30 этажей и что любой ученик может стать директором. В этой школе, можно поставить оценку учителю и за это ничего не будет. А ещё в классе можно поплавать с рыбками.Производство: Канада / Nelvana LimitedЖанр: мультфильм, комедияРежиссер: Риккардо ДюрантеАктеры: Марк Рендалл, Кедар Браун, Дениз Оливер, Лиза ЭнДжи, Мартин Виллафана, Джейн Иствуд, Дуэйн Хилл, Кэтлин Лэски, Джули Лемье, Терри МакгурринПеревод: Дублированный (Арт-Дубляж)Субтитры: русские (forced), английские (full, SDH)Продолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1753C85843ED6B072763561935578E9A23A3A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393981   (764581) от 04.07.2020
-
-Гриффины / Family Guy (2017) WEB-DL [H.264/1080p-LQ] (сезон 16, серии 1-20 из 20) 2x2
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764581.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФарлейном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящая и терпеливая жена Лоис, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: мультфильм, комедияРежиссер: Сет МакФарлейнАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Джон Винер, Дэнни Смит, Патрик Варбертон, Ральф Гармен, Алек СалкинПеревод: Многоголосый профессиональный (2x2)Субтитры: русские (forced) английские (SDH)Продолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B74D1FC0B181237CEB557635B82CC3F3FE23B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

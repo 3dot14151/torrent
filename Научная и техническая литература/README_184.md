@@ -1,134 +1,3 @@
-###  Публикация: 1126393   (766233) от 17.04.2017
-
-Том Нилон | Битвы за еду и войны культур: Тайные двигатели истории (2017) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еда – центральный аспект нашей жизни, но в учебниках истории об этом не пишут. Многое из того, что происходило на кухне, никогда не записывалось, а свидетельства съедены и забыты. Между тем, история всегда была неразрывно связана с пищей: разгорались гвоздичные войны и кондитерские конфликты, в погоне за специями открывались новые континенты, империи рождались и (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Прочая образовательная литература, ГастрономияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B984A0E81AFFD0AC3F61AC4E45F36089BDE67A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125524   (766154) от 17.04.2017
-
-А.Г. Цыпкин, Г.Г. Цыпкин | Математические формулы (1985) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены основные формулы алгебры, геометрии (включая дифференциальную геометрию и векторное исчисление), тригонометрии. Широко представлены формулы и основные понятия и теоремы математического анализа. Приведены таблицы основных интегралов.
-Для широкого круга специалистов и учащейся молодежи.Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8971E7A5DACB07CC6B9F634E595CE455F3FD5B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279399   (765960) от 29.01.2019
-
-Джек Хартнелл | Голое Средневековье. Жизнь, смерть и искусство в Средние века (2018) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Понятие телесности в Средние века — предмет удивительный и во многом для нас необычный. Что люди думали о жизни и смерти своей оболочки — и как они ее изображали? Ответ на этот нетривиальный вопрос ждет вас на страницах этой глубокой и увлекательной книги, богато и ярко иллюстрированной. Как средневековый человек представлял, что у него внутри? Какое тело казалось (   Читать дальше...   )Жанр: История, КультурологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A3F575461B8445A8AC233B193D064308C75055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521281   (765904) от 01.01.2022
-
-Книжная серия | «Подарочные издания. Оружие» [12 книг] (2014-2019) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люксовые подарочные издания для ценителей разных видов оружия: начиная от древних кинжалов и сабель и заканчивая самыми современными видами винтовок и танков. На каждой странице вы найдете качественные фотографии оружия, подробную информацию о нем и историю происхождения.Жанр: Военная история, Военное дело / спецслужбы, ЭнциклопедииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE4DFC73B24EBFC9A7F96ECD37692E8590B0E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214063   (765806) от 20.03.2018
-
-Б. Кузнецов, М. Тайц | Об «организованном капитализме» (1930) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теория организованного капитализма в настоящее время стоит в центре внимания нашей партии и всего Коммунистического Интернационала. „Теория“ эта, являясь идейным фундаментом предательской тактики современной социал-демократии, фактически начинает разделяться, правда в замаскированной, смягченной форме, правооппортунистической оппозицией внутри коммунистических партий. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0413C6489A54BB9E3DE39873FE9360E2DAB2A350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213979   (765805) от 20.03.2018
 
 О. Бауэр и др. | Основные проблемы политической экономии (1922) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765805.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765803.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765777.jpg" />
 </div>
 
 
@@ -218,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765773.jpg" />
 </div>
 
 
@@ -246,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765771.jpg" />
 </div>
 
 
@@ -274,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765759.jpg" />
 </div>
 
 
@@ -302,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765757.jpg" />
 </div>
 
 
@@ -328,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765745.jpg" />
 </div>
 
 
@@ -354,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765723.jpg" />
 </div>
 
 
@@ -380,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765712.jpg" />
 </div>
 
 
@@ -406,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765704.jpg" />
 </div>
 
 
@@ -434,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765635.jpg" />
 </div>
 
 
@@ -461,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765431.jpg" />
 </div>
 
 
@@ -487,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765413.jpg" />
 </div>
 
 
@@ -514,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765392.jpg" />
 </div>
 
 
@@ -542,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765373.jpg" />
 </div>
 
 
@@ -568,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765288.jpg" />
 </div>
 
 
@@ -594,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765242.jpg" />
 </div>
 
 
@@ -620,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765240.jpg" />
 </div>
 
 
@@ -646,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765160.jpg" />
 </div>
 
 
@@ -672,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765075.jpg" />
 </div>
 
 
@@ -685,6 +554,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBC20217234B2783C0A1184BE6C75277CB043B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211943   (765019) от 30.01.2019
+
+Г.Б. Белоцерковский | Основы радиотехники и антенны [Две части] (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник для техникумов "Основы радиотехники и антенны" разделен на две части, которые издаются отдельными книгами.
+В первой части "Основы радиотехники" рассматриваются общие принципы радиотехники, колебательные контуры и фильтры, основы теории длинных линий, электромагнитные волны, радиопомехи и общие вопросы радиоприема в условиях помех.
+
+Вторая (   Читать дальше...   )Жанр: Научная литература, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A654A21D42A536399B7FFC60BFF1CD185FF3E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521455   (765006) от 02.01.2022
+
+В.А. Державина | Английский язык. Все неправильные глаголы (2021) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765006.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом пособии представлены все неправильные глаголы английского языка. Для удобства запоминания они разделены на четыре группы по принципу образования форм Past Simple и Past Participle. С помощью данной классификации запомнить все три формы неправильных глаголов гораздо легче. Справочник будет полезен для школьников, студентов, преподавателей и всех тех, кто учит (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F17BF694DF65466E068C030A8272CA09651D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214148   (764979) от 21.03.2018
+
+Крестьянская партия Программа и устав (1906) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра, содержащая в себе программу и устав одной из политических партий существоваших во время первой русской революции.Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473DB6B0C121FDCC6B77980AB102A03B25D296CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214150   (764976) от 21.03.2018
+
+Литература партии "Народной воли" (1907) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764976.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны публикации журнала "Народная Воля", листки и некоторые прокламации партии. В этих материалах читатель найдет подлинное, документальное отражение тогдашней действительности и происходившей на её почве борьбы. Он сможет познакомиться с принципами этой борьбы и с её практической постановкой.Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6AF35074E2DC5939ECE9C688FB930B8C7F77500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214152   (764974) от 21.03.2018
+
+Т.В. Локоть | Политические партии и группы в Государственной думе. Характер и причины политического бессилия Первой думы. Возможный характер и задачи Второй думы (1907) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический очерк о Первой Российской Государственной Думе.
+
+Тимофей Васильевич Локоть (19 (31) января 1869 года, Борзна — 25 июля 1942 года, Земун, Югославия) — русский учёный-агроном, политик и публицист.
+Избирался гласным Черниговского уездного и губернского земских собраний. Занимался публицистикой, выступал за муниципализацию земли. Входил в Союз освобождения, (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0278744232C7ECF32A880FC75F3091149F398908
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1111239   (848781) от 05.03.2017
+
+VA - Exotic Wellness Lounge and Chill Out Vol.3: Relaxing Selection of Erotic Lounge Grooves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inventors Of The Sun - Agua Of Life
+02. 351 Lake Shore Drive - All Around Me
+03. Velvet Dreamer - The Fall
+04. Fous De La Mer - Good Bye Lawrence(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D715C41179C57FE1E6DD5A4518D92C5A75F13319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111346   (848765) от 05.03.2017
+
+VA - Getting Ready For Some Nightclub Action: Club & Dance Music Collection (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Goldberg – Simon [03:45]
+02. Manast – Namm [03:07]
+03. Laura Nes – Dave [04:26]
+04. Leed – Point Blank [04:26](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0DCD2616007F173DC2A7DC19F1F98EFB365B8B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002272   (848695) от 31.03.2016
 
 Ab Ovo - Discography 6 Releases (2001-2009) Ant-Zen, Fluttering Dragon [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Glitch, Experimental, Industrial>
@@ -6,7 +64,7 @@ Ab Ovo - Discography 6 Releases (2001-2009) Ant-Zen, Fluttering Dragon [FLAC|Los
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848695.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Statement Of Purpose (2007/2014) Xynthetic Netlabel [FLAC|Lossless|WEB-DL|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848496.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Workout & Fitness House (2020) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848420.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Penta - Swirlscape (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848413.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The Ultimate Gym And Fitness Beats (2020) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848342.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Zymosis - Timeless (2020) Sentimony Records [FLAC|Lossless|WEB-DL|tracks] <Psybi
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848340.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 2 (2020) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848168.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Boris Brejcha - Thunderstorm (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848158.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ IC3PEAK - До Свидания (2020) [MP3|320 Kbps] <Electronic, Experimental>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847958.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Goa Vol.2 (Compiled by DJ Bim) (2016) [MP3|320 кб/с] <Trance, Psy Trance
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847108.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Lounge Deluxe, Vol 3 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847102.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Lemongrass - Temptations (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846691.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846521.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - All Killers, No Fillers LP Volume 7 (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846456.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Little Big - With Russia From Love (2014) [MP3|320 кб/с] <Rave>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846433.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Jerro - Coming Home (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846313.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Russian Village Boys - Kiss My Peace (2020) [MP3|320 Kbps] <Hardstyle, Hardcore,
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846273.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - The Remixes, Vol.27 (2021) [MP3|320 Kbps] < House, Progressive House, Minim
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846184.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Ulrich Schnauss (The Extremist, Ethereal 77, View To The Future) - Discography 4
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846143.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Ioann Darkovski - Ivory Tower (2016) [MP3|320 Kbps|image + .cue|tracks + .cue] <
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846043.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VACANT (VΛCΛNT) - Discography 30 Releases (2012-2020) [FLAC|Lossless|WEB-DL]<F
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845790.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Sunshine Live Vol.56 (2016) [MP3|257-279 кб/с] <House, Progressive, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845398.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Sunshine Live Vol.57 (2016) [MP3|320 кб/с] <House, Progressive, Electro 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845395.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Config.Sys & Ahnst Anders - ...Boiling The Ocean (2008) [FLAC|Lossless|tracks + 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845392.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Config.Sys & Ahnst Anders - ...Boiling The Ocean (2008) [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3B4D7BE1A80F9F35E7E441F9F92E38CC262DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002873   (845391) от 02.04.2016
-
-VA - Moodmusic WMC Survival Kit (2016) [MP3|320 кб/с] <Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henrik Schwarz – Forbidden (Club Mix)
-02. Affect! – Inventio
-03. Freestyle Man & George Spruce – Gotta Need (Matthias Tanzmann Remix)
-04. Maurice Aymard – Stripped(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 02:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A5777079CE434C98597F41701539C977C67069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003110   (845297) от 02.04.2016
-
-Ed Ed - Eclectic 01 (2016) [MP3|320 кб/с] <Tech House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Galemore - Johanna Is Leaving
-02. Curses - Time Is On My Side
-03. Giorgia Angiuli - Get Slow
-04. Kiki & Ed Ed - Day Of Drones(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01350B197632BE0139B605451538AE8A7E7687A
 ```
 
 https://mybot314.ru/tekegram_catalog/

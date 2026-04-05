@@ -1,189 +1,3 @@
-###  Публикация: 1164447   (441694) от 09.09.2017
-
-Explorer (by Tony Carey) - Explorer (1982) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enjaw J (3:45)
-02. Transit To Nowhere (3:52)
-03. No. 8 (3:26)
-04. Megawar (4:15)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, ElectroПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E208334E13681119CE631B8AFF02A2533AB5DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164500   (441687) от 09.09.2017
-
-Lady Lily - Get Out Of My Life (1987) [MP3|320 Kbps] <Disco,Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Get Out Of My Life
-02.Blade Runner
-03.I'm A Loser
-04.Cash Machine(   Читать дальше...   )Жанр: Disco,Euro-DiscoПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF58AD8ABEF8B8046E8D0C43B78AC437BF313CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062397   (441591) от 13.10.2016
-
-Cerrone - Afro (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2nd Chance (feat. Tony Allen) (3:37)
-02. Funk Makossa (feat. Manu Dibango) (3:19)
-03. Bodytalk (3:44)
-04. Funk Makossa (Todd Edwards Remix) (feat. Manu Dibango) (6:16)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9650FAEA95F9D41E01C5D61BDAB9309BA04C04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553429   (441089) от 29.09.2012
-
-VA - I Love Disco! (2012) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Circle - Every Move Every Touch
-02. Nightflyer - Voyage Voyage (Desireless)
-03. Shot - Disco Beat
-04. Vaya Con Dios Feat. Jakie Moore - Nah Neh Nah
-05. Dschinghiz Khan - Moskau
-06. Antibazz Vs Dee Melange - Wonderful Life (Deep Melange Club Mix)
-07. 4 Clubbers - Someday
-08. Snap! - Oops Up (New Version)
-09. Joy - Felicidad
-10. Sandra - Around My Heat (Dj Sveshnikov Remix)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 05:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA433A2BD130BF016D03B72E68026F9EA176B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553452   (440948) от 29.09.2012
-
-VA - 80 Greatest Songs of All Times (2012) [MP3|320 кб/с]<Rock N Roll, Rock. Reggae, Pop & Others>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Michael Jackson - Billie Jean
- 02 - Blondie - Heart Of Glass
- 03 - Elvis Presley - Can't Help Falling In Love
- 04 - Ben E. King - Stand By Me
- 05 - Chic - Good Times
- 06 - Chuck Berry - Johnny B. Goode
- 07 - B.B. King - The Thrill Is Gone
- 08 - Donna Summer - Hot Stuff
- 09 - The Beatles - A Day In The Life
- 10 - Carl Perkins - Blue Suede ShoesЖанр: Rock N Roll, Rock. Reggae, Pop & OthersПродолжительность: 04:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0A99543CE7CF206BCAB1767481423D4B73B9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570612   (440791) от 18.08.2022
-
-Mylène Farmer - Live 2019 (2019) [OGG|485 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming from the Vortex
-02. Interstellaires
-03. Sans logique
-04. Rolling Stone(   Читать дальше...   )Жанр: PopПродолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE67415C29DE65339F813349B541757916C8E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409898   (440597) от 19.09.2020
 
 Sault - Untitled (Rise) (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -192,7 +6,7 @@ Sault - Untitled (Rise) (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440597.jpg" />
 </div>
 
 
@@ -221,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440586.jpg" />
 </div>
 
 
@@ -250,7 +64,7 @@ VA - Подарок любимой женщине (2002 - 2007) 3 Альбома
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440448.jpg" />
 </div>
 
 
@@ -279,7 +93,7 @@ Modern Talking - Let's Talk About Love - The 2nd Album (1985) Vinyl-rip [OGG|485
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440357.jpg" />
 </div>
 
 
@@ -308,7 +122,7 @@ Ava Max - Heaven & Hell (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440297.jpg" />
 </div>
 
 
@@ -337,7 +151,7 @@ Mike Mareen - 2 Albums, 4 Singles (1977-1988) HQ Vinyl Collection [MP3|320 Kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439671.jpg" />
 </div>
 
 
@@ -366,7 +180,7 @@ Ray Conniff - Рэй Коннифф в Москве (1974, 2007) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439641.jpg" />
 </div>
 
 
@@ -395,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439239.jpg" />
 </div>
 
 
@@ -424,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438933.jpg" />
 </div>
 
 
@@ -453,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438495.jpg" />
 </div>
 
 
@@ -482,7 +296,7 @@ Londonbeat - Londonbeat (2019) [OGG|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438367.jpg" />
 </div>
 
 
@@ -511,7 +325,7 @@ Janet Jackson - Unbreakable (2015) [FLAC|tracks]<Pop, Soul, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438312.jpg" />
 </div>
 
 
@@ -540,7 +354,7 @@ Shania Twain - Greatest Hits (2014) [OGG|485 Kbps] <Pop, Folk, World, & Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438295.jpg" />
 </div>
 
 
@@ -569,7 +383,7 @@ VA - 90er Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438228.jpg" />
 </div>
 
 
@@ -598,7 +412,7 @@ Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438192.jpg" />
 </div>
 
 
@@ -627,7 +441,7 @@ Radiorama - Desires And Vampires (1986) [OGG|485 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438180.jpg" />
 </div>
 
 
@@ -656,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438078.jpg" />
 </div>
 
 
@@ -685,7 +499,7 @@ Celine Dion - Loved Me Back To Life (2013) Deluxe Edition [FLAC|tracks + .cue]<P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438058.jpg" />
 </div>
 
 
@@ -714,7 +528,7 @@ Dr. Alban - One Love (The Album) (1992) Vinyl-rip [OGG|485 Kbps] <Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438055.jpg" />
 </div>
 
 
@@ -743,7 +557,7 @@ Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437897.jpg" />
 </div>
 
 
@@ -757,6 +571,177 @@ Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2DACEF2F7D4700FB2B2FC402B8F0B25A3200BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323386   (437868) от 03.09.2019
+
+Rocky M - The Best Of (1989) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Heart (3:15)
+02. Disco Lady (3:27)
+03. An Angel Passed My Way (4:13)
+04. Fever (3:22)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D378BE82ED2A71D9F819420794DA401EDA980F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249153   (437866) от 22.09.2018
+
+Luca Rovini & Companeros - Cuori Fuorilegge (2018) [MP3|320 Kbps] <Italy Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senza gambe ne parole (05:10)
+02. Fuorilegge (04:44)
+03. Honky tonk senorita (03:09)
+04. Al tavolo di un altro (04:31)(   Читать дальше...   )Жанр: Italy PopПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E55A273056C77C56B95AF6569E3452E1BA6853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322904   (437698) от 03.09.2019
+
+Flora Cash - Press [EP] (2019) [FLAC|Lossless|tracks] <Alternative pop, Indie folk, Dream pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indie on Loud (3:25)
+02. They Own This Town (3:46)
+03. I Wasted You (3:42)
+04. You're Somebody Else (3:39)(   Читать дальше...   )Жанр: Alternative pop, Indie folk, Dream pop, Folk music, Indie popПродолжительность: 00:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8472A2EAD51D02BA55150391BDCE1FDF95CF7D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 124135   (437547) от 20.09.2020
+
+ABBA - Дискография (1970-2007) 65CD [MP3|320] <PoP, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437547.jpg" />
+</div>
+
+
+###  Подробнее
+
+1970 - Lycka Remastered And Expanded - 01.16.17
+1973 - Ring Ring The Complete Studio Recordings - 00.57.36
+1974 - Waterloo (Unremaster) - 00.35.38
+1975 - ABBA (Unremaster) - 00.51.35(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 64:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AA7421DC40855AA070D63DC20FD3DA5087F7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248884   (437148) от 22.09.2018
+
+VA - Love Dancing (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437148.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Diana King - I Will Do It 3:41
+002. Phil Giava feat. Jacinta - You're My Destination (Extended Mix) 4:19
+003. Miss Jane - It Is A Fine Day (ATB Remix) 3:18
+004. Nadia & Alan Divall - Superstar (A.Voltage Remix) 4:23(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 08:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E0EEEAC9C032919A61B42338CBF6153B815552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392868   (437019) от 26.09.2011
+
+Витас - Мама и Сын (2011) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

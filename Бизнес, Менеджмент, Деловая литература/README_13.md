@@ -1,32 +1,3 @@
-###  Публикация: 989994   (911263) от 25.02.2016
-
-Брайан Трейси | Полная вовлеченность. Вдохновляйте, мотивируйте и раскрывайте все лучшее в своей команде (2016) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство по созданию команды звезд от гуру Брайана Трейси.
-
-Успех в бизнесе во многом определяется тем, насколько эффективно менеджеры и предприниматели могут использовать человеческий капитал - вовлекать сотрудников, мотивировать и вдохновлять их.
-Из этой книги известного гуру Брайана Трейси вы узнаете:(   Читать дальше...   )Жанр: БизнесФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FEB13B2C9CFCC0A2751E87A49A56767224C427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989996   (911261) от 25.02.2016
 
 Александр Роднянский | Выходит продюсер (2016) [EPUB]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911261.jpg" />
 </div>
 
 
@@ -62,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911256.jpg" />
 </div>
 
 
@@ -88,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911253.jpg" />
 </div>
 
 
@@ -116,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911238.jpg" />
 </div>
 
 
@@ -142,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911229.jpg" />
 </div>
 
 
@@ -170,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911192.jpg" />
 </div>
 
 
@@ -197,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911187.jpg" />
 </div>
 
 
@@ -223,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911170.jpg" />
 </div>
 
 
@@ -251,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911162.jpg" />
 </div>
 
 
@@ -277,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911150.jpg" />
 </div>
 
 
@@ -304,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911148.jpg" />
 </div>
 
 
@@ -332,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911051.jpg" />
 </div>
 
 
@@ -358,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910772.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910770.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910768.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910756.jpg" />
 </div>
 
 
@@ -464,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910662.jpg" />
 </div>
 
 
@@ -493,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910299.jpg" />
 </div>
 
 
@@ -521,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910186.jpg" />
 </div>
 
 
@@ -547,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910182.jpg" />
 </div>
 
 
@@ -575,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910098.jpg" />
 </div>
 
 
@@ -601,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909697.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909351.jpg" />
 </div>
 
 
@@ -653,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909325.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909321.jpg" />
 </div>
 
 
@@ -690,6 +661,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCC696899C52C55B4F1AEC8294D6E326077F03CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990659   (909287) от 26.02.2016
+
+Джозеф О'Коннор, Иан Макдермотт | Искусство системного мышления. Необходимые знания о системах и творческом подходе к решению проблем (2012) [FB2, DOCX]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цитата
+"Люди и события не подчиняются законам логики, они куда менее предсказуемы и управляемы, чем математические уравнения. Для них неприменимы быстрые, методичные, логические решения". (Джозеф О'Коннор и Иан Макдермотт)
+
+О чем книга(   Читать дальше...   )Жанр: БизнесФормат: FB2, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD50CB2B2CFFAD125420FFEE4F1363768F7873E
 ```
 
 https://mybot314.ru/tekegram_catalog/

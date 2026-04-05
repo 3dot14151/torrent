@@ -1,3 +1,165 @@
+###  Публикация: 1596646   (169227) от 11.12.2022
+
+Чудо техники с Сергеем Малозёмовым (11.12.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доходчивый и интересный рассказ о новейших научных разработках и технологиях, которые способны поменять или уже меняют нашу жизнь. Автор проекта — Сергей Малозёмов — репортер с медицинским образованием, который всегда в курсе последних научных исследований и одним из первых узнает о значимых открытиях. Специально для зрителей НТВ он вместе с экспертами и героями (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148FB13999D52925C82449D6AF8B6360789EB583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672520   (169220) от 28.10.2023
+
+Аль Пачино, Бронкс и ярость (Стать Аль Пачино) / Al Pacino, le Bronx et la fureur / Becoming Al Pacino (2022) WEBRip [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аль Пачино — живая легенда кино. В связи с 50-летием его дебюта на большом экране документальный фильм исследует талант и демонов этого харизматичного актера, включив в него редкие архивы, такие как отснятые очерки и фотографии, а также исторические кадры, связанные с его культовыми фильмами.
+
+В 81 год Аль Пачино отмечает полувековой юбилей своей карьеры. В 1940-х (   Читать дальше...   )Производство: Франция / ZedЖанр: документальный, история, биографияРежиссер: Жан-Батист ПеретьеАктеры: Аль Пачино, Стивен Бауэр, Марлон Брандо, Джон Казале, Фрэнсис Форд Коппола, Роберт Де Ниро, Энн Дворак, Вернер Энг, Джин Хэкмен, Дастин ХоффманПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, ФранцузскийСубтитры: Французские неотключаемые на английскую речьПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009DF4DC220B88B6CE7D7DED7C94621CBD43E04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596702   (169179) от 11.12.2022
+
+Битва экстрасенсов (2022) WEBRip [H.264/720p] (сезон 23, выпуск 14)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169179.jpg" />
+</div>
+
+
+###  Подробнее
+
+В проекте «Битва экстрасенсов» участвуют люди, обладающими необычными способностями. Ведьмы и колдуны, эзотерики, маги, целители, гадатели и многие другие соревнуются за победу и звание лучшего экстрасенса сезона. «Битва экстрасенсов» – культовый проект и знаковое шоу в истории ТНТ. Каждый год люди, которые называют себя экстрасенсами, доказывают свои способности (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B047E8C47E2161129049A5827DAD0141F94813A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672405   (169166) от 28.10.2023
+
+Главная дорога (28.10.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файер-шоу в Петербурге при столкновении попуток, мощный наезд на «зебре» в Дагестане и снежные осенние неприятности по всей стране.
+Мелкое ДТП и крупные неприятности: от сломанных веток до царапин на шлагбаумах — за какие недоразумения водители могут легко лишиться прав.
+ Терпение резиновое: Андрей Федорцов и Денис Юченков показали, что бывает с шинами, если их хранить (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94FE721AC776ADBA2D0E4C3956F9165EB88F1FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826631   (169112) от 19.10.2025
+
+Чудо техники с Сергеем Малозёмовым (19.10.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камера, смартфон, мотор! Что лучше снимает видео и делает фото — «яблочная» продукция или же андроиды и на что нужно обращать внимание при покупке?
+ Кинотеатр на пикнике и электростанция, извлекающая энергию из разницы солености дух типов воды.
+ Корреспонденты программы отправились в Берлин на самую крупную выставку потребительской электроники IFA и протестировали (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA5FC65275A80FA735264D04E1AF6BC81CAB4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826552   (169100) от 19.10.2025
+
+Военная приемка. Гражданское судостроение (19.10.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые большие в мире ледоколы, единственная на планете плавучая атомная теплоэлектростанция, гигантские газовозы и афрамаксы, скоростные катамараны и суда на подводных крыльях, рыболовные траулеры и краболовы, буксиры и плавкраны, дистанционные подводные и надводные аппараты — в этом выпуске вы увидите все новинки гражданского судостроения последних лет. России есть (   Читать дальше...   )Производство: Россия | «Красный Квадрат»Жанр: Документальный, техника, вооружениеРежиссер: Иван ЧигвинцевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533EF7F494E5DC63BDB2507BA76227941F68B1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596710   (169023) от 11.12.2022
 
 Битва экстрасенсов (2022) WEBRip [H.264/1080p] (сезон 23, выпуск 14)
@@ -6,7 +168,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169023.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168986.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168977.jpg" />
 </div>
 
 
@@ -86,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168976.jpg" />
 </div>
 
 
@@ -112,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168919.jpg" />
 </div>
 
 
@@ -138,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168917.jpg" />
 </div>
 
 
@@ -165,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168910.jpg" />
 </div>
 
 
@@ -192,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168902.jpg" />
 </div>
 
 
@@ -218,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168891.jpg" />
 </div>
 
 
@@ -244,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168888.jpg" />
 </div>
 
 
@@ -270,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168887.jpg" />
 </div>
 
 
@@ -296,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168845.jpg" />
 </div>
 
 
@@ -322,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168772.jpg" />
 </div>
 
 
@@ -348,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168769.jpg" />
 </div>
 
 
@@ -374,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168696.jpg" />
 </div>
 
 
@@ -400,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168646.jpg" />
 </div>
 
 
@@ -426,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168619.jpg" />
 </div>
 
 
@@ -452,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168585.jpg" />
 </div>
 
 
@@ -478,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168571.jpg" />
 </div>
 
 
@@ -507,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168569.jpg" />
 </div>
 
 
@@ -518,162 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBC1AFA45421066A57E9154ECB34B139CE84451C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515786   (168419) от 08.12.2021
-
-Преступная жизнь: 1984-2020 / Life of Crime 1984-2020 (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие по улицам и тюрьмам Ньюарка. Фильм рисует пронзительную картину того, как наркотики влияют на жизнь американцев. Борьба с ними — это настоящая война, где счет идет на миллионы. Проект показывает борьбу самых разных людей за выживание, их боль, любовь, мужество и искупление.Производство: США / Downtown Community Television CenterЖанр: Документальный, криминалРежиссер: Джон АлпертПеревод: Многоголосый профессиональный (Lucky Production)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: 02:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C4DF88B7A814424E1F216C6B37007C7ABA8903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515878   (168367) от 08.12.2021
-
-Норвежские фьорды. Мир чудес / The Norwegian Fjords. Life in the Twilights (2018) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норвежские фьорды - один из самых драматичных пейзажей Европы. В их холодных темных водах обитает удивительно богатый и красочный подводный мир: огромные рифы из холодноводных кораллов, морские загоны с перистыми руками и мигающими огнями, странные морские слизни, светящиеся в темноте. Зимой миллиарды сельди собираются на фьордах, касатки и горбатые киты лакомятся (   Читать дальше...   )Производство: Германия / NDR Naturfilm, Doclights GmbHЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Ян ХафтПеревод: Одноголосый профессиональный (телеканал "Живая планета")Субтитры: ОтсутствуютПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260DA3C1CE9D79C787F9B3BAB0932EAF42BDAB21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209269   (168343) от 12.12.2020
-
-Дворы нашего детства. 2 серии. (1992) TVRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это было детство – веселое, трудное, с драками и первой любовью. Давно ушедший аромат тех лет – голубятни, коммунальные ссоры и общие праздники, блатные песни и катание на катке под песни Марка Бернеса. О московских двориках конца 1940-х – начала 1950-х годов рассказывают: Валентин Гафт, Александр Збруев, Александр Козлов, Лев Дуров, Наталья Молчанова.Жанр: ДокументальныйРежиссер: Алексей ГабриловичПродолжительность: 00:51:04 + 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707DF710B53EEF1EFF68FA570EABADFD9B84329A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596873   (168217) от 12.12.2022
-
-Жизнь в эпоху замков / La vie au temps des chateaux forts (2018) DVB
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средневековье - это Золотой век замков. Вам предлагается реконструкция-погружение в Средние века через историю вымышленного персонажа Гийома де Кастельнака (Guillaume de Castelnac), который строит замок, но сможет ли тот отразить все атаки его заклятого врага Веру (Verou)? Фильм показывает нам жизнь строителей, крестьян, ремесленникой и воинов того времени.Производство: Франция, TV5MONDE EuropeЖанр: документально-постановочный, историяРежиссер: Филипп ВержоПеревод: двуголосый профессиональный (SDI Media)Субтитры: русские (перевод Н.Коттель, ECLAIR), английские, французские, немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 01:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02786BF4291AB48656A20799DC00DA648749F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672720   (168115) от 29.10.2023
-
-Чудо техники с Сергеем Малозёмовым (29.10.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правда ли на планете массово умирают опылители и это грозит гибелью нам всем? И какие необычные улья создают инженеры? Чудо-товар: как и зачем украшают брови и губы при помощи перманентной краски, не опасно ли это для кожи, а также перманентный макияж — чудо или не чудо?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B9B9053AC277A3CF00143CC02E07969605162B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345041   (168104) от 13.12.2019
-
-Планета Кино / Terres de Cinema (2017) HDTVRip [H.264/720p-LQ] (серии 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающее путешествие где-то между мифом и реальностью. Сюжеты посвящены странам, где снимали совершенно разные, но любимые всеми фильмы.Производство: WHAT'S UP films, ARTE G.E.I.E., Centre National du Cinema et de L’Image Animee, ZEDЖанр: Документальный, ИскусствоРежиссер: Alice Doyard, Vincent Trisolini, Jean Froment, Fanny TondreПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 5 x ~ 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE5388E07D3496EF2D18EB7B1B4EC6ECE9BE03F
 ```
 
 https://mybot314.ru/tekegram_catalog/

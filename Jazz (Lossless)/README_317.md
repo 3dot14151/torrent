@@ -6,7 +6,7 @@ Antonio Sanchez - Live In New York At Jazz Standard (2008) 2CD, 2010, CAM Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112716.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ramsey Lewis - Sky Islands (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112642.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Anita O'Day - Big Band At Carnegie Hall (1985) 2009, Emily Productions [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112567.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jimmy Rosenberg - The One And Only (1998) Hot Club Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112566.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112531.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112530.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Anita O'Day - Essential O'Day: Basin Street West (1964) 2007, Emily Productions 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112451.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mop Mop - Lunar Love (2016) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112436.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mop Mop - Ritual Of The Savage (2010) [FLAC|Lossless|image + .cue] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112435.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mike Mainieri - An American Diary: The Dreamings (1997) 1999, NYC Records [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112333.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Halie Loren - Live At Cotton Club (2016) Victor [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112329.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Satolu Oda and Hank Jones Great Jazz Quintet - Just Friends (1995) Venus Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112252.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ben Webster - Live! Providence, Rhode Island (1963) 1994, Storyville Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112170.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Grover Washington, Jr. - Time Out Of Mind (1989) [FLAC|Lossless|image + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112165.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Alex Podymkin & Abraham Burton Quartet - Concert At Cobra Music Hall (2008) 2023
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112072.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112003.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Trix - Index (2004) King Record [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111986.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Chris Standring - As We Think (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111890.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Rob Van Bavel Trio - The Ghost, The King And I (2010) 2CD, 2023, Apollon & Evter
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111876.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gene Krupa - 1940, Vol. 2 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111869.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tadaaki Misago & Tokyo Cuban Boys - Holiday in Tsugaru / Memories of Japan (1966
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111861.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dave Brubeck - All The Things We Are (1973, 1974) 2007, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111800.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Richie Kamuca & Bill Holman - West Coast Jazz In Hi Fi (1959) 1990, Original Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111780.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Tal Farlow - The Guitar Artistry of Tal Farlow (1959) 2021, Universal [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111778.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Melody Gardot - Sayonara Meu Amor (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111775.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Makoto Ozone - Spring Is Here (1987) Sony [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111761.jpg" />
 </div>
 
 

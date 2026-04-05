@@ -1,3 +1,55 @@
+###  Публикация: 724490   (495657) от 18.09.2016
+
+Подшивка журналов | Монеты и купюры мира №1-158 (2013-2016) [PDF] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал поможет пополнить коллекцию купюрами пяти континентов, позволит заглянуть в историю народов мира, расшифрует денежные изображения и символы. Коллекция редких купюр и монет, является дополнением журнала, позволит подержать в руках купюры разных стран.Жанр: Нумизматика, бонистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6CE6B907B79B1DF9AD7089F7748540C4E0D773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053451   (495636) от 18.09.2016
+
+Алиса в Зазеркалье / Alice Through the Looking Glass (2016) WEB-DL [H.264/1080p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495636.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз главной героине предстоит отправиться в путешествие во времени, полное неожиданностей и ярких открытий, чтобы спасти своего друга, Безумного Шляпника...Производство: США, Великобритания, Legend3D, Roth Films, Team Todd, Tim Burton Productions, Walt Disney PicturesЖанр: Фэнтези, Приключения, СемейныйРежиссер: Джеймс БобинАктеры: Миа Васиковска, Джонни Депп, Хелена Бонем Картер, Энн Хэтэуэй, Саша Барон Коэн, Рис Иванс, Мэтт Лукас, Линдси ДунканПеревод: Дублированный (Чистый звук)Продолжительность: 01:52:59Реклама: Присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2617C7B7199818CB911B49CAC85EB741DD0C9717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935963   (495625) от 11.09.2015
 
 Очередное достижение: 100+ TB отданного трафика от brutus_, oven540304, vavag08, Злой неадмин, Василий Тимошкин
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_495625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_495625.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ CrossOver Linux 14.1.6 [x86-x64] (deb, rpm, bin)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495398.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ The KMPlayer 4.0.0.0 RePack by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495396.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Destroy Windows 10 Spying 1.5 Build 361 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495388.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495385.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495352.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Norton Internet Security 2013 20.1.0.24 Final [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494758.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Adobe Acrobat 9 Professional v.9.5.2 DVD [RUS / ENG]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494753.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Deus Ex: Human Revolution: The Missing Link / Deus Ex: Human Revolution Augmente
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494752.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494748.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Windows 7 7600.16385.Ultimate X64 LITE STYLLING & MS OFFICE 2010 PROPLUS X86 _10
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494528.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_493545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_493545.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_493489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_493489.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ Microsoft Office for Mac 2016 15.26 (160910) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493459.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493297.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493296.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493064.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ Workers & Resources: Soviet Republic (2019) [Ru/Multi] (0.8.2.25) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492766.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ Inquisitor [En/Cz] (P) 2012 | THETA
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492693.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492688.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ Adobe Photoshop Lightroom CC 2015.7 (6.7) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491427.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4549.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491259.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ Cowboy WPI StartSoft September 63-2015 [Lite-Part 2] [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491222.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491221.jpg" />
 </div>
 
 
@@ -635,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:488D640087B8FA2D03905E7C4C157825FF946AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543803   (490877) от 07.09.2012
-
-Страховщики предлагают видеорегистраторы и навигаторы сделать обязательными
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский союз автостраховщиков (РСА) предлагает обязать водителей устанавливать на легковые автомобили систему навигации ГЛОНАСС и видеорегистраторы. Наличие этих устройств в будущем позволит водителям оформлять аварии по упрощенной схеме без вызова сотрудников ГИБДД.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404501   (490804) от 26.08.2020
-
-Восход Эдерлези / Нимани / A.I. Rising (2018) BDRemux [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490804.jpg" />
-</div>
-
-
-###  Подробнее
-
-2048 год. Космонавт Милютин, работающий на корпорацию Эдерлези, отправляется в экспедицию к Альфа Центавра в компании андроида Нимани. Во время долгого путешествия он влюбляется в робота, и космонавту начинает казаться, будто женщина реальна.Производство: Сербия / Film Center Serbia, Mir Media GroupЖанр: Фантастика, драма, мелодрамаРежиссер: Лазар БодрожаАктеры: Себастьян Кавацца, Стоя, Маруша Майер, Кирсти БестерманПеревод: 3xМногоголосый закадровый (iTunes, СВ Студия (ненормативная лексика), HDrezka Studio)Субтитры: Русские (forced), Английские (Full, SDH)Продолжительность: 01:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B1D957339081A723A894FCDAA8FE5B08514D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

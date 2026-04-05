@@ -1,3 +1,56 @@
+###  Публикация: 1259327   (320285) от 03.11.2018
+
+Проекты - VideoHive - Summer Kids Album | Family Slideshow - 19467789 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окружите своих детей яркими красками лета и перенесите их в волшебный мир, где
+их встретят дружелюбные представители местной фауны.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B14BC1577A7639009310CF570E3899F2701707C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580635   (320244) от 10.10.2022
+
+Первые тесты в космосе подтвердили работоспособность плазменного двигателя VERA
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_320244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Импульсный плазменный двигатель VERA, разработанный в Национальном исследовательском ядерном университете (НИЯУ) (Московский инженерно-физический институт, МИФИ), был впервые протестирован во время реального космического полета и подтвердил свою работоспособность. Об этом в пятницу сообщили  в Sitronics Group."Прошли первые тесты импульсного плазменного двигателя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410315   (320230) от 10.10.2022
 
 Grand Theft Auto III / GTA 3 HQ (2002-2016) [Ru/Multi] (1.0/1.11) Repack/Mod Vasy@n
@@ -6,7 +59,7 @@ Grand Theft Auto III / GTA 3 HQ (2002-2016) [Ru/Multi] (1.0/1.11) Repack/Mod Vas
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320230.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_320083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_320083.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319977.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319830.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ IconPackager 5.10.032 [Англ.+Рус.]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_319288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319288.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Far Cry 3 (Русификатор/1.0) [Ru] 2012 | Бука
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319281.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Facebook и Twitter пропишутся в России
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_318778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_318778.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ TNod User & Password Finder 1.6.0 Beta 2 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318531.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ Paragon NTFS for Mac 14.1.83 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318518.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318516.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318514.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_318442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_318442.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318434.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318426.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318401.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ Microsoft Office SharePoint Server & Web Apps 2010 SP1 RUS-ENG (AIO)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318384.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318106.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_317771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317771.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ Nero 2017 Platinum 18.0.00300 VL RePack by KpoJIuK (22.11.2016) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317671.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317580.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_317285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317285.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_317284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317284.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317091.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ Kaspersky Internet Security 2021 21.2.16.590 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317012.jpg" />
 </div>
 
 
@@ -624,59 +677,6 @@ Kaspersky Internet Security - комплексный Антивирус Касп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D775B27101C9512C9D3309999E8D5746D352EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421551   (317009) от 05.11.2020
-
-MInstAll v.05.11.2020 By Andreyonohov & Leha342 (ISO) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами обновленный 05 Ноября 2020 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF00877F8E7F33E2EDCD17166FCC817611B1CCC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959483   (316215) от 24.11.2015
-
-Проекты - VideoHive - Flag Loop Maker - 6504559 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания развевающегося флага с любой текстурой.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E7626C2318865AA330A4B6BE1AEB31E29AD9DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

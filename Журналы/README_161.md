@@ -1,3 +1,107 @@
+###  Публикация: 1211627   (777201) от 08.03.2018
+
+Журнал | Идеальный дом №3 (март 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальный дом - журнал для влюблённых в свой дом. Журнал посвящен вопросам недвижимости, архитектуры, дизайна интерьеров, а также затрагивающий темы, касающиеся защиты прав домовладельцев и землепользователей, модернизации жилого пространства в соответствии с новыми технологиями, стилями и канонами. Издание, предлагающее креативные идеи и пути их осуществления...Жанр: Интерьер, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41FFFAD4496B9011B82F6A9F26EFB6CC30D73AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013862   (777181) от 05.05.2016
+
+Журнал | Идеи вашего дома [Россия] №5 (207) (май 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеи вашего дома — ежемесячный журнал, посвященный вопросам ремонта и обустройства интерьера. Заинтересует людей, планирующих реконструкцию, ремонт, дизайн интерьера своего жилья. Журнал предлагает большое количество планировочных и оформительских решений, обзоры ремонтно-строительных материалов, мебели, техники и оборудования.Жанр: Дизайн, строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0D61DDC61F3E5A252AE7DBDD8DA099629D8685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013819   (777169) от 05.05.2016
+
+Газета | Мой друг компьютер №8 (235) (апрель 2016) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777169.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мой друг компьютер» - издание для обычных пользователей компьютера расскажет, как выбрать компьютерную технику, установить и настроить разные программы, модернизировать компьютер с минимальными финансовыми затратами, защитить от вирусов и не стать жертвой хакеров.Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02F1C471076635A765049C085D249D36AD5478A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211589   (777167) от 08.03.2018
+
+Каталог | Quelle Новогодний (осень-зима 2017) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777167.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе еще поздняя осень, а мы уже в предвкушении новогодних праздников и особенного зимнего волшебства! Новый каталог QUELLE поможет вам без спешки и суеты украсить дом, подобрать подарки друзьям и близким и, конечно же, найти единственное и неповторимое платье для встречи Нового года. От всей души поздравляем Вас с наступающими праздниками!Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEAEA9F7567D36FA608C0A7C41894DA6D3D6FE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211590   (777149) от 08.03.2018
 
 Каталог | Quelle Мода без границ (весна-лето 2018) [PDF]
@@ -6,7 +110,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777149.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777120.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777111.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776937.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776933.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776869.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776859.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776850.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776849.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776842.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776760.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776696.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776553.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776520.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776511.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776508.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776498.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776473.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776168.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776162.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776158.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776157.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D8B7B3E92897B1583FACCC1BBA5E15F9FF4A29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014740   (776118) от 08.05.2016
-
-Журнал | Любимая дача. Спецвыпуск №6. Дачное подворье (июнь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов. Они охватывают круг тем, близких разным поколениям дачников, отвечают на животрепещущие вопросы подробно, с практической точки зрения. Каждый спецвыпуск посвящен конкретной теме, касающейся строительства, благоустройства дачи или участка. Материалы представлены (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E78BBE239E7807773BFAD6352F4208D6A457CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014370   (775799) от 09.05.2016
-
-Журнал | Вязание для вас №6 (июнь 2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по вязанию спицами и крючком в разных стилях и техниках, элегантных и практичных, оригинальных и красивых женских, мужских и детских моделей одежды и аксессуаров. Каждая модель сопровождается фотографией и подробной схемой.Жанр: ВязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DA8BB5797C7ED7AC324CCE2E2B2F54E1939630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015029   (775731) от 09.05.2016
-
-Журнал | Рыбалка на Руси №5 (164) (Май 2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рыбалка на Руси - журнал для любителей и профессионалов рыбной ловли. Здесь вы узнаете о новых методах ловли рыбы ,о применяемых снастях и наживках. А так же о практике ловли рыбы как зарубежных, так и российских рыболовов.Жанр: РыболовствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D0081E2CCA7B9CACBF1470166E5A50BF44708C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014356   (775685) от 09.05.2016
-
-Журнал | Maximum PC №5 (май 2016) [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто хочет усовершенствовать свой компьютер. В издании акцент делается на обзоры о новейшем компьютерном оборудовании, информационных продуктов и программ, подробные инструкции по увеличению производительности компьютера. Широко освещена тема периферийных устройств, программного обеспечения, игр, различных приложений. Продвинутые и начинающие пользователи (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2C3F32DE5F837FE38DC73700E1EFF2524C9F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

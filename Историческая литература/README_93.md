@@ -1,30 +1,3 @@
-###  Публикация: 1739352   (106113) от 27.07.2024
-
-И.Э. Фишер | Сибирская история с самого открытия Сибири до завоевания сей земли российским оружием (1774) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сибирская история с самого открытия Сибири до завоевания сей земли российским оружием, сочиненная на немецком языке и в собрании академическом, читанная членом С-Петербургской академии и профессором древностей и истории, также членом исторического Геттингенского собрания И. Е. Фишером.(1697-1771).
-Иоган Эбергарт – уроженец Вюртемберга, где получил образование и стал (   Читать дальше...   )Жанр: историческое исследованиеПеревод: В.И. ЛебедевЯзык: Русский (дореформенный)Издательство: Санкт-Петербург: При Императорской Академии наукФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A261D1D068E0DDF33ED6DDC13C22B2FFF2CEB7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752128   (104010) от 28.09.2024
 
 Вячеслав Бондаренко | 100 великих героев Великой Отечественной войны (2015) [PDF]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104010.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102509.jpg" />
 </div>
 
 
@@ -89,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100719.jpg" />
 </div>
 
 
@@ -115,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100567.jpg" />
 </div>
 
 
@@ -142,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99659.jpg" />
 </div>
 
 
@@ -168,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97142.jpg" />
 </div>
 
 
@@ -194,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89225.jpg" />
 </div>
 
 
@@ -220,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88369.jpg" />
 </div>
 
 
@@ -247,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87192.jpg" />
 </div>
 
 
@@ -273,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86986.jpg" />
 </div>
 
 
@@ -301,7 +274,7 @@ Iоаннъ Гоффертъ | Иллюстрированная Отечеств
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82031.jpg" />
 </div>
 
 
@@ -327,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81938.jpg" />
 </div>
 
 
@@ -353,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81602.jpg" />
 </div>
 
 
@@ -379,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81532.jpg" />
 </div>
 
 
@@ -407,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81501.jpg" />
 </div>
 
 
@@ -433,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80178.jpg" />
 </div>
 
 
@@ -459,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79946.jpg" />
 </div>
 
 
@@ -485,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79508.jpg" />
 </div>
 
 
@@ -511,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77238.jpg" />
 </div>
 
 
@@ -540,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76600.jpg" />
 </div>
 
 
@@ -569,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76225.jpg" />
 </div>
 
 
@@ -598,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76014.jpg" />
 </div>
 
 
@@ -627,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64848.jpg" />
 </div>
 
 
@@ -654,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62172.jpg" />
 </div>
 
 
@@ -680,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61400.jpg" />
 </div>
 
 
@@ -691,6 +664,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B87ACAE0CD8036579C967708C95E8CB32AE7F7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728516   (54085) от 07.06.2024
+
+Rob Houston (editor) | History of the World Map by Map (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54085.jpg" />
+</div>
+
+
+###  Подробнее
+
+More than 140 detailed maps tell the story of pivotal episodes in world history, from the first human migrations out of Africa to the space race.
+Custom regional and global maps present the history of the world in action, charting how events traced patterns on land and ocean-patterns of exploration, discovery, or conquest that created empires, colonies, or theaters (   Читать дальше...   )Жанр: КартографияЯзык: английскийИздательство: Dorling Kindersley Limited, SmithsonianФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5435D9E32997276614DA58A6FAD1C54427BF08
 ```
 
 https://mybot314.ru/tekegram_catalog/

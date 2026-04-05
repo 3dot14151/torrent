@@ -1,3 +1,86 @@
+###  Публикация: 458712   (79296) от 29.02.2012
+
+Simatic WinCC v7.0 SP3 (Multi)
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79296.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIMATIC HMI - это широкий спектр аппаратуры и программного обеспечения, позволяющий создавать эффективные системы человеко-машинного интерфейса:
+1) Полная совместимость с SIMATIC S7. Функции обслуживания устройств человеко-машинного интерфейса встроены в операционную систему программируемых контроллеров SIMATIC S7.
+2) Унификация с контроллерами SIMATIC S7: общие базы данных, унифицированный интерфейс и т.д.
+3) Прямое подключение к контроллерам по PPI или MPI интерфейсам.
+4) Возможность работы в сети PROFIBUS.
+     Функциональность системы визуализации Simatic WinCC в версии 7.0 значительно расширена. Графический интерфейс оператора может быть выполнен в соответствии со стандартами Windows Aero. Возможно применение шаблонов дизайна (классический, прозрачный, 3D) и цветовой палитры, которые могут быть централизованно адаптированы в любой момент. Дополнительную наглядность элементам управления WinCC придают такие эффекты, как прозрачность, тени, стили заливки, подсветка при наведении курсора. Новые графические возможности (   Читать дальше...   )Название программы: Simatic WinCCЯзык интерфейса: (Multi) (английский и еще 5 шт.)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458623   (78682) от 26.02.2012
+
+Macromedia HomeSite 5.5 [Русский]
+
+>>След.
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macromedia HomeSite – это мощный инструмент для быстрой разработки профессиональных web-сайтов. Встроенные инструментальные средства кодирования помогут разработчикам проверять правильность кода, а также повторно использовать, форматировать и просматривать код. Разработчики смогут эффективно создавать и развертывать web-сайты, а также управлять ими с помощью функций управления проектами, контроля качества и удаленного развертывания, в то время как мастера позволяют быстро создавать страницы, таблицы, фреймы и элементы JavaScript.Название программы: Macromedia HomeSiteЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821587   (63928) от 03.10.2025
+
+QIAGEN CLC Genomics Workbench 25.0.2 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63928.jpg" />
+</div>
+
+
+###  Подробнее
+
+CLC Genomics Workbench — это комплексный аналитический пакет для анализа и визуализации данных, поддерживающий все типичные рабочие процессы NGS.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0CE74AC32277E2F20D4CC354B22F1F8A033632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716994   (59409) от 17.04.2024
 
 Windows Images Date Selector (WIDS) 1.0.0.4 Portable by Adler [Ru/En]
@@ -6,7 +89,7 @@ Windows Images Date Selector (WIDS) 1.0.0.4 Portable by Adler [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59409.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ Bizagi Modeler 4.0.0.128 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58913.jpg" />
 </div>
 
 
@@ -60,7 +143,7 @@ Nox App Player 7.0.6.0007 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57258.jpg" />
 </div>
 
 
@@ -86,7 +169,7 @@ VMware Workstation Player 17.5.2 Build 23775571 Free [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53911.jpg" />
 </div>
 
 
@@ -113,7 +196,7 @@ Android Studio Koala | 2024.1.1 Build #AI-241.15989.150.2411.11948838 + Portable
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52631.jpg" />
 </div>
 
 
@@ -139,7 +222,7 @@ MEmu 9.1.5.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51942.jpg" />
 </div>
 
 
@@ -166,7 +249,7 @@ WinNTSetup 5.3.5.2 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51317.jpg" />
 </div>
 
 
@@ -192,7 +275,7 @@ WinToUSB Technician 8.9.1 (x64) Portable by FC Portables [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51277.jpg" />
 </div>
 
 
@@ -218,7 +301,7 @@ PTC Mathcad Prime 10.0.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50808.jpg" />
 </div>
 
 
@@ -244,7 +327,7 @@ Hex Editor Neo Ultimate 7.46.00.8715 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50683.jpg" />
 </div>
 
 
@@ -271,7 +354,7 @@ Gibbscam 2024 v24.0.71 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46507.jpg" />
 </div>
 
 
@@ -297,7 +380,7 @@ FX Draw Tools 24.08.29 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45156.jpg" />
 </div>
 
 
@@ -324,7 +407,7 @@ Veeam Backup & Replication 12.2.0.334 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44686.jpg" />
 </div>
 
 
@@ -350,7 +433,7 @@ Veeam ONE 12.2.0 Build 4093 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42253.jpg" />
 </div>
 
 
@@ -378,7 +461,7 @@ Visual Studio Code 1.94.0 + Автономная версия (Standalone) [Mult
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41424.jpg" />
 </div>
 
 
@@ -404,7 +487,7 @@ HCL Lotus Domino Notes 14.0 [Ru/En] + Nomad Safelinx Verse Traveler + C REST API
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39238.jpg" />
 </div>
 
 
@@ -431,7 +514,7 @@ VMware Workstation 17 Pro 17.5.0 Build 22583795 RePack by alexyar [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37449.jpg" />
 </div>
 
 
@@ -457,7 +540,7 @@ PyMOL 3.1.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36087.jpg" />
 </div>
 
 
@@ -483,7 +566,7 @@ VMware Workstation Pro for Personal Use 17.6.2 Build 24409262 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31313.jpg" />
 </div>
 
 
@@ -509,7 +592,7 @@ LDPlayer 9.1.37.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30690.jpg" />
 </div>
 
 
@@ -535,7 +618,7 @@ SigmaPlot 15.0.0.13 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29632.jpg" />
 </div>
 
 
@@ -563,7 +646,7 @@ Turbo Studio 25.1.5 Portable by 7997 (PAF + NSIS) [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28891.jpg" />
 </div>
 
 
@@ -589,7 +672,7 @@ WinToHDD 6.6.1 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodak
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28163.jpg" />
 </div>
 
 
@@ -600,85 +683,6 @@ WinToHDD - программа 3-в-1, которая позволяет выпо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A7D33788CB2C718FEFCE615E16A3C72B0A722E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735308   (27985) от 11.02.2025
-
-Wolfram Mathematica 14.0.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система Mathematica является оригинальным ведущим продуктом компании Wolfram, главным образом нацеленным на технические вычисления для научно-исследовательской и образовательной деятельности. Основанная на языке Wolfram Language, Mathematica абсолютно совместима с другими основными продуктами компании Wolfram.
-На протяжении трёх десятилетий система Mathematica определяет (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FBF712DB5D28CD352F33636829785687B959C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779789   (27558) от 15.02.2025
-
-WinToHDD 6.6 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27558.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10/8.1/8/7 без использования CD/DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C635380A2625268C3AE0C099FA39C931FCF74E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779771   (27512) от 15.02.2025
-
-Crystal Impact Diamond 4.6.8 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crystal Impact Diamond - программное обеспечение, предназначенное для визуализации и проектирования кристаллических структур. Объединяет множество функций, которые работают с данными кристаллических структур - в исследовании и образовании, а так же полезны для подготовки публикаций и презентаций. Diamond не только создаёт замечательные картины молекулярных и кристаллических (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8C1279644A8D32628A6ADDF96F84240173A9B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

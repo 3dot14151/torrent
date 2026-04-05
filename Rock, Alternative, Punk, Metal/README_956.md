@@ -1,3 +1,32 @@
+###  Публикация: 1376627   (212101) от 24.07.2022
+
+Traveling Wilburys (The Traveling Wilburys) - 3 Albums, 2 Singles, 10CD (1988-2016) [FLAC|Lossless|image + .cue | tracks+.cue] <Classic Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212101.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Traveling Wilburys — супергруппа, участниками которой являлись Джордж Харрисон, Боб Дилан, Том Петти, Рой Орбисон и Джефф Линн, но под вымышленными именами. Название группы произошло от студийного сленга. «Wilburys» был жаргонным словом, выдуманным Харрисоном и Линном во время записи альбома Cloud Nine. Им они характеризовали огрехи записи, которые устранялись (   Читать дальше...   )--------------------------
+
+01. Nobody's Child (3:27)
+02. Luminere (Dave Stewart) (4:23)(   Читать дальше...   )Жанр: Classic Rock, Rock |Продолжительность: 05:30:10 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39BA293C3D5EC1A92F55D7F474203523DAACE3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638238   (212099) от 07.06.2023
 
 Jelly Roll - Whitsitt Chapel (2023) [FLAC|Lossless|WEB-DL|tracks] <Country Rock, Rapcore>
@@ -6,7 +35,7 @@ Jelly Roll - Whitsitt Chapel (2023) [FLAC|Lossless|WEB-DL|tracks] <Country Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212099.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Roger Waters - The Lockdown Sessions (2022) 2023 [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212077.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ White Spirit - Right or Wrong (2022) Special Edition, 2023, Malcolm Pearson [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212017.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Extreme - Six (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Funk Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_211989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_211989.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Audrey Horne - 8 albums, 9CD (2005-2022) [FLAC|Lossless|image + .cue | tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211955.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Alice Cooper - Killer (1971) 2 CD, Expanded and Remastered, 2023, Rhino - Warner
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211933.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Christine and the Queens - PARANOIA, ANGELS, TRUE LOVE (2023) [FLAC 24/176.4|Los
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211926.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ Steelheart - 7 Albums (1990-2018) [FLAC|Lossless|image + .cue] <Hard Rock, Glam 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211854.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211851.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Leathurbitch - Shattered Vanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211846.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ Shakra - Invincible (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211821.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211811.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211809.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Milky Chance - Living In A Haze (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211792.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Slipknot - Adderall (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211785.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Floodfall - Unbroken (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211767.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Squid - O Monolith (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Indi
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211765.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Legion Of The Damned - The Poison Chalice (2023) [MP3|320 Kbps] <Death-Thrash-Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211763.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Lee Small - The Last Man On Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211755.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Space Queen - Nebula (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211751.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Godslut - Procreation of God (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211743.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Halocene - Maleficent (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211739.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211695.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Poisonous Reflection - Time Is Not on Our Side (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211659.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ VA - Электро Индустрия (Д​о​н​б​а​с​с) (2015-
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211612.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ VA - Электро Индустрия (Д​о​н​б​а​с​с) (2015-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87F4EC3DB4D4F81DF0F54D896E5F2418E4614FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639338   (211591) от 13.06.2023
-
-Hellstorm - Into the Mouth of the Dead Reign (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Some Flowers In The Graveyard
-02 - Dead Walk
-03 - The Deepest Night
-04 - Corpsehunters(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976B1C46F46F762314027DFE431C11933EAD4EA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

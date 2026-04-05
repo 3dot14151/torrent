@@ -6,7 +6,7 @@ Michael Wolff - Portraiture, The Blues Period (1998) Fuel 2000 [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182531.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Charlie Christian & Benny Goodman - 1939 - 1941 (1992) Jazz Roots [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181984.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cecil Alexander - Introducing (2022) Heartcore Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181966.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Papik - Enjoy The Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181787.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jazzamor - Don't Let Your Angels Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181728.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hank Mobley - Hank Mobley (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181645.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Michael Wolff - Impure Thoughts (2000) Indianola Music Group [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181640.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Duke Ellington - Gold (1940-e - 1960-e) 1993, Gold [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181604.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Thelonious Monk Quartet - Monk's Dream (1962) 2014, Original Recordings Grou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181588.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kaoru Nakasone - Fragrance (2000) M&I [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181574.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tab Smith - Jump Time (1951, 1952) 1991, Delmark Records [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181573.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tab Smith - Top 'N' Bottom (1953, 1954) 1997, Delmark Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181567.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tab Smith - Ace High (1952, 1953) 1992, Delmark Records [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181541.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Candy Dulfer - 16 albums, 4 singles, 26 CD (1989-2022) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181454.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Peggy Lee - The Best of Miss Peggy Lee (1945-1969)1998, Capitol Records[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181431.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - The Columbia Jazz Piano Moods Sessions (1949 - 1952) 7CD, 2000, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181147.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180950.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Paul Bley Trio - Complete Savoy Sessions (1962-1963) 2008, Gambit Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180945.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Paquito D'Rivera & Trio Corrente - Song For Maura (2013) Sunnyside [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180943.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jack McDuff - The Heatin' System (1972) 2007, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180914.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Vainoras and the altar of the drill - Develop your eyesight for the darkness (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180861.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Barbara Lea - Remembering Remembering Lee Wiley (1995) Audiophile[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180679.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - The Complete Bee Hive Sessions (1977 - 1984) 12CD, 2015, Mosaic Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180483.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Hal Galper Quintet - Live At The Berlin Philharmonic (1977, 19768) 2CD, 2021, Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180336.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Art Pepper - The 1975 Garden State Jam Sessions (2005) 2CD, Lone Hill Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180127.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Eddie Daniels & Roger Kellaway - A Duet Of One (2005) 2008, IPO Recordings [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180042.jpg" />
 </div>
 
 

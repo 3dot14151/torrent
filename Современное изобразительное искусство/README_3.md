@@ -6,7 +6,7 @@
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799011.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796743.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780337.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778903.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778789.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726769.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707325.jpg" />
 </div>
 
 
@@ -186,6 +186,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505560   (689826) от 05.06.2012
+
+[Графика] Живопись - Мир фантазий Адриана Честермана (2012)
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_689826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живопись - Мир фантазий Адриана Честермана
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EEFB98EB3EEEB7EDB1C5D4F30B5BCC399D884E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507023   (685574) от 07.06.2012
 
 [Графика] Владимир Бондарь: украинский художник - оформитель книг научной фантастики (2012)
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685574.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684495.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672490.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659896.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658714.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656827.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656821.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656732.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655638.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655507.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654401.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653641.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651305.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649939.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645271.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645262.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645177.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645163.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5425F3AE0D2CAC8B45D470526929D4D8A95BCAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517539   (645065) от 02.07.2012
-
-[Графика] Художник Mark Arian
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художник Mark Arian
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF6C23562504CE7641CA8DDB97C9116A2B3CFCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

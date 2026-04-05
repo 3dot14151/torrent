@@ -1,3 +1,32 @@
+###  Публикация: 1338345   (270445) от 14.11.2019
+
+Дельфин (Dolphin) - КРАЙ (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Electronic, Trip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J2000.0 (4:05)
+02. Лето (3:51)
+03. Joy Stick (3:46)
+04. МСКВ (4:39)(   Читать дальше...   )Производство: M2Жанр: Alternative, Electronic, Trip-HopПродолжительность: 00:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D4CF3BE16A001873C00A1A65D07A24E65DB19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189560   (270440) от 06.12.2017
 
 Aosoth - V: The Inside Scriptures (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
@@ -6,7 +35,7 @@ Aosoth - V: The Inside Scriptures (2017) [FLAC|Lossless|tracks + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270440.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270396.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Equilibrium - Turis Fratyr (2005) [MP3|320 kbps]<Epic Folk/Viking Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270366.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270352.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270325.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Spacehog - 4 альбома (1995 - 2013) [FLAC|Lossless|tracks + .cue]<Indie, B
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270183.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ SuperHeavy - SuperHeavy (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_270120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_270120.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Circus Maximus - The 1st Chapter (2005) Japan Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270081.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Human Egg - Human Egg (1978) LP [MP3|320 Kbps] <Electronic, Space Rock, Psychede
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270071.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Escape Club - Cloud 10 (2005) [MP3|320 Kbps] <Alternative Pop Rock, Ambient 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270047.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Doors - Waiting For The Sun (1968) 2CD + LP Box Set, Remastered, Elektra, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269994.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Clutch - 16 albums, 19 CD (1993-2018) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269989.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Def Leppard - The Story So Far: The Best Of Def Leppard (2018) Deluxe Edition [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269937.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Draconian - 5 Albums (2003 - 2011) [MP3|320 kbps]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269923.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Fall Out Boy - Believers Never Die (Volume Two) (2019) [MP3|320 Kbps] <Punk Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269717.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Wisdom - 2 Albums (2006 - 2011) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269619.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Joywave - Content (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269593.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Loudness - Golden Best (2009) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269577.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269576.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Cavalera Conspiracy - Psychosis (2017) [FLAC|Lossless|tracks + .cue] <Groove Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269561.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269516.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Dreamtone & Iris Mavraki's Neverland - Ophidia (2010) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269223.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Dreamtone & Iris Mavraki's Neverland - Reversing Time (2008) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269203.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269157.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269149.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A5EABE812B99012E589BFAEE1C8953B7A8F9121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266724   (269111) от 03.12.2018
-
-Creedence Clearwater Revival Featuring John Fogerty - Chronicle (The 20 Greatest Hits) (1987) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Susie Q
-2. I Put A Spell On You
-3. Proud Mary
-4. Bad Moon Rising(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D36E46D89DE31F71C5DCE70A9DBD38879D1BADF
 ```
 
 https://mybot314.ru/tekegram_catalog/

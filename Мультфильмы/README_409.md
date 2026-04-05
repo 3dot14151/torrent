@@ -1,3 +1,133 @@
+###  Публикация: 1770485   (32296) от 01.01.2025
+
+Девочка в цирке (1950) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живет в городе школьница-лентяйка, все у нее в чернильных пятнах, в дневнике одни двойки, да и еще с невыученными уроками пошла в цирк. Фокусник решил проверить, все ли на представлении хорошо и прилежно учатся. Что же произошло, когда оказалось, что среди детей есть нерадивые ученики?Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Валентина Брумберг, Зинаида БрумбергАктеры: Михаил Яншин, Галина Новожилова, Вера Бендина, Владимир Готовцев, Александр КомиссаровСубтитры: отсутствуютПродолжительность: 00:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BB45DCE5C2F3E53AA0DD87C9B6AF588542D977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765336   (32266) от 02.01.2025
+
+Секретный уровень / Secret Level (2024) WEB-DL  [H.265/2160p] [4K, SDR,  8-bit] (сезон 1, серии 1-15 из 15) HDRezka, LostFilm, 1WinStudio, TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационный сериал, состоящий из оригинальных коротких историй, которые не связаны между собой сюжетами и персонажами и разворачиваются в мире популярных видеоигр — Warhammer, Dangeons & Dragons, Pac-Man, Exodus, Crossfire и других. Многих героев озвучивают известные актеры, такие как Киану Ривз, Арнольд Шварценеггер, Кевин Харт и Габриэль Луна. В качестве сценариста (   Читать дальше...   )Производство: США / Blur StudioЖанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Дэйв Уилсон, Доминик Буаден, Леон Берель, Реми Козыра, Максим ЛюэрАктеры: Киану Ривз, Арнольд Шварценеггер, Эмили Суоллоу, Адевале Акинойе-Агбаже, Элоди Юнг, Рики Уиттл, Парри Шен, Noah Manzoor, Клайв Стэнден, Клаудия ДумитПеревод: многоголосый (HDRezka, LostFilm, 1WinStudio, TVShows)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:15:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F450F5F8ED469002465CB4D547A94B3D12CB8379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770563   (32259) от 02.01.2025
+
+Суперсанта / SuperKlaus (2024) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиф Клаустовски — скромный аниматор, который неожиданно для себя получил способность превращаться в СуперСанту. Вместе с девочкой-подростком Билли и эльфом Лео Клиф должен помешать коварному плану бизнесмена Грампуса, который собирается покончить с главным волшебным праздником года, похитив все игрушки.Производство: Великобритания, Испания / 3 Doubles Producciones, Capitán Araña, Groupe PVPЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Стив Мажори, Андреа СебастиаАктеры: Харланд Уильямс, Милли Дэвис, Пол Ван Дайк, Колм Фиор, Элинор Ноубл, Дэниэл-Антонио Хидальго, Таллула Динсмур, Уайатт Бауэн, Хосе Анхель Хуанес, Рафаэль АскаррагаПеревод: Дублированный (Vox Records)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F079FDD5C889B63D86FC099DD1F7DBD5893FD7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770554   (32252) от 02.01.2025
+
+Формула воды (2024) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка-подросток Дана живёт на одном из островов планеты-океана среди мутантов. Она становится целью пиратов-головорезов, которые считают ее ключом к легендарному сокровищу — источнику питьевой воды. Спасаясь от пиратов, Дана знакомится с труппой бродячих артистов. Вместе им предстоит пережить яркие и опасные приключения, стать настоящими друзьями и разгадать тайну (   Читать дальше...   )Производство: Россия / Мэджик Фэктори, СоюзмультфильмЖанр: мультфильмРежиссер: Артём МинаковАктеры: Юлия Довганишина, Юлия Гаврилина, Андрей Лёвин, Niletto, Эвелина Блёданс, Сергей Гармаш, Алексей Колган, Борис Смолкин, Ольга Кузнецова, Борис РепетурСубтитры: ОтсутствуютПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38A6BCC81BF08976AB097243D3C29C73435A0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770576   (32238) от 02.01.2025
+
+Бернард: Миссия Марс / Bei ken xiong: huo xing ren wu / Bei Ken Xiong: Huoxing Renwu / Backkom Bear: Mars Mission (2023) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы получить всеобщее признание, неудачливый медведь-агент Бернард тайно проникает на корабль, отправляющийся на Марс. Вместе с болтливым роботом G13 ему предстоит выполнить опасное задание — поймать легендарного марсианского монстра. Однако из-за Бернарда, который не очень хорошо справляется с ролью супергероя, всё идёт совсем не по плану.Производство: Китай / Alpha Group, Suzhou Unit Media Co., YoukuЖанр: мультфильм, детский, приключения, фантастикаРежиссер: Ван ЧаоАктеры: Лян Сяоцян, Ба Хэ, Го Чжэнцзянь, Сюань Сяомин, Лин Чжэнхэ, Цзэн Мэнъюй, Цай НаПеревод: Дублированный (VOX Records)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A7B883CAE7EE4DBD600D1A67EC305FF79C084E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770786   (32151) от 03.01.2025
 
 Дикий робот / The Wild Robot (2024) HDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32151.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32136.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32121.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32111.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32090.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32088.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32045.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32034.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32026.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31959.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31890.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31882.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31868.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31858.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31821.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31790.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31650.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31640.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31620.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31535.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31529.jpg" />
 </div>
 
 
@@ -537,137 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:698ED68DB609D1ECD8D280C52DED94F0DECE5552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772078   (31517) от 09.01.2025
-
-Раз ковбой, два ковбой... (1981) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселая пародия на ковбойские вестерны об удивительных приключениях отъявленного бандита и фермера.Производство: СССР / Т/О ЭкранЖанр: мультфильм, короткометражка, вестерн, комедияРежиссер: Анатолий РезниковАктеры: Андрей МироновСубтитры: отсутствуютПродолжительность: 00:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEE5BB9CDFA2F2E3AF115AFB9DF683CC8F3FEAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771933   (31514) от 09.01.2025
-
-Про футбол, хоккей и... Сборник мультфильмов (1955-1981) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соревнование — это всегда игра, зрелище, праздник, даже если речь идет о таких известных противоборствующих командах, как "Метеор" и "Ракета", отчаянные поединки которых от фильма к фильму становятся все жестче, все непримиримей. Грубость, гонор, неуважение к сопернику, нарушение правил игры — плохие помощники на спортивных площадках. Доказательством (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, спорт, короткометражкаРежиссер: Мстислав Пащенко, Борис ДёжкинАктеры: Борис Андреев, Юлия Юльская, Юрий Хржановский, Маргарита Корабельникова, Вероника Иванова, Владимир Перетурин, Александр Баранов (I)Субтитры: отсутствуютПродолжительность: 02:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CAECCF63466DE3A403F55DBDAF7418D2D01CBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772087   (31486) от 09.01.2025
-
-Двенадцать месяцев. Сборник мультфильмов (1956) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник любимых отечественных мультипликационных фильмов для детей: Двенадцать месяцев - это история о том, как жадность одной девочки и каприз другой едва не обрекли на гибель третью, как и положено в сказках, милую, добрую и беззащитную. В яранге горит огонь - по мотивам северных народных сказок.Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, детский, семейный, короткометражкаРежиссер: Михаил Ботов, Ольга ХодатаеваАктеры: Эраст Гарин, Татьяна Барышева, Юлия Юльская, Людмила Касаткина, Галина Новожилова, Григорий Шпигель, Георгий Вицин, Алексей Грибов, Владимир Володин, Геннадий Малышев и другиеСубтитры: отсутствуютПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D912E9FDC79FEF9AF81F0AEA8FA1C49B4D5DCBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772179   (31452) от 10.01.2025
-
-Секретный уровень / Secret Level (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-15 из 15) Jaskier
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории, происходящие в фантастических и фэнтези-мирах.Производство: США / Blur StudioЖанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Дэйв Уилсон, Alex Beaty, Доминик БуаденАктеры: Алекс Лэ, Нельсон Ли, Фред Таташиор, Киану Ривз, Ариана Гринблатт, Арнольд Шварценеггер, Эмили Суоллоу, Рики Уиттл, Элоди Юнг, Адевале Акинойе-АгбажеПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Forced, SDH)Продолжительность: ~00:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B022330B6103D30A14362265BF086E90EE859BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772352   (31384) от 10.01.2025
-
-Комичные истории о разбойниках. Сборник мультфильмов. (1966-1985) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комичные истории о разбойниках. Сборник мультфильмов.
- (Защитники права / Раз ковбой, два ковбой / Украденный экспресс / Погоня / Чертенок с пушистым хвостом / Речные разбойники / Очень синяя борода)Производство: СССР, Польша / Bielsko-Biala, ТО «Экран»Жанр: мультфильм, приключения, вестерн,  короткометражка, комедия, криминал, мюзиклРежиссер: Станислав Дюльц, Анатолий РезниковАктеры: Андрей Миронов, Евгений Евстигнеев, Борис Новиков, Михаил Боярский, Олег Анофриев, Лариса Долина, Александр БелявскийСубтитры: отсутствуютПродолжительность: 01:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A3C744F967A95965D5941FDB036CFF0B2F34C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

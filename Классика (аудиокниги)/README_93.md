@@ -1,3 +1,31 @@
+###  Публикация: 1770476   (32297) от 01.01.2025
+
+Фёдор Достоевский | Преступление и наказание (2024) [MP3, Виталий Сулимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32297.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Преступление и наказание» – гениальный роман, главные темы которого: преступление и наказание, жертвенность и любовь, свобода и гордость человека – обрамлены почти детективным сюжетом.
+
+Многократно экранизированный и не раз поставленный на сцене, он и по сей день читается на одном дыхании.Жанр: классическая проза, русская классика, философская проза, романИздательство: ЛитРесПродолжительность: 21:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C57B478F0DD1E4D7925867CBC291795D03AB67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770452   (32295) от 01.01.2025
 
 Фёдор Достоевский | Бесы (2007) [MP3, Александр Андриенко]
@@ -6,7 +34,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32295.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32291.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32289.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32283.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32198.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32089.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31895.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31812.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31784.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31557.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31555.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31550.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31519.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31482.jpg" />
 </div>
 
 
@@ -378,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31469.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30428.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30427.jpg" />
 </div>
 
 
@@ -458,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30425.jpg" />
 </div>
 
 
@@ -484,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30411.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30207.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30202.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30194.jpg" />
 </div>
 
 
@@ -594,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29310.jpg" />
 </div>
 
 
@@ -622,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28855.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28696.jpg" />
 </div>
 
 
@@ -659,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4726DDDDA3812B2FC7FC26D497C3278A3FFDBFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 373959   (28518) от 06.02.2025
-
-Александр Куприн | Гранатовый браслет. Избранное (2003) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XX век. Русская проза.
-В аудиокнигу вошли лучшие сочинения Александра Ивановича Куприна (1870–1938) и наиболее яркие произведения начала XX века, когда писатель стал не только известным, но и знаменитым. Его называли самым человечным писателем. Сам же Куприн плакал над рукописью «Гранатового браслета» и говорил, что ничего более целомудренного он не писал.Жанр: Русская литература, классика, повесть, рассказИздательство: Студия «АРДИС»Продолжительность: 08:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE65AB51CC3E496F1F472F97CF40BE4683DB3BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

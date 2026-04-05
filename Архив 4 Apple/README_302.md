@@ -6,7 +6,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647761.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe Audition CC 2015.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647249.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Vectoraster 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647071.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tomates - Time Management 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646720.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ EndNote X9 v9.1.1 (Build 14483) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646557.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Movavi Video Editor Plus 15.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646543.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646541.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Movavi Video Editor 4 v4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646189.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Elmedia Player Pro 5.2.623 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645313.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Multitouch 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645282.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ AudioFinder 5.9.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645094.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Tipard Mac Video Converter Ultimate 9.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645085.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ AirFoil+Airfoil Satellite 5.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645084.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Affinity Designer 1.7.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644989.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ iSkysoft iTube Studio 7.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644979.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Check Off - A Task Manager 5.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644962.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ A Better Finder Rename 10.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644871.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ CloudMounter 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644708.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Archiver 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644587.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Davinci Resolve Studio 17.4.6 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644507.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Adguard for Mac 2.8.0 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644505.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sketch 44.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644190.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Paws for Trello 1.0.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644019.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ CodeRunner 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644013.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ SiteSucker 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643813.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ TechTool Pro 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643345.jpg" />
 </div>
 
 

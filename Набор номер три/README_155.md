@@ -1,3 +1,160 @@
+###  Публикация: 1501107   (835865) от 09.10.2021
+
+Правительство одобрило повышение платы за капремонт на 25% из-за цен на стройматериалы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_835865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьер-министр Михаил Мишустин утвердил постановление, по которому до конца текущего года может изменяться стоимость оказания услуг по капремонту не более чем на 25% из-за подорожания строительных материалов. Документ опубликован на интернет-портале правовой информации.При этом сумма повышения не может превышать объем средств, которые региональный оператор имеет (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501081   (835863) от 09.10.2021
+
+Цены на билеты в кино обновили шестилетний максимум
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_835863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средняя цена билета в кино по итогам недели с 30 сентября по 6 октября этого года составила 304,8 руб. – рекорд почти за шесть лет, сообщил РБК со ссылкой на базу данных Единой федеральной автоматизированной информационной системы сведений о показах фильмов в кинозалах (ЕАИС).За неделю в кино сходили 5,1 млн человек. Большее число зрителей было зарегистрировано с (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501275   (835861) от 09.10.2021
+
+СМИ: Британии грозит дефицит туалетной бумаги "из-за России"
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_835861.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Британии может возникнуть дефицит туалетной бумаги из-за ситуации с ценами на газ. Об этом пишет портал Daily Mail."Производители серьезно затронуты ростом расходов на производство туалетной бумаги и ее упаковку. Это бьет по доходам и приводит к сокращению выпуска продукции", — приводит издание слова генерального директора Конфедерации бумажной промышленности (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499761   (835844) от 09.10.2021
+
+Игра в кальмара / Ojingeo geim / Squid Game (2021) WEB-DLRip [H.264] (сезон 1, серии 1-9 из 9) HDRezka
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835844.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вы бы согласились за 40 миллионов долларов (45,6 миллиардов вон) поставить свою жизнь на кон? Мы с недоумением, часто с презрением слышим новости о людях, которые совершали дикие поступки ради больших и не очень денег. Но так ли далеко мы ушли от тех, кто готов умереть, если даже работая в офисе мы отдаем огромную часть своей жизни? Ки Хун и Сан У друзья детства. (   Читать дальше...   )Производство: Корея Южная / Netflix, Siren Pictures KoreaЖанр: триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ви Ха-джун, Ким Джу-рён, Ли Джи-ха, Кон ЮПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D043437248FE60046EA66A8E3F00FE9926ECBE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479959   (835843) от 09.10.2021
+
+Win 10 Tweaker 18.1 Portable by XpucT [Multi/Ru]
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win 10 Tweaker – это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию и очистку Windows в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей – средствами только самой программы.Язык интерфейса: Русский, английский, украинский, немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E302ADC10CF21F89FF80EA0275227EDB40D026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004499   (835790) от 07.04.2016
+
+Основатель Opera запускает браузер Vivaldi, вложив в него $6 млн
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_835790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен Vivaldi — браузер в лучших традициях Opera
+В России запустили новый интернет-браузер Vivaldi от основателя компании Opera Software Йона фон Течнера. В его создание он вложил 6 миллионов долларов. Браузер разработан на базе открытой системы Chromium, на которой работают Chrome и "Яндекс.Браузер".Течнер был одним из сооснователей Opera Software (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004964   (835754) от 07.04.2016
 
 AVG PC Tuneup 16.32.2.3320 [Multi/Ru]
@@ -6,7 +163,7 @@ AVG PC Tuneup 16.32.2.3320 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835754.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835748.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ AAct 3.2 DC 11.03.2017 Portable [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835743.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835741.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835740.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835739.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835738.jpg" />
 </div>
 
 
@@ -191,7 +348,7 @@ ArchiCAD 19 Build 5005 + Add-Ons [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835736.jpg" />
 </div>
 
 
@@ -217,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835735.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ HP Service Pack for ProLiant [с 2011 по 2016 гг.]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835734.jpg" />
 </div>
 
 
@@ -269,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_835733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_835733.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_835539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_835539.jpg" />
 </div>
 
 
@@ -323,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835526.jpg" />
 </div>
 
 
@@ -350,7 +507,7 @@ Autodesk Inventor Professional 2014 Build 170 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835474.jpg" />
 </div>
 
 
@@ -377,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835451.jpg" />
 </div>
 
 
@@ -405,7 +562,7 @@ Avid Studio 1.0.0.2804 Retail (+ Contents +Training) [Multi/Rus]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835446.jpg" />
 </div>
 
 
@@ -431,7 +588,7 @@ Paradise (2006) [Ru] (1.1) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835149.jpg" />
 </div>
 
 
@@ -458,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835143.jpg" />
 </div>
 
 
@@ -484,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_834879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_834879.jpg" />
 </div>
 
 
@@ -510,7 +667,7 @@ Microsoft: Россия стоит за 58% кибератак правител�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_834785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_834785.jpg" />
 </div>
 
 
@@ -521,165 +678,6 @@ Microsoft: Россия стоит за 58% кибератак правител�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501400   (834769) от 10.10.2021
-
-Американская атомная подлодка столкнулась с неизвестным объектом в Южно-Китайском море
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_834769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская атомная подводная лодка "Коннектикут" столкнулась в Южно-Китайском море с неизвестным объектом. В момент столкновения АПЛ находилась в погруженном состоянии в нейтральных водах, сообщает пресс-служба ВМС США.Инцидент произошел еще 2 октября, но сообщили о нем только теперь. Субмарина была незначительно повреждена, 11 подводников получили легкие (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501370   (834758) от 10.10.2021
-
-Windows 11 (v21h2) x64 HSL/PRO by KulHunter v1.2 (esd) [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: ru-ru_windows_11_consumer_editions_x64_dvd_d1754e5a.iso.
-Использован установщик от Windows 10 21H1 (SecureBoot и TPM 2.0 не требуется).
-Отключено несколько компонентов, задействован протокол SMB.
-Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204B1C2A7D1ACBEEF1221DFD4123EDB8E75DE460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114026   (834501) от 13.03.2017
-
-Mortal Kombat X / Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack R.G. Revenants
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mortal Kombat XL – файтинг нового поколения и следующая глава легендарной серии от знаменитой студии NetherRealm. Разработчикам удалось создать самый зрелищный и глубокий файтинг в истории Mortal Kombat, в котором жестокие поединки кинематографического качества объединились с новыми геймплейными элементами. Все персонажи Mortal Kombat X владеют несколькими стилями (   Читать дальше...   )Тип издания: RepackРазработчик: NetherRealm Studios, Showtime Studios и High Voltage SoftwareЖанр: Arcade (Fighting), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B6DBD966BE08B4A9E7A12B60ADD77D5557C761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113787   (834499) от 13.03.2017
-
-По соображениям совести / Hacksaw Ridge (2016) BDRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медик Американской армии времён Второй Мировой войны Дезмонд Досс, который служил во время битвы за Окинаву, отказывается убивать людей и становится первым идейным уклонистом в американской истории, удостоенным Медали Почёта.Производство: Австралия, США / AI-Film, Argent Pictures, Bliss MediaЖанр: драма, военный, историяРежиссер: Мэл ГибсонАктеры: Эндрю Гарфилд, Ричард Пирос, Джейкоб Уорнер, Мило Гибсон, Дарси Брайс, Роман Геррьеро, Джеймс Лагтон, Касия Стелмах, Хьюго Уивинг, Рэйчел ГриффитсПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full), английские (forced, full+SHD)Продолжительность: 02:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BB774BFC04E94DFFAC1867C6869EA37AD63343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037958   (834497) от 13.03.2017
-
-Freemake Video Converter 4.1.9.80 RePack by CUTA [Multi/Ru]
-
->>3
->>14
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A751B2651544BC06EF610FF9BEF0C9B19976B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879510   (834448) от 19.03.2015
-
-Far Cry 4 (2014) [Ru] (1.9.0/dlc) SteamRip R.G. Origins [Gold Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Кират – затерянную среди вершин Гималаев страну с богатыми традициями, мир которому угрожает деспотичный правитель. Ваш герой, Аджай Гейл, прибыл сюда, чтобы исполнить последнюю волю матери, но оказался втянут в гражданскую войну: местные жители пытаются свергнуть самозванца Паган Мина. Отправляйтесь в путешествие по открытому миру, но будьте осторожны: (   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Разработчик: Ubisoft Montral, Ubisoft Shanghai и Red Storm EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE26B62ADC3163647397D38F29AA9814CA040986
 ```
 
 https://mybot314.ru/tekegram_catalog/

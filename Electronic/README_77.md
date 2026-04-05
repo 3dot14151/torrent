@@ -1,3 +1,61 @@
+###  Публикация: 1366834   (920583) от 13.03.2020
+
+Fritz Kalkbrenner - True Colours (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Things (3:57)
+ 02. Bright (4:54)
+ 03. Kings & Queens (3:43)
+ 04. One Day At A Time (4:31)(   Читать дальше...   )Жанр: Electronic, House, Tech HouseПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5DB6997D39226CCD100BF8EFF2804CC754797D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366847   (920582) от 13.03.2020
+
+Adani & Wolf - Here Comes the Hero (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Jazz House, Dance, Bossa, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Else (4:25)
+ 02. Riding the Shadow Horse (5:48)
+ 03. Let It Go (Extended Mix) (4:15)
+ 04. Love Down Under (3:32)(   Читать дальше...   )Жанр: Electronic, Jazz House, Dance, Bossa, LoungeПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A18618FBC2002397388E92F2C85EE99BD62D06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366760   (920576) от 13.03.2020
 
 VA - Trance Legion Vol.1-4 (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
@@ -6,7 +64,7 @@ VA - Trance Legion Vol.1-4 (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_920576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_920576.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Illenium - Ashes (2016) [MP3|320 кб/с] <Dubstep, Future Bass, MidTempo>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920432.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Boris Brejcha - Violet Pill (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Mi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920306.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ VA - Sun Emotions Vol.1 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919411.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ VA - Chill Party Chillout Fine Selection (2017) [MP3|320 Kbps] <Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919407.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifti
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919395.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ VA - Bossa & Chill Vol.1 (Finest Latin Bar & Lounge Music) (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919322.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ VA - Deephouse Night Beats (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919308.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ VA - Good Music 2017-Top 10 Best Slow Music (2017) [MP3|320 Kbps] <Electronic, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919249.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Business Lounge  Vol.1 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919209.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Daniel Masson - Jetlag 2015 Edition (2015) [MP3|320 кб/с] <Electronic, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919192.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Goa Trance Vol.42 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919130.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Cafe Italiano: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919025.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Onset Audio 200 (2020) [MP3|320 Kbps] <Drum & Bass, Leftfield Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918967.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Kölsch (Kolsch) - Discography 32 Releases (2010-2021) Kompakt [FLAC|Lossless|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918643.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - 10 Years Of Trimurti Festival (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917790.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Vocal House on Ice Lech 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917785.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Das.RBT - At Night (2017) [MP3|320 Kbps] <Electronic, Downtempo, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917742.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Chilled Mood Vol.2 (Finest in Chill Out & Ambient Music) (2017) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917722.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Dissident - Pseudomusic 2 (2006) [FLAC|Lossless|tracks + .cue]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917684.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Leaving Laurel - Leaving Laurel (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917572.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ Tiesto - Club Life 750 (Top 50 Fan Favorites) (2021-08-13) [MP3|192 Kbps] <Elect
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917514.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ VA - Buddha Luxury Vol.1 (By Marga Sol) (2016) [MP3|320 Kbps] <Ambient, Relaxati
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917506.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ VA - Revealed Recordings presents Miami Festival 2020 (2020) [MP3|320 Kbps] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917471.jpg" />
 </div>
 
 
@@ -683,64 +741,6 @@ VA - Revealed Recordings presents Miami Festival 2020 (2020) [MP3|320 Kbps] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47B6663F3F21FD75E4E976BDB0363241815F215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366891   (917414) от 15.03.2020
-
-Nervenbeisser - Collection (2 Albums: Geschlechterschlacht, Zeitwandel) (2015 - 2017) [MP3|320 Kbps] <NDH, Gothic Metal, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Tagesablauf [00:02:34]
-02. Verkehrte Welt [00:05:19]
-03. Ein letztes Mal [00:04:09]
-04. Zeitenwandel [00:04:30](   Читать дальше...   )Жанр: NDH, Gothic Metal, IndustrialПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81B958FDDC680B928564D71475C1A246B8531A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989284   (917385) от 22.02.2016
-
-VA - RLX 9: The Chill out Collection (2015) [MP3|128-320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Diventa Project - Coffee Shop (Short Edition) [04:14]
-02. Jens Buchert - Silver Session [05:40]
-03. C.Cil - Calm And Quiet [02:59]
-04. Fineconfine - Digital Night [05:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1135E26586784265EE17E1F1900304E39CD867A
 ```
 
 https://mybot314.ru/tekegram_catalog/

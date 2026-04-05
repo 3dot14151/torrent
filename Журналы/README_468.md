@@ -1,3 +1,134 @@
+###  Публикация: 499044   (256041) от 20.05.2012
+
+Журнал | Авиация и время №2 [март-апрель 2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробно и достоверно об авиации разных времен и стран. Основой каждого номера является большая статья, подробно рассказывающая о биографии какого-либо летательного аппарата, его конструкции и технических характеристиках. Статья готовится на базе сведений, полученных от фирм-разработчиков и лиц, участвовавших в эксплуатации ЛА. Она снабжается большим количеством фотографий, многие из которых публикуются впервые, точными чертежами и исторически достоверными окрасками конкретных машин.март-апрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A35091F09B6BE9E5282A570A3FA6412873CBF04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498775   (255726) от 19.05.2012
+
+Журнал | Esquire [Россия] №78 (июнь 2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Esquire предназначен для умных и разборчивых мужчин – для тех, кого не прельщают дешевые сенсации, для тех, кто в состоянии оценить настоящий стиль в литературе и моде.
+Esquire – это высочайшее качество текстов, блестящая журналистика, эксклюзивные интервью со звездами и прекрасные фотографии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7C4C2D745F1CC0FE309E181437BC0C3C892FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624780   (255374) от 09.04.2023
+
+Журнал | Nuts and Volts №3 (2022) [PDF][En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255374.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняЖанр: ЭлектроникаЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6CEC6B2C1E528515D68773C6F4245502D700CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628742   (254853) от 24.04.2023
+
+Журнал | Таинственные истории №9 (2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254853.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: история, мистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66727D93E1122020CD0B0086A8D3B292A90802BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498465   (254229) от 18.05.2012
+
+Подшивка журналов | ПРОграммист №1-18 (2010-2012) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254229.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале вы найдете много интересной, а главное - эксклюзивной (все статьи авторские), и, надеемся, полезной информации. Среди авторов журнала как видные ученые, профессиональные инженеры-разработчики. Как говорится: "...и стар и млад..." есть даже биологи, увлекшиеся программированием. География участников охватывает почти весь СНГ. У начинающей молодежи, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10DCFBB1AB3043ED330F63836C36CB01DD446F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498409   (254102) от 18.05.2012
 
 Журнал | Maxim [Россия] №6 (Июнь 2012) [PDF]
@@ -6,7 +137,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254102.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254042.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254038.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254027.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253960.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253934.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253732.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253677.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253641.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253208.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253203.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253186.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253153.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252907.jpg" />
 </div>
 
 
@@ -375,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252887.jpg" />
 </div>
 
 
@@ -401,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252868.jpg" />
 </div>
 
 
@@ -429,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252863.jpg" />
 </div>
 
 
@@ -456,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252840.jpg" />
 </div>
 
 
@@ -484,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252832.jpg" />
 </div>
 
 
@@ -510,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252735.jpg" />
 </div>
 
 
@@ -536,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251466.jpg" />
 </div>
 
 
@@ -547,137 +678,6 @@ GQ Style – это каталог практических рекомендац
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29F2A9B9763ACC1DDFA40985C6365F6C6CBDFFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495495   (251453) от 12.05.2012
-
-Подборка журналов | Секрет фирмы [2010 - 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251453.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Секрет фирмы» - деловой журнал, в котором вы найдете самую подробную и объективную информацию о современном бизнесе и его технологиях, положительном и отрицательном опыте компаний и корпораций всего мира, материалы об удачных и суперприбыльных сделках, грамотных решениях в бизнесе, насущных проблемах в деловом мире – в общем все то, что необходимо знать руководителю современной компании, чтобы всегда оставаться на гребне финансовой волны и уверенно и четко вести фирму к успеху.
-Главный вопрос для журнала - не что произошло и что было сделано, а почему это произошло, зачем это было сделано и как именно.2010 - 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD333AC9D8E670F9A89F8A1FF8E06CD5A17B9670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495663   (251425) от 12.05.2012
-
-Журнал | Гастрономъ №4 [апрель 2012] [DJVU]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный красочный и модный журнал, для тех кто любит вкусную пищу и всё, что с ней связано. Отечественный кулинарный журнал европейского уровня. Его цель не столько развлекать, сколько вдохновлять читателей на кулинарное творчество, помочь им почувствовать настоящий вкус жизни. Интервью со звездами и их фирменные рецепты, рассказы о кулинарных традициях других стран и аппетитные истории из жизни известных людей, модные диеты, лучшие рестораны, правила этикета и сервировки, секреты приготовления блюд.апрель 2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB94D4A0982040B0024044771B7541B265FE1E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495330   (251405) от 12.05.2012
-
-Журнал | Тайны ХХ века №19 [май 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!май 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19B9088FC261D04C0FC5FAFEADE896456ED5FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495120   (251161) от 11.05.2012
-
-Журнал | Фотомастерская №4 [апрель-май 2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251161.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Фотомастерская» поможет любому фотографу – профи или новичку – почувствовать себя художником. Это единственное в России издание по пост-фотографии. В каждом номере: новейшие технологии в области обработки цифровой фотографии, коллажа и печати; арт-проекты экспертов; обучающие мастер-классы.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253E9CB5106F0D4B255ADA0616FBC1679DE1029F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495274   (251115) от 11.05.2012
-
-Журнал | PC Magazine [Россия] №5 (май 2012) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251115.jpg" />
-</div>
-
-
-###  Подробнее
-
-PC Magazine/RE «Персональный компьютер сегодня» — компьютерное издание для квалифицированных пользователей и профессионалов, работающих в малом и среднем бизнесе. Журнал знакомит с достижениями и тенденциями развития информационных технологий. Основное внимание уделяется описанию новых аппаратных, программных и сетевых продуктов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB469554DC1A3C11B2A3702E6791F93142A1DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

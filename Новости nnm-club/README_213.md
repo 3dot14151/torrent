@@ -1,3 +1,55 @@
+###  Публикация: 1262486   (290949) от 17.11.2018
+
+Спутниковый интернет отдают под контроль государства
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_290949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Госдуму внесён законопроект, призванный предотвратить «неконтролируемый ввоз абонентских терминалов и использование зарубежных спутниковых систем связи и доступа в интернет на территории РФ в целях национальной безопасности», причём он идентичен ранее выложенному Минцифры на общественное обсуждение документу.Членами Совета Федерации Л.Боковой, А.Клишасом, И.Морозовым (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262706   (290800) от 17.11.2018
+
+deepin 15.8 [x86_x64] 1xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290800.jpg" />
+</div>
+
+
+###  Подробнее
+
+deepin — дистрибутив Linux, основанный на пакетной базе Debian Unstable с собственным окружением рабочего стола DDE — Deepin Desktop Environment, с оконным менеджером Gala (форк Mutter) и рядом приложений домашней разработки, среди которых музыкальный проигрыватель — аудиоплеер Deepin, видеоплеер — DMovie, система обмена сообщениями - DTalk, инсталлятор (установщик (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874257DDBFF15DEBA39C576C47D5BFDE95DEB03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262970   (290692) от 17.11.2018
 
 A Way Out (2018) [Ru/Multi] (1.0.62) Repack R.G. Механики
@@ -6,7 +58,7 @@ A Way Out (2018) [Ru/Multi] (1.0.62) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290692.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290649.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ TechSmith Camtasia Studio 9.1.1 Build 2546 RePack by KpoJIuK  [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290622.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Winamp Pro 5.666 Build 3516 Final Repack by elchupacabra (21.11.2017)  [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290620.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_290589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_290589.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ WebForMySelf | Python. Полное руководство (2019) [unpacked]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290516.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290433.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290422.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Townsmen (2016) [Ru/Multi] (1.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289267.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289266.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ KMSAuto Net 2016 1.4.9 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289263.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288987.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ Microsoft Windows 10 Professional VL x86-x64 1809 RS5 RU by OVGorskiy 11.2018 2D
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288888.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288736.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Windows 10 1909 Professional x64 Matros v10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288733.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288730.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Uninstall Tool 3.4.4 Build 5416 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288628.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287519.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287266.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287213.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ ITVDN | Серия уроков HowTo (2016) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287188.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ Nero Burning ROM 2017 18.0.01000 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287175.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ MSActBackUp 1.1.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287173.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287162.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8856C2614E2492BA2D1E724BB9F0855D46295F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173825   (287092) от 19.11.2018
-
-Battle Chasers: Nightwar (2017) [Ru/Multi] (24037) Repack R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battle Chasers: Nightwar - это красочная ролевая игра с интересным сюжетом, где герою предстоит путешествовать по опасным подземельям и участвовать в сражениях, механика которых заимствована из классических jRPG.  Погрузитесь в мир комикса-бестселлера 90-х!Тип издания: RepackРазработчик: Airship SyndicateЖанр: Strategy (RTS, TBS), RPG, ActionЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2F15E1A557E9779D016C9EC041799410393A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 161018   (287076) от 14.12.2011
-
-Кин-Дза-Дза (1986) DVDRip (серии 1-2 из 2)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прораб Владимир Николаевич Машков и студент Гедеван из Советского Союза середины 80-х годов XX века оказываются на планете Плюк в галактике Кин-Дза-Дза. Планета эта представляет собой "конец технологической цивилизации", которая исчерпала все ресурсы ради технического прогресса. В компании двух бродячих артистов Уэфа и Би прораб и студент пытаются вернуться (   Читать дальше...   )Жанр: Фантастика, Комедия, ПриключенияРежиссер: Георгий ДанелияАктеры: Станислав Любшин, Леван Габриадзе, Евгений Леонов, Юрий Яковлев, Ольга Машная, Георгий Данелия, Лев Перфилов, Ирина Шмелева,Перевод: ОригинальныйПродолжительность: 02:07:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

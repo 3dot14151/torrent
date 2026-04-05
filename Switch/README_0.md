@@ -6,7 +6,7 @@ Shining Resonance Refrain (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.1]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791751.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BioShock Remastered (2020) [Switch] [USA] 9.2.0 [NSP] [Repack / 1.0.2] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783573.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ni no Kuni Wrath of the White Witch Remastered (2019) [Switch] [USA] 9.1.0 [NSP]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783267.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Super Mario Party (2018) [Switch] [EUR] 6.0.0 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743162.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Paper Mario: The Origami King (2020) [Switch] [USA] 10.0.4 [NSP] [License / 1.0.
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714550.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Dusk Diver (2019) [Switch] [USA] 9.2.0 [NSP] [Unofficial / 1.0.5] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712733.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Skullgirls: 2nd Encore (2019) [Switch] [USA] 9.1.0 [NSZ] [Unofficial / 1.0.3] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683872.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Samurai Jack: Battle Through Time (2020) [Switch] [USA] 10.1.0 [NSP] [License / 
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683871.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Tetris 99 (2019) [Switch] [EUR] 8.0.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510702.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Battle Chasers Nightwar (2018) [Switch] [EUR] 8.1.0 [NSP] [eShop / 1.0.2] [Ru/En
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497462.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Super Mario Odyssey (2017) [Switch] [EUR] 8.1.0 [NSP] [eShop / 1.3.0] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497353.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Divinity: Original Sin 2 - Definitive Edition (2019) [Switch] [USA] 10.1.0 [NSP]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492771.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Super Mario Maker 2 (2019) [Switch] [USA] 10.0.4 [NSP] [License / 3.0.1] [Ru/Mul
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467927.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Othercide (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.1.0.5] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453161.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Prison Princess (2020) [Switch] [USA] 9.1.0 [NSZ] [License / 1.0.1] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437733.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Cadence of Hyrule (2019) [Switch] [USA] 10.1.0 [NSP] [Unofficial / 1.4.0 / DLC] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415299.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Spiritfarer (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.3] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411178.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Hades (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.36054] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407852.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Immortal Realms Vampire Wars (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.0.1
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407846.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Valkyria Chronicles  4 (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407844.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Ash of Gods: Redemption (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.0.3] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407747.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Ori and the Blind Forest: Definitive Edition (2019) [Switch] [EUR] 8.1.0 [Licens
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367392.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Mario + Rabbids Kingdom Battle (2017) [Switch] [EUR] 5.1.0 [License / DLC] [Ru/E
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365226.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Indivisible (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362082.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Thronebreaker: The Witcher Tales (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350500.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Pumpkin Jack (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.8] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346279.jpg" />
 </div>
 
 

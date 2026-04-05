@@ -6,7 +6,7 @@ BBC: Морские гиганты / Ocean Giants (2011) BDRemux [VC-1/1080p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58902.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BBC: История древней Британии / A History of Ancient Brita
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58822.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58821.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ BBC: Звуковые волны: симфония физики / Sound Waves: T
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58814.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58746.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58724.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58718.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58570.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ History Channel. Заговор НЛО: в поисках правды / UFO Con
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58534.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ BBC: По странам и континентам. Дикая Африка / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58478.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58466.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58434.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58389.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58358.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58277.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58169.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ BBC: Тайная наука. Химическое и биологическое
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58167.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57991.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Discovery. Железная дорога Австралии / Railroad Australia
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57790.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57694.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57670.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57669.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57651.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57639.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57535.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ NG: Самые страшные стихийные бедствия: Земле�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57430.jpg" />
 </div>
 
 

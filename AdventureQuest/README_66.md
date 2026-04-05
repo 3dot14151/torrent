@@ -1,3 +1,81 @@
+###  Публикация: 1676640   (154920) от 14.11.2023
+
+Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди далёкого будущего взяли себе за правило: человеческие жизни слишком ценны, чтобы рисковать ими ради освоения глубокого космоса. Именно поэтому в атмосфере чужой неприветливой планеты, под широкой кроной растительной станции "Айлант", живёт раса искусственных помощников - артифитов. Молодого артифита-исследователя Эйна мучает неясная тоска.Тип издания: SceneРазработчик: WirionЖанр: ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BC872892AFAC0A4429D69CF4BAD22538F58429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075503   (154588) от 25.12.2017
+
+Life Is Strange (2015) [Ru/En] (1.0.0.397609) Repack xatab [Episode 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Life is Strange – эпизодическое приключение, события которого развиваются в вымышленном городе Аркадия Бэй, что в Орегоне. История о дружбе, которая могла быстро закончиться если бы не внезапно открытый талант Мэкс. Она нашла в себе дар - возможность перематывать время.Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Adventure (Interactive drama), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFF732190C911F4DE9432E6D866ABAE6DD86F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345678   (154485) от 21.12.2019
+
+Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в мрачное приключение мальчика с протезом на лице и тяжелым прошлым. В первом эпизоде под названием "Странные соседи" Салли-кромсали и его отец переезжают в новую квартиру, встречают самых разных жильцов здания и понимают, что чуть не стали свидителями преступления. Они и не подозревали, что невзгоды только начинаются... Распутайте зловещую (   Читать дальше...   )Тип издания: RepackРазработчик: Steve GabryЖанр: AdventureЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C27E485CF8110B8B57E71BC8B7B2FBEA1845BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600840   (153670) от 29.12.2022
 
 Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanced Edition]
@@ -6,7 +84,7 @@ Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153670.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Titan Station (2022) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153259.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Oxenfree (2016) [En] (2.6.0cs HotFix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153010.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153001.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Life Is Strange: Complete Season (2015) [Ru/Multi] (1.0.0.397609) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152690.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151870.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151737.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151256.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Disney Infinity 1.0 (2016) [Multi] (1.0.1/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151091.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Disney Infinity 2.0 (2016) [Ru/Multi] (1.0.2/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151005.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Disney Infinity 3.0 (2016) [Multi] (1.0.3/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150968.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150884.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150229.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Leviathan: The Last Day of the Decade / Левиафан: Последний д�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149739.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Scarf (2021) [Ru/Multi] (1.0.1) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149106.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149081.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148564.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146594.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145967.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145884.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145640.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145630.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ KURSK (2018) [Ru/En] (2.1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144970.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ KURSK — первая документальная приключенческа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F1F74C729503EAE2BDDF48C5D04091B5B8A284C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435247   (144821) от 27.12.2020
-
-Death Stranding (2020) [Ru/Multi] (1.06hf/dlc) Repack xatab
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Death Stranding – один из самых ожидаемых релизов от разработчика Хидео Кодзимы, ранее доступный только для PS4. Это экшен нового поколения, который успешно переплетает классические механики с абсолютно новыми, а огромный открытый мир с интригующим сюжетом. Death Stranding подарит игрокам принципиально новый опыт, определяющий целый новый жанр.Тип издания: RepackРазработчик: KOJIMA PRODUCTIONSЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846A3A8ABC1526821E58224B308D44EF7E4D99F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678406   (144680) от 21.11.2023
-
-First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144680.jpg" />
-</div>
-
-
-###  Подробнее
-
-FIRSTDATE: LATE TO DATE — это романтически-комедийная интерактивная кинематографическая игра (FMV), в которой зритель определяет ход фильма с опциями, появляющимися каждую минуту. Добродетель должна убедиться, что Деря простит ее на этом первом свидании, когда она опаздывает, иначе их отношения закончатся до того, как они начнутся. С решениями, которые он примет (   Читать дальше...   )Тип издания: RepackРазработчик: Digital Fossil, Eyexapp PlayЖанр: Adventure (Interactive Movie)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DE198637B458215D945D0AF1B930F63079DBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656821   (144447) от 21.11.2023
-
-Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144447.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Trine 5: A Clockwork Conspiracy волшебник Амадей, воровка Зоя и рыцарь Понтий отправятся в свое самое захватывающее путешествие. Когда на их репутации появляется огромное пятно, любимые попадают в беду, а их собственные магические силы оказываются под угрозой, герои Тройки должны сплотиться, чтобы дать отпор ужасной Механической армии и восстановить мир и справедливость.Тип издания: LicenseРазработчик: FrozenbyteЖанр: Action, AdventureЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

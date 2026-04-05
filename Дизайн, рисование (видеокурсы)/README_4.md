@@ -1,3 +1,57 @@
+###  Публикация: 1442691   (1036241) от 26.01.2021
+
+Jonathan Lampel | Normal Map Modeling for Games (2017) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стоит моделировать для качества или производительности? Ответ - нужно балансировать между тем и тем. Создание карт нормалей это техника текстурирования, которая позволяет нам имитировать детали высокого разрешения на лоу-поли сетках. В данном курсе мы узнаем техники моделирования, которые необходимы при запекании высококачественных нормалей.Производство: CGCookieЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A443CAF2C42015E42221767A04708C065D9B4D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442918   (1036228) от 26.01.2021
+
+Alex Jerjomin | Sculpting a Stylized Axe in ZBrush (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036228.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом обучающем видеокурсе, мы узнаем как слепить стилизованный топор.
+Мы подготовим наш топор к скульптурированию при помощи блокаута в 3ds Max. Затем мы проведем глубокий скульптинг различных материалов, таких как ткань, дерево и металл.
+К концу этого видеокурса по ZBrush, у вас будут не только ассеты вашего собственного топора, но и возможности для создания его (   Читать дальше...   )Производство: Digital TutorsЖанр: СкульптингПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23BB38534B5841E55F0C3B250DE5C51D698AC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442692   (1036223) от 26.01.2021
 
 Patrick Gladys | Creating Game-Ready Vegetation (2019) PCRec [En, Ru]
@@ -6,7 +60,7 @@ Patrick Gladys | Creating Game-Ready Vegetation (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036223.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035989.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035986.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Paris Christou | How to Draw Cartoon Animals (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035947.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ CartoonSmart | Tradigital Animation: 2D FX (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035927.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Marc Brunet | Painting Character Portraits (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035915.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035911.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ Marc Brunet | 3D Hand-painted Character For Games (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035902.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн окружения от А 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035901.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ Patreon, Ian Hubert | Уроки с сайта Patreon по 3D моделиро�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035899.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035886.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ New Art School ,Егор Гришин | База CG (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035595.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ New Art School, Егор Гришин | Скетчинг (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035592.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ Lectoroom, Мария Павлова | Старичок с воробьями (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035542.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ The Gnomon Workshop, Pawel Margacz | Creating Stylized VFX in Unreal Engine 5 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035521.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ Syd Mead | Airship Arrival (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035438.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ Feng Zhu | The Techniques of Feng Zhu Vol 1-3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035430.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ Shane Hurlbut | Experience Lighting Masterclass (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035427.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ Shannon Thomas, Paul 'BirD' Warzecha, Michael Vicente | Presentation Blizzard En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035426.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ Lynda, David Andrade | Тренинг по основам Blender 2.91 / Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035424.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ Jonathan Lam | Design Isometric Environments for Games (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035418.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ Van Arno | Figure Fundamentals Volume 1 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035405.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ Glenn Vilppu | Drawing Manual 1. Gesture (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035382.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ CG Cookie | Уроки по 3D моделированию в Blender / Blender T
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035340.jpg" />
 </div>
 
 
@@ -631,61 +685,6 @@ CG Cookie | Уроки по 3D моделированию в Blender / Blender T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D2B34D281C82B69DF9384B7F3B5FC59F7EAF00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443519   (1035301) от 29.01.2021
-
-Knower School ,Дмитрий Смирнов | Курс художественной 3D графики (2021) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035301.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсе вы познакомитесь с важной составляющей 3D проектов - творчество! Важно наполнить работу характером, интересной формой и движением. Мы изучим моделирование в 3ds Max с другой стороны, где важен начальный драфт, силуэт, движение по форме, разнообразие деталей. Обязательно научимся делать развертки, чтобы создавать качественные PBR текстуры в программе для (   Читать дальше...   )Производство: Knower SchoolЖанр: 3D графикаПродолжительность: 15:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204D8ADAABA1881BD2C2F2CF9EDDAD8E98180FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416946   (1035252) от 06.03.2023
-
-Никита Ивановский | 6 ступеней 3D мастерства 2 из 6 [Вторая ступень: 3D-Визуализатор архитектурных объектов и интерьеров] (2018) HDTVRip
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035252.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсе Вы научитесь придумывать и создавать элементы цифрового брендинга для недвижимости и бизнеса любой сложности: 3D визуализации, 3D анимацию, интерактивные туры.
-Узнаете, с помощью каких технологий возможно «вкусно» презентовать инвестиционный проект или интерьерный/экстерьерный проект для клиента.
-
-Программа курса хорошо продумана и позволяет в сжатые сроки (   Читать дальше...   )Жанр: 3D, графика, дизайнПродолжительность: 48:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2F7ED339B7AAFC10C766ED2883639D2369B4F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

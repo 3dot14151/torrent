@@ -1,3 +1,55 @@
+###  Публикация: 1012866   (379565) от 01.11.2016
+
+Endless Legend (2014) [Ru/Multi] (1.5.1.s3/dlc) Repack R.G. Catalyst
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще один рассвет - и впереди еще один день, полный забот. Нужно вырастить пищу, построить здания, заняться науками и магией, сделать еще один шаг к процветанию вашей цивилизации. И как можно быстрее, ведь вы пишете историю своей планеты в нелегкое время - после необъяснимого апокалипсиса и самой суровой зимы, которую когда-либо переживало человечество.Тип издания: RepackРазработчик: Amplitude StudiosЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD21E0E6A562076E4BA0198B7E256C58AA398A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068687   (379561) от 01.11.2016
+
+The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.1.47.0.8) Repack R.G. Catalyst [Special Edition]
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379561.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Elder Scrolls V: Skyrim Special Edition - это улучшенное и расширенное переиздание оригинальной The Elder Scrolls V: Skyrim, в котором были добавлены новые враги, снаряжение, локации, персонажи, а также включены все официальные дополнения к игре, вышедшие до момента релиза Special Edition.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80057F5902B5A3C42AFF5A0C59DD1E9F40DB5FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949156   (378721) от 22.10.2015
 
 Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) Repack R.G. Catalyst
@@ -6,7 +58,7 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378721.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Eat This! [En] (L) 1997
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377762.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ World in Conflict Complete Edition [Ru] (ReЗack) 2009 | RepackUA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377570.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Owlboy (2016) [En] (1.0) License GOG [Collector's Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377481.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Call of Duty: Black Ops 2 [Ru] (L) 2012 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377287.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Victor Vran (2015) [Ru/Multi] (2.04/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376704.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Mystery of the Earl (P) [En] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376359.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Good Intentions (P) [En] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376358.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.9.0-f5/dlc) License RELOADED [Deluxe Editi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375860.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Darkness Ahead (2016) [En] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375194.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Sleeping Dogs - Limited Edition [Ru] (RePack/ 1.7.424719 + DLC) 2012 l YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374772.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Haunted Domains (P) [En] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374143.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ DeathSpank [En] (RePack) 2010 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373417.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Shaun White Skateboarding [Wii] [PAL] [Multi 5] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373305.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Zombie Driver [Ru] (P) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373176.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон Разума [Ru] (RePack) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373175.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ The Unholy war [PS1] [RUS] [NTSC] (1998)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372781.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ Madden NFL 13 [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372593.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ WRC 3: FIA World Rally Championship [PS3] [ENG] [PAL] [FULL] [3.41/3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372489.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Call of Duty Black Ops 2: Digital Deluxe Edition [Ru] (Rip/1.0.0.1) 2012 l Dange
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372473.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ RUINER (2017) [Ru/Multi] (1.06) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372108.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Dark Sector (2009) [Ru] (1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371730.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370803.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ Craft The World (2014) [Ru/Multi] (1.3.005) Unofficial ALiAS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370348.jpg" />
 </div>
 
 
@@ -629,64 +681,6 @@ Craft The World - 2D-сэндбокс стратегия, совмещающая
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A5F106E686C474FD59F4D72A09EFCE1D04AD885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574735   (370126) от 14.11.2012
-
-Persona 4 ARENA [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: ЛицензияЖанр: FightingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4651AA7E51FDAA5CE512265C23218A0323969175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575475   (370079) от 14.11.2012
-
-F1 Race Stars [En/Multi7] (RePack/1.0.0.0) 2012 | R.G. ILITA
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370079.jpg" />
-</div>
-
-
-###  Подробнее
-
-F1 Race Stars - это аркадные картинговые гонки. Игра является своеобразным шуточным ответвлением от серии игр Formula One.
-Все трассы, болиды и гонщики приобрели несерьезный мультяшный вид, а процесс игры превратился в незатейливую и веселую аркаду.
-В этой игре вы встретите мировых звезд Формулы 1 - Льюиса Гамильтона, Фернандо Алонсо и Михаэля Шумахера в совершенно новом обличии.
-Трассы были переработаны для сверхзвуковых скоростей, с обескураживающими поворотами и каверзными петлями.
-Они усеяны ловушками, срезами, секретами и предметами, которые дадут вам превосходство над соперником.
-Играйте вчетвером на одном экране или присоединяйтесь к онлайн гонке на двенадцать человек.
-Отныне никаких правил, только скорость, навыки и львиная доля везения!(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский, Немецкий, Итальянский, Испанский, Польский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E27801D2E3BC0FC2354EDE8897980F20662649
 ```
 
 https://mybot314.ru/tekegram_catalog/

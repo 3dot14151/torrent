@@ -6,7 +6,7 @@ Masabumi Kikuchi - Susto +2 (1981) Remaster, 2016, Sony Music[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473304.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dewa Budjana - Home (2005) Remastered, 2016 [FLAC|Lossless|tracks] <World Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473303.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Louis Van Dyke - Plays Lennon-McCartney (1970) Remaster, 2014, Sony Music[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473293.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tsuyoshi Yamamoto Trio - Blues For Tee (1974) Remaster, 2014, Think! Records[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473291.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lionel Hampton - Priceless Jazz Collection (1942 - 1964) 1999, GRP Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473205.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Joe Williams, Carmen McRae & Friends - Blues In My Heart (1979) 2002, Past Perfe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473197.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Dave Grusin, Lee Ritenour, Diane Schuur, Dave Valentin: GRP Live In Session
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472764.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ James Morrison - On The Edge (2003) Morrison Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472465.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Dave Brubeck Quartet - 25th Anniversary Reunion (1976) 1989, Jazz Heritage [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471998.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Charles Mingus & Jazz Artists Guild - Newport Rebels (1960) 2001, King Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471992.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dave Brubeck featuring Paul Desmond - St. Louis Blues (1959, 1962) 2003, Jazz Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471988.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jimmy Woods - Awakening !! (1961/1962) /1995, OJC/[APE|image+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471636.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Gil Evans Orchestra - Giants Of Jazz (1957-1959) /1994, Giants Of Jazz/[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471633.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Shelly Manne and His Men - Septet and Quintet Sessions 1951-1958 (2008) (3CDs) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471630.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wynton Kelly - Wynton Kelly! & Kelly Great (1960/1961) /2000, Collectables/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471629.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tiffany Austin - Nothing But Soul (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471544.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Jazz Cafe: For Lovers (1994) /Blue Bird/[FLAC|tracks+.cue]<Swing, Bop, Cool
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471539.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jeff Palmer - Island Universe (1995) /Soul Note/[APE|image+.cue]<Jazz Fusion, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471523.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Orrin Evans - Liberation Blues (2014) Smoke Sessions Records[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471447.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Art Blakey And His Jazz Messengers - Chippin' In (1990) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471435.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lyn Stanley - Potions [from the 50s] (2014) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471345.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ David Sanborn - Anything You Want: The Warner-Reprise-Elektra Years 1975-1999 (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470518.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Johnathan Blake - Homeward Bound (2021) Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470318.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Eric Reed - Here (2006) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470179.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Lars Jansson - Giving Recieving (2001) [FLAC|Lossless|tracks + .cue] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470178.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Tiziana Ghiglioni - So Long Flores (2004) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470161.jpg" />
 </div>
 
 

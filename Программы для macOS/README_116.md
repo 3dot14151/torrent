@@ -1,3 +1,59 @@
+###  Публикация: 1187791   (277286) от 30.11.2017
+
+Lingon X 5.2.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент и т.п.
+
+Всю конфигурацию можно проводить и вручную, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D802AEDD16EDF54F6E55F02829FB2DE11B2148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082672   (277259) от 13.12.2016
+
+Paste 2.1.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paste — менеджер истории буфера обмена для Mac
+Paste хранит всё, что вы когда-либо копировали в буфер обмена, и позволяет воспользоваться историей копирования, когда она вновь понадобится. Работает – притаившись в фоном режиме системы и, следит за историей скопированных данных. Готов в любой момент предоставить на выбор нужный фрагмент из истории буфера обмена.
+ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13 декабря 2016Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87D136A9C21B52A3AA9DC15C6FDEC6C02EC25FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082780   (277257) от 13.12.2016
 
 1Blocker - Block ads, tracking scripts, anything 1.2.6 [En]
@@ -6,7 +62,7 @@
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277257.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ Infographics for Pages 3.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277252.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ PDFelement Express 1.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276582.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ WiFi Explorer 2.5.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276406.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ Tipard PDF Converter for Mac 3.1.30 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276326.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ Infinity Dashboard 1.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276313.jpg" />
 </div>
 
 
@@ -167,7 +223,7 @@ Adobe Photoshop Lightroom 5.7.1 [Multi+Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275850.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ Movavi Video Editor 5 Plus 5.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275747.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ MarkdownD 3.7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274973.jpg" />
 </div>
 
 
@@ -250,7 +306,7 @@ VideoboxPro 1.5.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274895.jpg" />
 </div>
 
 
@@ -278,7 +334,7 @@ VideoDuke 1.4 (250) [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274889.jpg" />
 </div>
 
 
@@ -306,7 +362,7 @@ MacBreakZ 5.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274850.jpg" />
 </div>
 
 
@@ -332,7 +388,7 @@ Themes for Keynote 5.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274844.jpg" />
 </div>
 
 
@@ -360,7 +416,7 @@ Templates Bundle for iWork 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274843.jpg" />
 </div>
 
 
@@ -389,7 +445,7 @@ Smart Converter Pro 2 v2.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274692.jpg" />
 </div>
 
 
@@ -416,7 +472,7 @@ EXIF Cleaner PRO 2.2.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274652.jpg" />
 </div>
 
 
@@ -442,7 +498,7 @@ AppLocker Pro (Password lock apps) 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274626.jpg" />
 </div>
 
 
@@ -470,7 +526,7 @@ WhatSize 6.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274524.jpg" />
 </div>
 
 
@@ -496,7 +552,7 @@ Boinx FotoMagico 5.5.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274509.jpg" />
 </div>
 
 
@@ -524,7 +580,7 @@ Cloud Outliner Pro 2 v2.5.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274196.jpg" />
 </div>
 
 
@@ -550,7 +606,7 @@ MindNode 5 v5.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274145.jpg" />
 </div>
 
 
@@ -578,7 +634,7 @@ Digital Sentry 1.4.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274140.jpg" />
 </div>
 
 
@@ -604,7 +660,7 @@ PDFelement 6 Pro - PDF & OCR v6.7.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273998.jpg" />
 </div>
 
 
@@ -630,7 +686,7 @@ Wondershare MobileTrans 6.9.11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273912.jpg" />
 </div>
 
 
@@ -643,62 +699,6 @@ Wondershare MobileTrans 6.9.11 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C76DD20DCA0954B48C910CC8649AFD3B472224C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265605   (273857) от 28.11.2018
-
-TinkerTool System 5 v5.98 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273857.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X.
-
-Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2018Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31715C91A9D9124B46048790F598866A4F726823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337633   (273711) от 11.11.2019
-
-Adobe InCopy 2020 v15.0.0.155 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe InCopy CC 2020 - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign CC 2020 для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy CC 2020 идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
-
-Adobe InCopy CC 2020 входит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1851C10DB434CB29FF97E72C496C2EF55AD065E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

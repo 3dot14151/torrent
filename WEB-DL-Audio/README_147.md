@@ -6,7 +6,7 @@ Shame - Cutthroat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Post-Punk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2732.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Starset - Silos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Metal, A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2731.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nevertel - Start Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2730.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2645.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Vargas Blues Band - Down Under Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2600.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Led Zeppelin - Live EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bluse Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2490.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Rusties Blues Band - disCOVERing the White Blues (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2467.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Circus of Rock - Hellfire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2461.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2460.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Joe Bonamassa - B.B.King's Blues Summit 100, Vol. I (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2455.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Igorrr - Amen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Avantgarde Metal, Br
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2322.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Year Of The Goat - Trivia Goddess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2303.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Modeselektor - DJ-Kicks: Modeselektor (2025) 2CD [FLAC 16,24/44.1,48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2296.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Parcels - Loved (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop, Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2290.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Exelerate - Hell For The Helpless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2145.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Infektum - Schicksal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2140.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sfinx - Feral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2139.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Rinrin - The Nut House (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2136.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Booze & Glory - Whiskey Tango Foxtrot (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2134.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Zaz - Sains et saufs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2017.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Paradise Lost - Ascension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1982.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1963.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1962.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Arjen Anthony Lucassen - Songs No One Will Hear (No Narration) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1946.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Nine Inch Nails - TRON: Ares (2025) Original Motion Picture Soundtrack [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1843.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Sarah McLachlan - Better Broken (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1791.jpg" />
 </div>
 
 

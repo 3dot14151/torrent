@@ -1,3 +1,32 @@
+###  Публикация: 1578338   (345860) от 23.09.2022
+
+Somnambular Dance - Городу - трещины (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Везувий [00:03:47]
+02. И я ослеп [00:04:44]
+03. Белый лес [00:04:53]
+04. И ветер стих [00:01:09](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BDC67CC8E91A44DDF2A6CEB7FEE0EAB9142B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578415   (345857) от 23.09.2022
 
 Tony Mills - Streets of Chance (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +35,7 @@ Tony Mills - Streets of Chance (2017) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345857.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ BlackLight - Follow The Future (2020) [FLAC|Lossless|image + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345855.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Saber - Without Warning (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345853.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Banco Del Mutuo Soccorso - Orlando: Le Forme Dell’Amore (2022) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345844.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lunatic Soul - Through Shaded Woods (2020) 2xCD [FLAC|Lossless|image + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345840.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Venom Inc. - There's Only Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345838.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345836.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Weezer - 3 EP (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345834.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ House Of Lords - Saints And Sinners (2022) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345832.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Rock Sound: Sound Check No. 101 (2007) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345796.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ INXS - Full Moon, Dirty Hearts (1993) Japanese Edition [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345712.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345699.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345695.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Kaledon - Legend Of The Forgotten Reign - Chapter VII: Evil Awakens (2022) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345688.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Kissin' Dynamite - Ecstasy (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345660.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345615.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Helloween - United Alive In Madrid (2019) Live [MP3|320 kbps] <Heavy Metal, Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345608.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Death - Spiritual Healing (1990) Deluxe Edition, Remastered 2012 [FLAC|Lossless]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_345599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345599.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Sepultura & Les Tambours Du Bronx - Metal Veins: Alive At Rock In Rio (2014) Liv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345555.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345485.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345460.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Deep Purple - Time For Bedlam (2017) EP [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345443.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Bullet for My Valentine - Gravity (2018) Deluxe Edition [MP3|320 Kbps] <Melodic 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345360.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345218.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ The Alan Parsons Project - The Collection (2010) [FLAC|Lossless]<Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_345159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345159.jpg" />
 </div>
 
 
@@ -728,41 +757,6 @@ The Alan Parsons Project - The Collection (2010) [FLAC|Lossless]<Progressive Roc
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580257   (345145) от 24.11.2012
-
-Ария - В жёлтом круге арены (live) 2CD (2012) [MP3|320 kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колизей (6:28)
-02. Кровь за Кровь (8:05)
-03. Аттила (6:21)
-04. Последний Закат (5:04)
-05. Осколок Льда (5:38)
-06. Штиль (5:45)
-07. Небо Тебя Найдет (6:12)
-08. Герой Асфальта (5:11)
-09. Улица Роз (7:44)
-10. Дай Жару! (5:28)Жанр: Heavy MetalПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C630A4AD8A94F96A815FA74102D7CD59891088C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

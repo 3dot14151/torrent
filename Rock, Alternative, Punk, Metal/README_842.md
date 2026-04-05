@@ -1,3 +1,32 @@
+###  Публикация: 1465173   (240265) от 25.04.2021
+
+Evergrey - Escape Of The Phoenix (2021) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Outsider (4:09)
+02. Where August Mourn (5:32)
+03. Stories (6:41)
+04. A Dandelion Cipher (4:34)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D308F45D207914F3C51BD87152FC4CF8EB32F15F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554125   (240264) от 30.05.2022
 
 Math Marriage Abel and Krell - Откровение (2021) [MP3|320 Kbps] <Extreme Metal, Deathcore, Mathcore>
@@ -6,7 +35,7 @@ Math Marriage Abel and Krell - Откровение (2021) [MP3|320 Kbps] <Extre
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240264.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Dead Don’t Die - Rock Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240262.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Azeroth - II (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240261.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Various Artists - Flower Power - Best Of Love, Peace and Happiness (2023) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240259.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Qvintessence - Qvintessence (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240258.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Great Unfinished... - Malcontent (2018) [FLAC|Lossless|WEB-DL|tracks] <Glasg
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240253.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Billie Eilish - hotline (edit) (2023) Single [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240252.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Lust Witch - Hands Of Filth (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240251.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Celldweller - Satellites (2022) Deluxe Edition, 3CD, 2023, FiXT [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240250.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Luteoks - Barely True Norwegian Black Metal (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240244.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Pistol Kixx - Pistol Kixx (2018) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240239.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ VA - 00s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240229.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Vesuvian - Emergence (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240215.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ VA - All Out Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240214.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Hannah Jadagu - Aperture (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240213.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Various Artists - Rock & Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240211.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240199.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Montagne - Black Waterfall (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240188.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Serpentine - Living аnd Dуing In Нigh Dеfinitiоn (2011) Japanese Edition [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240174.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Giant - Born Again Dead Again (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240173.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ VA - Пипл про | To Purple. Российско-Белорусское по
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240170.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Places Around The Sun - Places Around the Sun (2020) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240161.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ La Famiglia Degli Ortega - La Famiglia Degli Ortega (1973) 1996, Vinyl Magic [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240150.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Graham Nash - Now (2023) [FLAC 24/44.1-96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240142.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Red Raven Chaos - Chaos to My Eyes (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240133.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Red Raven Chaos - Chaos to My Eyes (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45F890E0514A786B609CF03256D92170BF39AAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634933   (240130) от 23.05.2023
-
-Salami Rose Joe Louis - Akousmatikous (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akousmatikous (5:46)
-02. Dimensional Collapse (3:40)
-03. Always on my Mind (2:33)
-04. Fireflies (1:16)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE4342340A5549CD164713DD2C9FE935156BB814
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ NGW: Хищник в раю. Прибрежные убийцы / Predator in Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575995.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NGW. Королевство обезьян: Брат против брата / K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575987.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC. Большое австралийское приключение (Викт�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575910.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Animal Planet: В дикие края с Эваном. Приключения Н
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575860.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ NGW: По следам мифических чудовищ. Монгольски
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575784.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575743.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575741.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575623.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Discovery: Стальные мышцы / American Muscle (2014) HDTVRip (Вып�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575379.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575191.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575186.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Discovery: Двойники Земли / Alien planet Earths (2014) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575086.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC: Выдающиеся женщины ХХ столетия. Уоллис С�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574891.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC: Выдающиеся женщины ХХ столетия. Мадам Ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574721.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Discovery: Новый мир (1-12 серии из 12) / Discovery: Next World (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574626.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ BBC: Дикие животные: Завоевание мегаполиса / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574138.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ NG: Осушить океан: затонувший город пиратов / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574057.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ BBC: Сверхчеловек (6 серий из 6) / BBC: Superhuman (2001) [DV
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_573140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_573140.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NG: Секретные материалы древности: Тайна Жан�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572684.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NG: Восхождение чёрного волка / The Rise of black Wolf (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572596.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572375.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Discovery. Наркосиндикат Сэм Гор / The World's Biggest Drug L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572086.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ History Channel: Вселенная: НЛО. Внеземные технолог
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572058.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571822.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571685.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BBC: Жизнь в микромире / Life in the Undergrowth (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571434.jpg" />
 </div>
 
 

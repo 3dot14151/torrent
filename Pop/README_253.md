@@ -1,175 +1,3 @@
-###  Публикация: 1336928   (277527) от 08.11.2019
-
-Rudy Brass - Frog's Jump (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep Tonight (3:51)
-02. Dusty Brass (3:55)
-03. Space Future Band (3:53)
-04. Mister Grey (3:57)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484172564F053DB908F5A8313BC5DE15EB4FDAFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336710   (277433) от 08.11.2019
-
-Eine Kleine Disco Band - Disco Saturday Nacht (Feverish Sounds Of 1830) (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Concerto (4:38)
-02. Space Station Zero (4:21)
-03. (Love In) A Turkish Bath (4:21)
-04. Fancy Feet (3:45)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABC4A9BDE8D65051A5B338A0491816596752605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336606   (277416) от 08.11.2019
-
-Ильин - Романсы (2019) [MP3|320 Kbps] <Singer-Songwriter, Romance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сад
-2. Метели
-3. Праздник
-4. Тень(   Читать дальше...   )Жанр: Singer-Songwriter, RomanceПродолжительность: 00:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E7A20499BD58F272B57D0F9129C0C216E25D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187832   (277386) от 30.11.2017
-
-Massara C.A.S.T. - Volerai Volero (1982) 7 Inch [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volerai, Volero (3:25)
-02. Constantinopoli (3:15)Жанр: Electronic, Pop, DiscoПродолжительность: 00:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D219A62E0AD7CECB0FDA3BA4502CDF282CD95239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187861   (277297) от 30.11.2017
-
-The Pumps - Petroleum (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gasoline Dealer (4:32)
-02. The Night Is Young...Chercher La Femme (3:44)
-03. Boy, I Need Your Love (4:10)
-04. Pipe Line (5:24)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAA6601EE3E96ED1DFB22B2B33774EA77ABA1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082836   (277244) от 13.12.2016
-
-VA - Glitterbox: For Your Disco Pleasure (2016) (2016) [MP3|320 Kbps] <Disco, Nu Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon Dunmore - Glitterbox - For Your Disco Pleasure (Continuous Mix 1) 78:01
-02. Simon Dunmore - Glitterbox - For Your Disco Pleasure (Continuous Mix 2) 77:25
-03. The Salsoul Orchestra - Ooh I Love It (Love Break) (Original Mix) 07:46
-04. Loleatta Holloway - Love Sensation (Dimitri From Paris Dj Friendly Classic Re-Edit) 07:32(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 06:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB88E9838D74966A4A897AA78DECCE8C8AF6E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187883   (277147) от 30.11.2017
 
 Fern Kinney - Groove Me (1979) Remastered, Big Break Records, 2013 [MP3|320 Kbps] <Electronic, Disco>
@@ -178,7 +6,7 @@ Fern Kinney - Groove Me (1979) Remastered, Big Break Records, 2013 [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277147.jpg" />
 </div>
 
 
@@ -207,7 +35,7 @@ VA - Hits Dance 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277142.jpg" />
 </div>
 
 
@@ -236,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277116.jpg" />
 </div>
 
 
@@ -271,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276944.jpg" />
 </div>
 
 
@@ -300,7 +128,7 @@ LP - Lost On You (2016) [MP3|320 Kbps] <Alternative Rock, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276747.jpg" />
 </div>
 
 
@@ -329,7 +157,7 @@ VA - Bravo Hits Jesień (2018) 2CD [MP3|320 Kbps] <Pop  Latin, Reggaeton>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276580.jpg" />
 </div>
 
 
@@ -358,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276489.jpg" />
 </div>
 
 
@@ -387,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276416.jpg" />
 </div>
 
 
@@ -416,7 +244,7 @@ Rendezvous - Rock And Roll Disco Boogie (1979) LP [MP3|320 Kbps] <Electronic, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276316.jpg" />
 </div>
 
 
@@ -445,7 +273,7 @@ VA - Русский хит 2003 (2002) [FLAC|Lossless|tracks + .cue]<Pop, Dance>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276171.jpg" />
 </div>
 
 
@@ -474,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276078.jpg" />
 </div>
 
 
@@ -502,7 +330,7 @@ Robbie Williams - Under the Radar, Vol. 2 (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275977.jpg" />
 </div>
 
 
@@ -531,7 +359,7 @@ VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003)
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275857.jpg" />
 </div>
 
 
@@ -560,7 +388,7 @@ Falco - Out Of The Dark (Into The Light) (1998) [MP3|320 kbps]<Pop/Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275846.jpg" />
 </div>
 
 
@@ -595,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275768.jpg" />
 </div>
 
 
@@ -624,7 +452,7 @@ Sade - The Remix Deluxe (1992) Special Edition [FLAC|Lossless|image + .cue] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275691.jpg" />
 </div>
 
 
@@ -653,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275531.jpg" />
 </div>
 
 
@@ -682,7 +510,7 @@ Modern Talking - Die Erfolgreichsten Hits (Remastered) (2016) [MP3|320 Kbps] <Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275498.jpg" />
 </div>
 
 
@@ -711,7 +539,7 @@ David Boydell - City Music (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275225.jpg" />
 </div>
 
 
@@ -740,7 +568,7 @@ Loleatta Holloway - Love Sensation (1980) Charly Records, Reissue 1995 [MP3|320 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275224.jpg" />
 </div>
 
 
@@ -754,6 +582,181 @@ Loleatta Holloway - Love Sensation (1980) Charly Records, Reissue 1995 [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C27F18F9E2C8BB5585515187039BF63EB56FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265276   (275205) от 27.11.2018
+
+VA - Bravo Hits Zima 2019 (2018) [MP3|320 Kbps] <Dance, Pop, R&B, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275205.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Morandi - Kalinka
+2. Eldzhey - Rvanie jinsy
+3. Ariana Grande - Breathin(   Читать дальше...   )Жанр: Dance, Pop, R&B, Hip-HopПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FF1588EEC211910776A410E874175A6F38BB82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265317   (275204) от 27.11.2018
+
+VA - Ministry Of Sound: Heartstrings (2018) 3CD [MP3|320 Kbps] <Pop, Folk, Soft Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275204.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Shotgun - George Ezra
+02. I Miss You - Clean Bandit feat. Julia Michaels
+03. Naked - James Arthur(   Читать дальше...   )Жанр: Pop, Folk, Soft Rock, BalladПродолжительность: 03:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0179042CCA999C54E006516130B6CB2A89AECFC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265263   (275190) от 27.11.2018
+
+VA - Playlist of Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Santa Baby
+02. Shannon & Keast - O Holy Night
+03. Meg Birch - Santa Claus is Coming to Town
+04. Ed Clarke & Chris Snelling - Winter Wonderland(   Читать дальше...   )Жанр: Pop, Acoustic, Easy ListeningПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D44AE77A69DF6A0237611951286C1583F73CA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265281   (275187) от 27.11.2018
+
+VA - 90'S The Collection 2018 (2018) 2CD [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275187.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. MC Sar & The Real McCoy - It's On You (The Ultimate Freshline Allstars Remix)
+02. Corona - Try Me Out (Lee Marrow Eurobeat Mix)
+03. DJ Space'C - Forever Young (International Club Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A5984F58788898A34186C78BD20BED16425751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850965   (275120) от 17.12.2014
+
+VA - Absolute Dance Winter 2015 (2014) 2CD [MP3|320 кб/с]<Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Absolute Dance - более 23 лет является ведущим брендом для современной танцевальной музыки. На сегодняшний день продано более 3 миллионов копий!
+Вот это, наверное, последняя коллекция в этой популярнейшей серии. Встречайте Новый 2015 Год с Absolute Dance Winter.CD1:
+01. OMI - Cheerleader (Felix Jaehn remix)  (3:02)
+02. Calvin Harris feat. John Newman - Blame  (3:31)
+03. Avicii - The Days  (3:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6A5D019EF713B8CB4D257D5D60354C8A9B0A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337385   (274802) от 10.11.2019
+
+VA - Another Side of Mike Mareen Part Two (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amadeus Liszt - The Devil Wins (Maxi Version) (5:56)
+02. Laurent Antony - Flies (Remix) (4:42)
+03. DJ's Project - Vision of Love (Maxi Version) (7:49)
+04. Gayle Robertson - Africa (Maxi Version) (5:27)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Synth-popПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460ED1B829C8894F07A3C062F1A1F7DCB2911B11
 ```
 
 https://mybot314.ru/tekegram_catalog/

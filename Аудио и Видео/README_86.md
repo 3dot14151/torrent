@@ -6,7 +6,7 @@ Smokey Joe & The Kid - War Is Over (2021) [AAC|~317 Kbps] <Electro Swing, Jazzy 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760067.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759039.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758983.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Angelo-K - Memories (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758789.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - Deep & Sweet 2: Best of Deep House Music (2020) [AAC|~319 Kbps] <Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758788.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Angelo-K - Collection of the Best Tracks From: Angelo-K, Pt. 1 (2021) [AAC|~342 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758787.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Deep & Sweet 1: Best of Deep House Music (2019) [AAC|~316 Kbps] <Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758786.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Deep & Sweet 3: Best of Deep House Music (2021) [AAC|~317 Kbps] <Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758783.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758719.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Ufo Lounge (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758669.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Christmas Chill Out: Best for the Year 2022 (2022) [AAC|~333 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758668.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VA - Yoga Music Session 2: Music for Relaxation & Meditation (2019) [AAC|~315 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758663.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Yoga Music Session 3: Music for Relaxation & Meditation (2022) [AAC|~334 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758657.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Yoga Music Session 1: Music for Relaxation & Meditation (2019) [AAC|~313 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758655.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758511.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757319.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757315.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757253.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757251.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757248.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757246.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757243.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757242.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757177.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757173.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757171.jpg" />
 </div>
 
 

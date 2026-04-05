@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284240.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284071.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Joe Cocker - Cry Me A River (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284045.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283918.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pink Floyd: Live at Pompeii (1972) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283636.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283483.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283478.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283472.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283470.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282171.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282100.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282094.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282093.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282058.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282030.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281953.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Nightwish - Showtime, Storytime (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281367.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280588.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280458.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280432.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280431.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280417.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280337.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280180.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280025.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279972.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 852603   (220585) от 22.12.2014
-
-Семейка монстров / The Boxtrolls (2014) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ему не повезло родиться в роскошном замке. Вместе с семейкой забавных монстров юноша поселился прямо под мостовой. Изысканные костюмы ему заменила обычная коробка. Зато каждую ночь он мог разгуливать по темным улицам в поисках новых приключений. Но однажды он встретил очаровательную девчушку из высшего общества — и мир вокруг изменился навсегда.Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Грэхэм Эннэйбл, Энтони СтаккиПерсонажи: Бен Кингсли,  Джаред Харрис,  Ник Фрост,  Ричард Айоади,  Трэйси Морган,  Ди Брэдли Бейкер,  Стивен Блум,  Ника Футтерман,  Пэт Фрэли,  Фред ТатаскьорПеревод: Дублированный (iTunes)Язык субтитров: нетПродолжительность: 01:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754071DF37D3339DED5A925CDAB4566C6188925E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514135   (218589) от 02.12.2021
 
 Босс-молокосос 2 / The Boss Baby: Family Business (2021) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218589.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214392.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207743.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207706.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207695.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207687.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207682.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207679.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207671.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207656.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207651.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207636.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206852.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206573.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206550.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206542.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206486.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206349.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204858.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201538.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198836.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198818.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198754.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197639.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191343.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5FD9733483971A6CA2E20C8DC1E272CBEABE9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590516   (188759) от 14.11.2022
+
+Хранители снов / Rise of the Guardians (2012) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда злой дух Кромешник посягает на самое дорогое — детские мечты, Северянин, Ледяной Джек, Кролик, Зубная Фея и Песочный Человек впервые объединяются, чтобы создать команду Хранителей снов…Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Питер РэмзиПеревод: дублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), украинские (forced, full), английские (full, SDH, SDH-Colored)Продолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75260B14313C2094D0BE8A6E4EB155945EFAEF6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

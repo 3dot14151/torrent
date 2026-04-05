@@ -1,3 +1,57 @@
+###  Публикация: 1526137   (738665) от 23.01.2022
+
+Skillshare, Nexttut | Blender 3.0 Modelling for Beginners (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотели бы изучить Blender но не знаете, с чего начать? Тогда я приветствую вас на занятиях по моделированию Blender 3.0 для начинающих.
+К концу этого курса вы сможете моделировать твердотельных персонажей типа робота в Blender.
+Этот курс для вас, если вы новичок в Blender и хотите научиться моделировать простых роботизированных твёрдотельных персонажей, а не сложных (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 17:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861081D80EE2C033700FC58BA0F22679B80EC56F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526214   (738660) от 23.01.2022
+
+Wingfox Studio, Changming Wang | Ultimate Illustration Course Coloring and Lighting (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738660.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом уроке вы узнаете, как создать иллюстрацию, похожую на плакат, на всем пути от эскиза до окончательных деталей. После этого урока вы сможете освоить новые и практические приемы изготовления плакатов, игровых карточек, скинов чемпионов, скетчей, доп. Это краткое руководство по иллюстрации того, как представить цвета и свет.Производство: Wingfox StudioЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 11:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A32FC0365E38F5C6769D2A88A49F7337FABE22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526176   (738651) от 23.01.2022
 
 Wingfox Studio, Wingfox | Character Painting in Photoshop (2021) PCRec [En]
@@ -6,7 +60,7 @@ Wingfox Studio, Wingfox | Character Painting in Photoshop (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738651.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Scott Eaton | Digital Figure Sculpture (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738348.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ ART School, Marc Brunet | ART School for digital artists (2021) WEB-DL [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738301.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ FlippedNormals, Emiel Sleegers | Hero Prop Creation in Blender & Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738003.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Wingfox, Fish man ( Yu Ing ) | Level Up Your Digital Painting Skills: Beginner t
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737969.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ Udemy, Austin Batchelor | The Digital Painting MEGA Course Beginner to Advanced 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737767.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Cubebrush, Marc Brunet | Faster Illustration Techniques (2017) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737729.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Udemy, Austin Batchelor, Stephen Sorensen | The Digital Painting Mega Course: Be
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737722.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Digital Tutors, Tanya Wiesner | Automating Tasks Using MAXScript in 3ds Max (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737297.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ Digital Tutors, Eddie Russell | Map Baking Techniques for Games in Maya (2015) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737287.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ Udemy, Nikolay Naydenov | Making a Cartoon Character in Zbrush (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736772.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736325.jpg" />
 </div>
 
 
@@ -333,7 +387,7 @@ Udemy, Nikolay Naydenov | Super Human Anatomy for Artists Course (2021) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736287.jpg" />
 </div>
 
 
@@ -362,7 +416,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners ZBrush Course (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736263.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ Udemy, Nikolay Naydenov | Female Anatomy for Artists Course (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736254.jpg" />
 </div>
 
 
@@ -416,7 +470,7 @@ Chris Maynard | Color Theory for CG and VFX Artists (2015) PCRec [En / Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736104.jpg" />
 </div>
 
 
@@ -442,7 +496,7 @@ Lynda, William Lidwell | Universal Principles of Design (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735813.jpg" />
 </div>
 
 
@@ -468,7 +522,7 @@ Digital Tutors, Laura Smith | Animating an Infographic in After Effects (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735801.jpg" />
 </div>
 
 
@@ -495,7 +549,7 @@ FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735780.jpg" />
 </div>
 
 
@@ -523,7 +577,7 @@ Flippednormals, Abraham Leal | Zbrush 2021 for Absolute Beginners (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735776.jpg" />
 </div>
 
 
@@ -551,7 +605,7 @@ Wingfox Studio, Alex Vochshakin | Creative Environment Creation in Unreal Engine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735772.jpg" />
 </div>
 
 
@@ -577,7 +631,7 @@ Udemy, Nikolay Naydenov | Orc Rider and Bull Creature Creation in Zbrush (2019) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735768.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ CGMA, CGsociety, Johan Lithvall | Hair creation for games (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735319.jpg" />
 </div>
 
 
@@ -632,7 +686,7 @@ Game Art Institute, Adam Skutt | Character Creation For Games (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735318.jpg" />
 </div>
 
 
@@ -643,62 +697,6 @@ Game Art Institute, Adam Skutt | Character Creation For Games (2016) PCRec [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:770F77B91C92D446D2D926363D15154AE54359D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528015   (735309) от 31.01.2022
-
-Cubebrush, Tom Paul | Zbrush for Hard Surface Design (2014) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735309.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом занятии, 3d художник Том Пол разъясняет весь процесс создания твердотельной модели робота для видеоигр или фильмов.
-В ходе работы будут использоваться возможности графических пакетов ZBrush, Keyshot и Photoshop.
-Занятие рассматривает все последовательные этапы работы: создание трёхмерного эскиза в ZBrush, рендеринг с использованием Keyshot и финальный композитинг (   Читать дальше...   )Производство: CubebrushЖанр: 3D графикаЯзык озвучки: РусскийПродолжительность: 3:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1934B6FE43BA1A61C13BB81148831E4E1DA284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527960   (735296) от 31.01.2022
-
-RENDER.CAMP, Даниил Нагаец | Профессиональная Визуализация Интерьера 3.3 Super Classic (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы будем работать с классикой. Конечно я говорю о несколько осовремененной стильной и тонкой классике, но мы никуда не денемся от моделинга лепнины, штор с подвязками, резной мебели с затяжками и многого другого.
-Мы выставим и настроим реалистичное освещение. Настроим камеры и эффекты. Вы узнаете тонкости постановки камеры, композиции и колористики.
-Эффектная постобработка (   Читать дальше...   )Производство: RENDER.CAMPЖанр: 3D графикаЯзык озвучки: РусскийПродолжительность: 48:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF68D1B896DA1C87FF46AD750184FB3CE2200FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

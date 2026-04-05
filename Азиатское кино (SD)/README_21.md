@@ -1,3 +1,81 @@
+###  Публикация: 1209242   (779434) от 25.02.2018
+
+Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEBRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779434.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стране Аместрис алхимия широко распространена как точная наука. Два брата Эдвард и Альфонс Элрики ещё детьми пытались при помощи алхимии воскресить мёртвую маму, но поплатились за это. Старший лишился руки и ноги, младший — всего тела, хотя и был в самый последний момент чудом спасен — брат привязывает его душу к стальным рыцарским доспехам. Теперь два брата — (   Читать дальше...   )Производство: Япония / Square Enix Co. Ltd.Жанр: Боевик, фэнтези, приключенияРежиссер: Ясухиро Ириэ, Киёмицу Сато, Хироши ИкетомиАктеры: Рёске Ямада, Цубаса Хонда, Дин Фудзиока, Рюта Сато, Мисако Рэмбуцу, Ё Ойзуми, Кэндзиро Исимару, Ясуко Мацуюки, Синдзи Утияма, Каната ХонгоПеревод: Любительский (многоголосый закадровый) AniDUBСубтитры: ОтсутствуютПродолжительность: 02:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B434C9EAE18B97053ED0BA559640B95DCDF946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209082   (779415) от 25.02.2018
+
+Война волков 2 / Zhan lang 2 (2017) BDRip [H.264] [MVO]
+
+>>След.
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых лучших спецназовцев Китая уходит на заслуженный отдых и поселяется в тишине, около моря. Но когда банда садистов начинает терроризировать невинных людей,он должен снова взяться за оружие и защитить тех, кто в этом нуждается.Производство: Китай / Beijing Century Media Culture, Beijing Dongfang International Cultural Communications Company, Bona International Film GroupЖанр: Драма, боевик, военныйРежиссер: Джеки ВуАктеры: Джеки Ву, Фрэнк Грилло, Селина Джейд, У Ган, Хань Чжан, Цзянь Юй, Нань Юй, Чуньюй Шаньшань, Хайфэн Дин, Олег ПрудиусПеревод: Любительский (многоголосый закадровый) GreenРай StudioСубтитры: ОтсутствуютПродолжительность: 02:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F91617163E47A679039AA6939A6343FE58E4998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209298   (779338) от 26.02.2018
+
+Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEB-DLRip [H.264] [MVO] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779338.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стране Аместрис алхимия широко распространена как точная наука. Два брата Эдвард и Альфонс Элрики ещё детьми пытались при помощи алхимии воскресить мёртвую маму, но поплатились за это. Старший лишился руки и ноги, младший — всего тела, хотя и был в самый последний момент чудом спасен — брат привязывает его душу к стальным рыцарским доспехам. Теперь два брата — (   Читать дальше...   )Производство: Япония / Square Enix Co. Ltd.Жанр: Боевик, фэнтези, приключенияРежиссер: Ясухиро Ириэ, Киёмицу Сато, Хироши ИкетомиАктеры: Рёске Ямада, Цубаса Хонда, Дин Фудзиока, Рюта Сато, Мисако Рэмбуцу, Ё Ойзуми, Кэндзиро Исимару, Ясуко Мацуюки, Синдзи Утияма, Каната ХонгоПеревод: Многоголосый закадровый (AniDUB)Субтитры: русские (форсированные, полные)Продолжительность: 02:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775A6550563CBCFD642B6BC55198FBCB63D3E186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209393   (779321) от 26.02.2018
 
 Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEB-DLRip [H.264] [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779321.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779172.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778775.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777685.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777141.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772805.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772630.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771151.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770502.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769808.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769604.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769180.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766957.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766782.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766209.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766057.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764436.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764183.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763707.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762719.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762412.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760251.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759752.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92FE86623E9572C06CD3B3526D4EF2AE32F26A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 320517   (759702) от 08.04.2011
-
-Кровь / Buraddo (2009) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_759702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раненого в бою самурая спасает вампирша, превращая в себе подобного. Жили они долго и счастливо до тех пор, пока Соджи не тронулся умом от постоянных измен любимой. Он сбегает из особняка Мияко, убив горничную и выпив её кровь. Полиция не смогла раскрыть убийство, и дело заглохло. Спустя 14 лет за расследование берётся детектив, который крепко насолил важным людям и был переведён в отдел незаконченных расследований. Между Мияко, Соджи и детективом закручивается странная любовная интрига...Жанр: ужасы, боевикРежиссер: Тэн СимоямаАктеры: Ая Сугимото, Гуц Исимацу, Джан Канаме, Сатоши Мацуда, Хидезиро Мицумото, Юри Моришита, Ацуши Нарасака, Рин Сакураги, Харуми Сон, Масахиро СудоПеревод: Русский, любительский (одноголосый закадровый)Продолжительность: 01:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12567C6252DE97E58E6F36221659A156180C7F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395067   (758633) от 08.07.2020
-
-Непобедимый дракон (Неуязвимый дракон) / Jiu long bu bai / The Invincible Dragon (2019) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принципиальный и честный гонконгский полицейский по кличке Безумец назначается на расследование убийства женщины-коллеги. Дотошный страж порядка не может найти ни одной зацепки, но, когда внезапно пропадает его невеста, тоже сотрудница полиции, становится ясно, что Безумцу придётся иметь дело с серийным убийцей.Производство: Гонконг, Китай, Pegasus Motion PicturesЖанр: боевик, детектив, криминалРежиссер: Фрут ЧанАктеры: Макс Чжан, Андерсон Силва, Кевин Чэн, Энни Лю, Стефи Тан, Жужу Чан, Энди Чоу, Лам Сует, Ричард Нг, Деон ЧунПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC1F4CCE92C3FF8658E9DA62540F15E657E7BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522360   (758395) от 07.01.2022
-
-Самокрутка / Sau gyun jin / Hand Rolled Cigarette (2020) BDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отставной солдат и молодой маргинал вынуждены бороться со своим тяжёлым положением, тогда как общество отворачивается от них.Производство: Гонконг, Hand-Roll Cigarette FilmЖанр: Драма, криминалРежиссер: Келвин ЧанАктеры: Гордон Лам, Бипин Карма, Майкл Нин, Бен Юэнь, Сингх Хартихан Битто, Чинь Сиу-Хо, Аарон Чоу, Чу Пак Хим, Тони Хо, Тай БоПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C392DEC475926BAD9F6D450C99580143777FBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

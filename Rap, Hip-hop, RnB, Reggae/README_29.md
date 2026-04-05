@@ -1,32 +1,3 @@
-###  Публикация: 1651377   (206987) от 06.08.2023
-
-Skindred - Smile (2023) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Religion
-02. GIMME THAT BOOM
-03. Set Fazers
-04. Life That's Free(   Читать дальше...   )Жанр: Hip Hop, Rock, ReggaeПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DA187EEC24CD1567BBF742F9F4135D7FAA1B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582522   (206311) от 09.10.2022
 
 VA - Chillhop Essentials Fall (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
@@ -35,7 +6,7 @@ VA - Chillhop Essentials Fall (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206311.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201673.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Sam Smith - Gloria (2023) [FLAC|Lossless|tracks + .cue] <Contemporary R&B, Vocal
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200981.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200328.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Noize MC - Кооператив «Лебединое озеро» (2023) Single 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199754.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ VA - Chillhop Essentials Summer (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197259.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190509.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189751.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ VA - Chillhop Essentials Fall (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189712.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ VA - Поколение Брат (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189644.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ VA - The Secret Garden (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185809.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185099.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ STED.D - МЫ ДАВНО В АДУ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184362.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184218.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Don Letts - Outta Sync (2023) [MP3|320 Kbps] <Dub Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183207.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ The Brand New Heavies - Never Stop... The Best of (2023) 2 x CD [FLAC|Lossless|W
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183132.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182448.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Pharaoh - Philarmonia (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181106.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180952.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179953.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Schokk - Л.О.Н. (2022) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179111.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178907.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178767.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Ram & Kommo - Delirium (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Alternativ
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178734.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ VA - FIRMAA (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176727.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ VA - FIRMAA (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A51DBAD784A4A5EDDC5A36BA931104DA683B022F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595022   (176610) от 03.12.2022
+
+Ноггано - Палец на отсечение (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Утюжок [00:04:46]
+02. Санта Муэрте [00:04:32]
+03. Путаны [00:04:14]
+04. Де ты чё ты [00:03:59](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649650271C74FAEC2D06D68E2936EEB7E64F2384
 ```
 
 https://mybot314.ru/tekegram_catalog/

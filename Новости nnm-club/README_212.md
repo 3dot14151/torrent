@@ -1,3 +1,55 @@
+###  Публикация: 421357   (295200) от 10.12.2011
+
+Том и Джерри / Tom and Jerry (1940-2005) DVDRip (Полная Коллекция 163 серии)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет большинства мультфильмов сосредоточен на безуспешных попытках Тома поймать мышонка. Поскольку в некоторых сериях персонажи довольно мирно уживаются между собой, остаётся непонятным, за что Том постоянно преследует Джерри. Можно выделить несколько сюжетных поворотов, приводящих к игре в «кошки-мышки»Жанр: Рисованная анимацияРежиссер: Джозеф Барбера, Уильям Ханна, Джин Дейч, Чак ДжонсПеревод: Профессиональный многоголосыйПродолжительность: 163x ~ 00:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3E7059A0950D7B12E1550F12BA1F9297A172D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079245   (295150) от 03.12.2016
+
+Alien Skin Exposure X2 Bundle 1.0.0.88 Revision 35316 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295150.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Exposure X2 Bundle - это редактор фотографий и органайзер, который объединяет все плагины от Alien Skin’s для редактирования фотографий в одном продукте. Основой комплекта является Exposure X2, приложение редактирования фотографий , которое оптимизирует рабочий процесс и обеспечивает широкий набор творческих инструментов. Так же в этот комплект входят два дополнительных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A60D77DCDF38F003EF752F7B3D802B63932163E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423847   (295149) от 15.11.2020
 
 Образовательный центр Сириус обрел эксклюзивный статус
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_295149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_295149.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ qBittorrent 4.0.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294632.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294579.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.11.14 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294466.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Blackmagic Design DaVinci Resolve Studio (16.1.0.55) Portable by XpucT [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294355.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v1.0 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294351.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Acronis True Image 19.0.6027 + Universal Restore 11.5.39006 + Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294272.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294268.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ SketchUp Pro 2016 v16.0.19912 (x64) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294256.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_293642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_293642.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293091.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293067.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292595.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292535.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.10.29 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292453.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292316.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Linux Mint 17.3 Rosa (Mate, Cinnamon) [32bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292308.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ AusLogics BoostSpeed 8.1.2.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292265.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Adobe Illustrator CC 2015.2.0 19.2.0 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292257.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Adobe Audition CC 2015.1 8.1.0.162 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292252.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Helldivers (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292248.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Adobe After Effects CC 2017 (v14.0.1) Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291199.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291177.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291002.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262486   (290949) от 17.11.2018
-
-Спутниковый интернет отдают под контроль государства
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_290949.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Госдуму внесён законопроект, призванный предотвратить «неконтролируемый ввоз абонентских терминалов и использование зарубежных спутниковых систем связи и доступа в интернет на территории РФ в целях национальной безопасности», причём он идентичен ранее выложенному Минцифры на общественное обсуждение документу.Членами Совета Федерации Л.Боковой, А.Клишасом, И.Морозовым (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262706   (290800) от 17.11.2018
-
-deepin 15.8 [x86_x64] 1xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290800.jpg" />
-</div>
-
-
-###  Подробнее
-
-deepin — дистрибутив Linux, основанный на пакетной базе Debian Unstable с собственным окружением рабочего стола DDE — Deepin Desktop Environment, с оконным менеджером Gala (форк Mutter) и рядом приложений домашней разработки, среди которых музыкальный проигрыватель — аудиоплеер Deepin, видеоплеер — DMovie, система обмена сообщениями - DTalk, инсталлятор (установщик (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874257DDBFF15DEBA39C576C47D5BFDE95DEB03E
 ```
 
 https://mybot314.ru/tekegram_catalog/

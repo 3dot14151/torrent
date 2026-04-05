@@ -1,3 +1,29 @@
+###  Публикация: 1277623   (766919) от 28.01.2019
+
+Михаил Мокиенко | Как Бабы-Яги сказку спасали [«Самовар»] [2003, lossless]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие думают, что Баба-Яга — это злая, вредная старуха, которая постоянно делает подлости и гадости хорошим людям. Может быть, так оно и было, но это было давно. Вы, наверное, и сами замечали, что проходит какое-то время, и люди меняются. Тот, кто в детстве учился не очень хорошо, вдруг становится профессором. И наоборот — первый ученик может оказаться полной бездарностью. (   Читать дальше...   )Жанр: Музыкальная сказка / инсценировка / аудиоспектакльПродолжительность: 1:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1A517AAB76D8A26472AA7B156F1896F35677E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393717   (766907) от 01.07.2020
 
 Геннадий Гладков - Трубадур и другие... (2002) [MP3|320 Kbps]<Детские песни>
@@ -6,7 +32,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766907.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766873.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766863.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766809.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766797.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766795.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766750.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766355.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766305.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765449.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764690.jpg" />
 </div>
 
 
@@ -313,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764589.jpg" />
 </div>
 
 
@@ -342,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764438.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764427.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764098.jpg" />
 </div>
 
 
@@ -420,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763752.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763745.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763599.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763542.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ VA - Новые детские песни (2009) [MP3|128 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763287.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762302.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762293.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762291.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760985.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760523.jpg" />
 </div>
 
 
@@ -672,32 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B24D9930FC3473B5C5BE67DE74ACAF08737B9340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873190   (759979) от 07.07.2020
-
-Владислав Крапивин | Бабочка на штанге [Авторский релиз] (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все в этом мире уравновешено, взаимосвязано и сбалансировано. Повлиять на ход событий, изменить его в ту либо иную сторону может малейший фактор. Подобно тому, как невесомая бабочка, севшая на штангу, поднятую атлетом, может нарушить зыбкий баланс. Невидимые струны тонких материй мироздания сходятся в кафе "Арцеуловъ". Именно здесь, в загадочном кафе, друзья (   Читать дальше...   )Жанр: Фантастика, детская литератураПродолжительность: 09:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6485188513102E4615F71FC1C9E55E1CE9DD1546
 ```
 
 https://mybot314.ru/tekegram_catalog/

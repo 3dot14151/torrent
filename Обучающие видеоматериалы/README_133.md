@@ -1,3 +1,29 @@
+###  Публикация: 1553975   (578701) от 29.05.2022
+
+Figma.center, Владимир Чернышов | Дизайн генератор. Комплект Figma, для создания прототипов и крутых дизайн макетов Landing Page (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект с множеством разделов для быстрого создания прототипов и крутых дизайн макетов Landing Page в Figma. Скорость создания дизайна лендингов возрастает в 2-5 раз. Хочу отметить, что это не очередной затасканный комплект от школо-бизнесменов. Автор сего комплекта профессиональный дизайнер. Его шаблоны приняли в такие широкоизвестные стоки как themeforest.net (   Читать дальше...   )Производство: Figma.centerЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:08:11Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0DE15B999A31ED41F58D9E2A8D82F3E4CC6767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920701   (578622) от 23.07.2015
 
 Oleg Lav | Создание UEFI флешки на основе WINPE с Acronis True Image (2015) PCRec [H.264/720p]
@@ -6,7 +32,7 @@ Oleg Lav | Создание UEFI флешки на основе WINPE с Acronis
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578622.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578265.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Marco Bucci | 3D Techniques with Digital Painting (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577256.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577096.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Oleg Lav | Восстановление системы при загрузке �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576985.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Oleg Lav | RollBack Rx — Машина Времени для вашего ко�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576902.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Corey Barker | Planet Photoshop by Corey Barker [2008-2011] [EN] PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576585.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575725.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Geekbrains | Профессия SMM менеджер (2018) PCRec [H.264/720p-LQ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575620.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Unreal Sensei | The Unreal Masterclass (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575364.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ wpa.at.ua | Проверь свою WI-FI сеть на устойчивость
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574101.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ prog.kiev.ua | Java профессионал (2015) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573973.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573886.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ Geekbrains | SEO. Оптимизация и продвижение сайтов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573864.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Fxphd, Nick Nimble | Houdini Ocean Effects (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573770.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573263.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573235.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573013.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ Jillian Michaels | Extreme Shed & Shred (2011) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572224.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ Ashley Borden | 900 Calorie Burn (2015) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572207.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571889.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571884.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571872.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Udemy, YouRa Allakhverdov | Python разработка - с нуля до пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571706.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ Yoga BeachBody Studio | 3 Week Yoga Retreat (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570109.jpg" />
 </div>
 
 
@@ -673,33 +699,6 @@ Yoga BeachBody Studio | 3 Week Yoga Retreat (2017) HDTVRip [H.264/720p-LQ] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F9546F1F50DC25CC25256F263F88D52764D811F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043644   (570014) от 17.08.2016
-
-Сергей Пузанков | Онлайн курс Advanced front-end (2016) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только продвинутые знания front-end, современные технологии, сложные задачи, серьезный кодинг — словом, не для «новичков». Более глубокие познания и владение технологиями, выход на новый профессиональный и карьерный уровень.
-Практика, практика, практика! Много практики! Захватывающая и интересная работа над реальным и нетривиальным проектом. Знания и опыт самых лучших (   Читать дальше...   )Производство: front-end scienceЖанр: Программирование, java script, front-endПродолжительность: 28:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0294CF9FDFF4CF4BC842C45C964FC37ABF3E39
 ```
 
 https://mybot314.ru/tekegram_catalog/

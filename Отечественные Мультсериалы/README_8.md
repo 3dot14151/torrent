@@ -1,3 +1,29 @@
+###  Публикация: 959386   (312126) от 26.11.2015
+
+Колобанга (2015) HDRip [H.264] (Сезон 1, серии 1-10 из 10) [MP4|1280x720]
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312126.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Колобанга» – детективный мультик про колобков, способный перевернуть ваш взгляд на Интернет. Отправляя смайлы в Сети, вы вряд ли осознаете, что где-то на просторах Интернета в это время над вашими эмоциями трудятся десятки колобков: посылают воздушные поцелуи, грустят и даже порой краснеют за вас. Вряд ли вы задумывались и над внешним видом вирусов или, к примеру, (   Читать дальше...   )Производство: Россия, КолобангаЖанр: Компьютерная анимация, Обучающий, Развивающий, ПриключенияРежиссер: Александр РоманецПерсонажи: Колобок, Умник, Челка, ГлюкПродолжительность: ~ 00:14:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AFF539E75071A3415859E91D3CA9A855473BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960602   (307725) от 28.11.2015
 
 Мульт утро. Выпуск 5 (2015.11.28) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307725.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298615.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298428.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294590.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294463.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290983.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285012.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280473.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280470.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279807.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276813.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275978.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268610.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263075.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261887.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255891.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254929.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250733.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247692.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245980.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243098.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242040.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241902.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237913.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236289.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8BCB4E3CFDEE8F9D056A26F80A009F43DB7584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631031   (236243) от 04.05.2023
-
-Приключения Незнайки и его друзей (1971-1973) DVD5
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236243.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Цветочном городе живут коротышки - маленькие человечки, малыши и малышки: Астроном Стекляшкин, поэт Цветик, ученый Знайка, доктор Пилюлькин, музыкант Гусля, художник Тюбик, механики Винтик и Шпунтик, Пончик, Сиропчик и многие-многие другие. Но самым известным среди коротышек был малыш по имени Незнайка, который прославился тем, что ничего не знал.Производство: СССР, ТО «Экран»Жанр: мультфильм, детскийРежиссер: Леонид Аристов, Юрий Трофимов, Кирилл Малянтович, Александр Боголюбов, Юрий КлепацкийАктеры: Тамара Дмитриева, Александра Бабаева, Рина Зелёная, Мария Виноградова, Зиновий Гердт, Зинаида Нарышкина, Маргарита Корабельникова, Клара Румянова, Агарь Власова, Ольга ГромоваСубтитры: ОтсутствуютПродолжительность: 02:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8CDAD1F837A7ED2FB44F5B76B38BA1B9D4DA0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

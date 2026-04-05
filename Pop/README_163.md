@@ -1,189 +1,3 @@
-###  Публикация: 809496   (587448) от 01.08.2014
-
-T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Edition [FLAC|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Cover Lover (Extended Version) 6:13
-02. Count On Me (Extended Version) 6:31
-03. How Old Are You (Mixed By Luis Rodriguez) 6:36
-04. Move It 4:34
-05. Carry Me (Maxi Version) 5:05
-06. H.A.P.P.Y. Radio (Extended Version) 6:20
-07. Count On Me (Instrumental Dub Version) 5:09
-08. Under Cover Lover (Instrumental) 5:35
-09. Count On Me (Single Version) 3:57
-10. Under Cover Lover (Radio Version) 3:41(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE9F36E642B4B4E6A6143092726DB75EE039295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040302   (587412) от 04.08.2016
-
-Chic - Dance, Dance, Dance: The Best Of Chic (1991) [FLAC|Lossless|image + .cue] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587412.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dance, Dance, Dance (Yowsah, Yowsah, Yowsah) (8:22)
-2. Everybody Dance (12" remix) (8:27)
-3. Strike Up the Band (4:33)
-4. Chic Cheer (4:42)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 01:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5921679C946E9ECBD8023355F318D73D1CAAB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357159   (586997) от 01.07.2011
-
-Витас - Романсы (2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хризантемы (3:53)
-02. Я тебя никогда не любил (3:55)
-03. Тополь (3:28)
-04. Поцелуй (ремикс) (3:06)
-05. Мохнатый шмель (2:58)
-06. Очи черные (1:54)
-07. Скажи, что ты любишь (4:32)
-08. La Donna E Mobile (3:03)
-09. Лист осенний (ремикс) (3:42)
-10. Я тебя благодарю (5:17)(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918567   (586914) от 15.07.2015
-
-VA - Romantic Worlds (2008) [FLAC|image + .cue]<Pop, Soul, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beady Belle - When My Anger Starts To Cry [5:21]
-02. Billie Holiday - Speak Low (Bent Remix) [4:20]
-03. Remy Shand - Burning Bridges [4:30]
-04. The Roots feat. Jill Scott & Eve - You Got Me [4:16](   Читать дальше...   )Жанр: Pop, Soul, ElectronicПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65476CBD99210A70F39F79C1E2098BE6650C474A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552587   (586749) от 21.05.2022
-
-VA - Discotech & About Nu Disco (2022) [MP3|320 Kbps] <Nu Disco, Dance, Deep House, Electronica>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTC, Luke Truth, Carrera - Dance Through The Storm (Original Mix)
-02. Gillies - What About Luv (Original Mix)
-03. Moe Turk - Thinking Of You (Original Mix)
-04. Ram J - Indie, 606 (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Dance, Deep House, ElectronicaПродолжительность: 02:28:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1F593550DCB9DDCB134138E63F36CE81865796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040531   (586481) от 05.08.2016
-
-Black Jack - 3 Albums (1979-1982) [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586481.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Black Jack" - созданная в Германии "Funk-Disco" группа. Основатель - George Liszt.Список альбомов:
-1979 - Hot Passion
-1980 - Neon Lover
-1982 - White BusinessЖанр: Electronic, Disco, Synth-pop, Pop-RockПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F45669094D9D31CD6FAB933660DBC00CAD7050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 809566   (586472) от 02.08.2014
 
 VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
@@ -192,7 +6,7 @@ VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586472.jpg" />
 </div>
 
 
@@ -226,7 +40,7 @@ VA - Modern Talking Árnyékában 1. (2009) [MP3|320 кб/с]<EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586459.jpg" />
 </div>
 
 
@@ -260,7 +74,7 @@ The Z.A.C.K. - Disco Cosmix (1979) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586453.jpg" />
 </div>
 
 
@@ -289,7 +103,7 @@ VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586435.jpg" />
 </div>
 
 
@@ -318,7 +132,7 @@ Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586424.jpg" />
 </div>
 
 
@@ -353,7 +167,7 @@ Tight Fit - Back To The 60's (1981) LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586178.jpg" />
 </div>
 
 
@@ -380,7 +194,7 @@ VA - Romantic Worlds Vol.2 (2008) [FLAC|image + .cue]<Pop, New Age>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585941.jpg" />
 </div>
 
 
@@ -409,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585860.jpg" />
 </div>
 
 
@@ -438,7 +252,7 @@ VA - The Original Masters, Vol. 7 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585845.jpg" />
 </div>
 
 
@@ -467,7 +281,7 @@ VA - The Original Masters, Vol. 8 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585844.jpg" />
 </div>
 
 
@@ -496,7 +310,7 @@ VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585840.jpg" />
 </div>
 
 
@@ -525,7 +339,7 @@ VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585835.jpg" />
 </div>
 
 
@@ -554,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585796.jpg" />
 </div>
 
 
@@ -583,7 +397,7 @@ VA - DMC Halloween In The Mix (Classic Mixes) (Volume 1) (2019) [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585792.jpg" />
 </div>
 
 
@@ -612,7 +426,7 @@ VA - The Original Masters, Vol. 12 (The Music History of the Disco) (2017) [MP3|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585786.jpg" />
 </div>
 
 
@@ -641,7 +455,7 @@ VA - The Original Masters, Vol. 14 (The Music History of the Disco) (2017) [MP3|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585785.jpg" />
 </div>
 
 
@@ -670,7 +484,7 @@ VA - The Original Masters, Vol. 11 (The Music History of the Disco) (2017) [MP3|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585783.jpg" />
 </div>
 
 
@@ -699,7 +513,7 @@ VA - The Original Masters, Vol. 2 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585726.jpg" />
 </div>
 
 
@@ -728,7 +542,7 @@ Fancy - Playa De Palma (Nonstop-Hit-Party) (2015) [MP3|320 кб/с]<EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584777.jpg" />
 </div>
 
 
@@ -757,7 +571,7 @@ Baltimora - Living In The Background (2005) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584486.jpg" />
 </div>
 
 
@@ -777,6 +591,191 @@ Bonus Tracks:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9933D002D0E90D7D9696110E52F8A846E8E83AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810210   (584447) от 04.08.2014
+
+Gabrielle Aplin - English Rain (2013) [FLAC|Lossless]<Indie Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panic Cord [03:25]
+02. Keep On Walking [02:52]
+03. Please Don't Say You Love Me [03:01]
+04. How Do You Feel Today? [03:46](   Читать дальше...   )Жанр: Indie Pop, Folk, CountryПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF0FCE50189521AC91824EAC2F34E9D12850FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810239   (584400) от 04.08.2014
+
+Baltimora - Survivor In Love (2006) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Key Karimba 5:59
+02. Global Love 4:39
+03. Jimmy's Guitar 3:56
+04. Come On Strike 4:48
+05. Set Me Free 4:44
+06. Survivor In Love 5:00
+07. Call Me In The Heart Of The Night 4:54
+08. Eye To Eye 4:14
+09. Global Love (Mix Version) 4:38Жанр: Italo-DiscoПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4B0EAC722483D1B9058647C6785F1E3E136C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041058   (584258) от 07.08.2016
+
+Fun Factory - Back to the Factory (2016) [FLAC|Lossless|WEB-DL|tracks] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megamix (8:00)
+02. Turn It Up (2:52)
+03. Summerday (3:02)
+04. I Want Your Love (3:01)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD79699777129E2B91091A2EF45C6A9FFC62BE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919083   (583683) от 18.07.2015
+
+Ёлка - Ненастоящая Любовь!!! (2014) [MP3|320 кб/с]<Pop, RnB>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ненастоящая любовь
+02. Музыка-Мечта
+03. Светит Звезда
+04. Доброе утро(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B12BFEBE1477F427DDDB7E565CEC8FF875527A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810346   (583436) от 05.08.2014
+
+Tony Esposito - Tony Esposito (Best Of) (1997) [FLAC|Lossless]<Disco-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Chico [0:03:59.93]
+02. Kalimba de Luna [0:05:01.40]
+03. Sinue [0:03:52.76]
+04. Hands [0:04:22.84]
+05. Dateme [0:04:25.93]
+06. Simba de Ammon [0:04:59.16]
+07. As tu as [0:04:43.73]
+08. Crazy conga [0:05:04.10]
+09. Ella Xana [0:03:58.76]
+10. Giochi non Giochi? [0:04:03.37](   Читать дальше...   )Жанр: Disco-PopПродолжительность: 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C3D6287E6CA84B876E5406392A4EC8F5F52227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301870   (583327) от 13.05.2019
+
+Lightning - Lightning (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Symphony (10:11)
+02. In And Out Of Love (6:48)
+03. Baby Without Your Love (7:15)
+04. I Love The Way You Love Me (5:25)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2EB5CEB5FC890AE303506F5C76E08BF319210C
 ```
 
 https://mybot314.ru/tekegram_catalog/

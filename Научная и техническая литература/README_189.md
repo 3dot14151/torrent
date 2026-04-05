@@ -1,137 +1,3 @@
-###  Публикация: 1214958   (761814) от 24.03.2018
-
-В.П. Семенников (подгот. к печ.) | Революция 1905 года и самодержавие (1928) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник документов, объединённых общим названием: "Революция 1905 года и самодержавие", представляет собрание всеподданейших докладов, записок, рапортов и телеграмм, в которых царские министры, генерал-губернаторы, специальные чиновники, генерал-адъютанты и проч. освещали царю ход революции и, особенно, меры, ими предпринимаемые для её подавления.Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01034D336F16A828034E01A12D1AE8615E11299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214972   (761813) от 24.03.2018
-
-Устав Союза русских людей (1906) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Союз русских людей (СРЛ), одна из крупнейших право-монархических организаций начала XX в.
-
-Союз начал формироваться после известного рескрипта Императора Николая II министру вн. дел А. Г.Булыгину от 18 февраля 1905, в котором Царь оповещал Своих верноподданных: «Я вознамерился привлекать достойнейших, доверием народа облеченных, избранных от населения людей к участию (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D8544DFC6E5ECE6C3210CAF4A061EE7AA4917A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214960   (761809) от 24.03.2018
-
-В. Иванович (сост.) и др. | Российские партии, союзы и лиги (1906) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник программ, уставов и справочных сведений о российских политических партиях, всероссийских профессионально-политических и профессиональных союзах и всероссийских лигах.Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4FF540EF8AC7AA7B11C7BA65B1ED1FF2ABCBF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214956   (761808) от 24.03.2018
-
-Программа мусульманской партии (1907) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Партия ставит себе задачей объединить в одной общей практической деятельности всех граждан-мусульман России, единомышленных по своим политическим убеждениям, для проведения в жизнь ряда политических, экономических, социальных, религиозных и др. реформ, как отмечаемых настоящей программой, так и тех, кои могут быть вызваны и указаны самой жизнью.Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3C5CDB255B0014D59AF78A9F682099C77D9F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214967   (761805) от 24.03.2018
-
-П.Н. Ткачев | Анархия мысли. Собрание критических очерков (1904) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пётр Никитич Ткачёв (11 июля 1844, село Сивцово, Псковская губерния — 4 января 1886, Париж) — русский литературный критик и публицист, брат Александры Анненской. Идеолог якобинского направления в народничестве.
-
-Воззрения Ткачёва сложились под влиянием демократической и социалистической идеологии 50—60-х годов XIX века. Ткачёв отвергал идею «самобытности» русского (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3F05443765B29F3D37769F5E6B4479A5592CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214968   (761801) от 24.03.2018
 
 П.Н. Ткачев | Ораторы-бунтовщики перед русской революцией (1880) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761801.jpg" />
 </div>
 
 
@@ -168,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761776.jpg" />
 </div>
 
 
@@ -194,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761774.jpg" />
 </div>
 
 
@@ -220,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761765.jpg" />
 </div>
 
 
@@ -247,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761736.jpg" />
 </div>
 
 
@@ -275,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761693.jpg" />
 </div>
 
 
@@ -301,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761689.jpg" />
 </div>
 
 
@@ -327,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761685.jpg" />
 </div>
 
 
@@ -353,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761671.jpg" />
 </div>
 
 
@@ -379,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761669.jpg" />
 </div>
 
 
@@ -408,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761651.jpg" />
 </div>
 
 
@@ -436,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761649.jpg" />
 </div>
 
 
@@ -462,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761573.jpg" />
 </div>
 
 
@@ -488,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761540.jpg" />
 </div>
 
 
@@ -514,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761536.jpg" />
 </div>
 
 
@@ -541,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761500.jpg" />
 </div>
 
 
@@ -570,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761417.jpg" />
 </div>
 
 
@@ -598,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761276.jpg" />
 </div>
 
 
@@ -625,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761229.jpg" />
 </div>
 
 
@@ -652,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760898.jpg" />
 </div>
 
 
@@ -678,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760884.jpg" />
 </div>
 
 
@@ -690,6 +556,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662049   (760639) от 28.05.2013
+
+Юлия Попова | Гастрит. Самые эффективные методы лечения [2009] [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боли и тяжесть в желудке, тошнота, рвота – симптомы, хорошо знакомые практически каждому человеку. Как понять, являются ли они признаками незначительного расстройства пищеварения или же настало время обратить пристальное внимание на свое здоровье?Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265E0041512AE12C7ACDB508F2EFFE9FB6B255D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280542   (760541) от 03.02.2019
+
+В. И. Буганов | Московские восстания конца XVII века (1969) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760541.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем исследовании рассматривается история двух восстаний в Москве — 1682 и 1698 гг., крупнейших народных выступлений феодально-крепостнической России «бунташного» XVII столетия.Жанр: История, политология, документалистика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAF3067B4F6F871E48DF5AC6B53555258DBAA7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280552   (760540) от 03.02.2019
+
+Н. В. Устюгов | Башкирское восстание 1737-1739 гг. (1950) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая работа является первым опытом специального исследования башкирского восстания 1737—1739 гг.
+
+Восстание 1737—1739 гг. следует рассматривать в общей связи с башкирскими движениями против царского правительства в 30-х годах XVIII в. По существу восстание длилось шесть лет (с 1735 по 1740 г.). Это единое движение распадается на три этапа, отличающиеся один (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6622F94C5FB8F645CB88DA350B1077A496C0785B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280568   (760525) от 03.02.2019
+
+Даниэль Шенпфлуг | Время кометы. 1918. Мир совершает прорыв (2019) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркой вспышкой кометы оказывается 1918 год для дальнейшей истории человечества. Одиннадцатое ноября 1918 года - не только последний день мировой войны, швырнувшей в пропасть весь старый порядок. Этот день - воплощение зародившихся надежд на лучшую жизнь. Вспыхнули новые возможности и новые мечты, и, подобно хвосту кометы, тянется за ними вереница картин и лиц.
+
+В (   Читать дальше...   )Жанр: Исторические науки, Всемирная историяПеревод: Ирина АлексееваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD08949A30C813482564169A0354C9DB29AC6450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394894   (760510) от 07.07.2020
+
+А.Ф. Сухановский, И.Ю. Слободянюк | Арктическая Россия (2007) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — об Арктике. А российская Арктика — это огромные пространства, погруженные то в мрак полярной ночи, то в негаснущий свет полярного дня. Арктика прекрасна в ослепительной белизне снегов и могучести вечных странников-льдов. Арктика опасна свирепостью дикой природы, нрав которой предсказать порой бывает очень и очень сложно. Арктика открывалась человеку не (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C74944030E7736E2EB76D7CBF5DFC25CBD28161
 ```
 
 https://mybot314.ru/tekegram_catalog/

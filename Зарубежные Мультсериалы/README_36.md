@@ -1,3 +1,55 @@
+###  Публикация: 957413   (321496) от 22.11.2015
+
+Робоцып / Robot Chicken (2011) WEB-DLRip (5 сезон, 20 серий из 20) [КетчупТВ]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321496.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом, 5 сезоне Робоцыпа - Всеми любимые герои комиксов, такие как Бэтмен, Халк и супермен живут в одном доме. Всё это мог придумать только воспалённый куриный мозг с буйной фантазией. Сумасшедший профессор заменил одно крыло цыпленка на стальное, заменил его ногу на металлическую, а глаз – на лазерный. Получившийся киборг, был усажен перед миллионами телезрителей (   Читать дальше...   )Производство: СШАЖанр: Фантастика, пародия, мультфильмРежиссер: Крис МакКэйк, Мэттью СенрейчПеревод: Одноголосый закадровый, профессиональныйОзвучка / Автор перевода: КетчупТВПродолжительность: 20 серий по 00:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3429AE5512D7D54E8305C4D9C77B85EF420B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416773   (321184) от 29.11.2011
+
+Клуб Винкс СпецВыпуски (3 серия из 4) / Winx club Specials 2011 SATRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321184.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Winx Club:The Battle for Magix» - третий одночасовой спецвыпуск мультсериала «Winx club» от канала Никелодион. («Winx Club: One Hour Special Nick»). Третий спецвыпуск кратко пересказывает события, происходящие в конце сезона сериала. В общем целом, мы не видим особых изменений в сюжетной линии.. Также можно отметить небольшую разницу в графике, измененную концовку по сравнению с оригиналом, замену опенинга и эндинга.Жанр: Анимационный, Приключения, СемейныйРежиссёр: Иджинио Страффи (Iginio Straffi)Перевод: Профессиональный (дублированный)Формат: MKVПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93932FCEC46AF22ED1964D1A5962B20464081810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581975   (320027) от 29.11.2012
 
 Домашние коты / Slacker cats (2 сезона, 12 эпизодов) (2007, 2009) IPTVRip
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320027.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316180.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316138.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315852.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315782.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315454.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315120.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313785.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313477.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312877.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312773.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312736.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311938.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310586.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310498.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310427.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307032.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306588.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306197.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306076.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305959.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304856.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304838.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304835.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35E568385EF49765C9441E88C2409890CB57EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845902   (303741) от 01.12.2014
-
-Аватар: Легенда о Корре / The Last Airbender: The Legend of Korra (3 сезон: 1-13 серии из 13)  (2014) WEB-DLRip [720p] (LE-Production)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Аватар Корра в свои 16 лет уже не только хорошо овладела всеми 4-мя стихиями: огнем, водой, землей и воздухом, а также справилась с революционной армией и главой революционеров – Амоном, сыном Якона, магом крови, и научилась контролировать себя в мире духов, не только общаясь с мирными, а бороться со злыми. Теперь Корре предстоят еще более суровые испытания. (   Читать дальше...   )Жанр: Приключения, Рисованная анимацияРежиссер: Майкл Димартино, Брайан Кониецко, Хоаким Дос Сантос, Ки Хьюн Рю, Йен Грэхэм, Колин ХекПерсонажи: Джанет Вэрни, Ди Брэдли Бэйкер, Джефф Беннетт, Дэвид Фаустино, П.Дж. Бирн, Дж.К. Симмонс, Сейшелл Гэбриел, Кирнан Шипка, Минди Стерлинг, Логан Уэллс, Дарси Роуз Бернс, Эдриэн ЛеТорелл, Ричард Рили, Обри Пласа, Аарон Химельштейн, Джон Майкл Хиггинс, Лиза Эдельстейн, Стивен Блум, Мария Бэмфорд, Джеймс Римар, Лэнс Хенриксен, Джонатан Адамс, Карлос Аласраки, Алекс МакКенна, (   Читать дальше...   )Перевод: Двуголосый закадровыйПродолжительность: 13 x ~ 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276433C4D5968CDC8838D9B2CA37047F2691423B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423028   (303714) от 11.11.2020
-
-Трансформеры: Война за Кибертрон / Transformers: War For Cybertron (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) HDRezka Studio, LostFilm
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303714.jpg" />
-</div>
-
-
-###  Подробнее
-
-В разгар непрекращающейся войны на планете Кибертрон армии добра и зла сталкиваются, когда ищут источник своей силы. Возможно, это не та жизнь, которую они себе представляли, но это жизнь, за которую стоит бороться.Производство: США / Rooster Teeth Animation, Hasbro, Netflix StudiosЖанр: Мультфильм, фантастика, боевикРежиссер: Такаси Камэи, Кадзума Симидзу, КодзиПеревод: Многоголосый профессиональный (HDRezka Studio, LostFilm)Субтитры: Русские, Английские (Forced, SDH)Продолжительность: ~ 00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD63ECCF327D97F0679269E3056CC4D3E8DCAE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

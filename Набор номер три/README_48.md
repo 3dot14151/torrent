@@ -1,3 +1,160 @@
+###  Публикация: 1348599   (1002087) от 10.01.2020
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.12.28 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932C4CAEA2EAFA01F531747ABDC412EB758F13E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488310   (1001942) от 11.08.2021
+
+Туркменских интернет пользователей заставляют отказываться от VPN и давать клятву на Коране
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Власти в Туркменистане с первых лет независимости ввели требования к гражданам страны приносить клятву верности родине. Теперь практика клятвоприношения используется в целях ограничения пользования Интернетом.Туркменское правительство, которое для ограничения доступа к Интернету собственных граждан до сих пор секретно сотрудничало с иностранными технологическими (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369225   (1001926) от 11.08.2021
+
+Grand Theft Auto V (2015) [Ru/Multi] (1.0.2372/1.57) RockstarRip =nemos=
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Сантос – город солнца, старлеток и вышедших в тираж звезд. Некогда предмет зависти всего западного мира, ныне это пристанище дрянных реалити-шоу, задыхающееся в тисках экономических проблем. В центре всей заварухи – троица совершенно разных преступников, отчаянно пытающихся ухватить удачу за хвост в непрекращающейся борьбе за место под солнцем. Бывший член уличной (   Читать дальше...   )Тип издания: RockstarRipРазработчик: Rockstar NorthЖанр: Action (Shooter), Racing (Cars), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51200CE90EB2B9025C5279916217CB9F1385011C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351345   (1001836) от 11.01.2020
+
+Micron пообещала, что новые DDR5 будут на 85% быстрее предшественника
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001836.jpg" />
+</div>
+
+
+###  Подробнее
+
+На днях Micron объявила о том, что стартовало производство тестовых образцов регистровых модулей оперативной памяти DDR5 для использования в серверах. Они будут построены на микросхемах 10-нм класса (1Znm) и, как заявили в компании, обеспечат прирост производительности подсистемы памяти более чем на 85% по сравнению с существующими DDR4.
+Ожидается, что DDR5 будут (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189326   (1001809) от 11.01.2020
+
+Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010, TV,  12 серий] HDTV 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной альтернативный мир слияния магии и высоких технологий – вовсе не идиллия. Не так давно могучий темный маг собрал войско демонов и чуть не уничтожил существующий порядок. От отступника смогли избавиться, но его именем до сих пор пугают детей. Впрочем, жить с тех пор стало легче, и вот Акуто Сай, талантливый сирота, выросший в церковном приюте, поступает (   Читать дальше...   )Жанр: приключения, комедияПродолжительность: ТВ (12 эп.), 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E882C6D51D69AC4AFAFDAAE71BE6FC6E6136BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351691   (1001808) от 11.01.2020
+
+Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/En] (Build 4073014/dlc) UplayRip =nemos= [Ultimate Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001808.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем прекрасная Боливия, живописный уголок Южной Америки, становится крупнейшим в мире производителем кокаина. Наркокартель Санта-Бланка подчинил себе правительство этой страны, в которой отныне процветает беззаконие, а жителей преследует постоянный страх.Тип издания: UplayRipРазработчик: Ubisoft ParisЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E66361B2441F9CADB423487ADF1092047720F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351638   (1001807) от 11.01.2020
 
 FxSound Enhancer 13.028 RePack by KpoJIuK [Ru/En]
@@ -6,7 +163,7 @@ FxSound Enhancer 13.028 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001807.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001803.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Subnautica (2018) [Ru/Multi] (63668) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001802.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/En] (1.15/reg1.35/dlc) Repack xatab [De
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001801.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001633.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001631.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ Microsoft Office 2016-2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001611.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ Toyota построит в Японии собственный «город бу
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001523.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ Kodachi Linux 6.2 [анонимный доступ в сети] [08.26.2019] [am
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001498.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ Parallels Desktop for Mac Business Edition 15.1.2 + Toolbox 3.7.0 CR2 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001487.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001334.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ Lauge (with Baba Gnohm, Rütz, Matt Tondut) - Discography 63 Releases (2008-2021
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001329.jpg" />
 </div>
 
 
@@ -323,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>21
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001327.jpg" />
 </div>
 
 
@@ -349,7 +506,7 @@ Windows 7 SP1 x86-x64 by g0dl1ke 21.08.11 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001320.jpg" />
 </div>
 
 
@@ -375,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001319.jpg" />
 </div>
 
 
@@ -401,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001214.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ TeamViewer 15.1.3937 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001204.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>15
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001201.jpg" />
 </div>
 
 
@@ -480,7 +637,7 @@ Total Commander 9.22a Podarok Edition + Lite [Ru/Uk]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001195.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001061.jpg" />
 </div>
 
 
@@ -517,163 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9A854F084113071EA71370F868409F0A70415BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486979   (1001058) от 14.08.2021
-
-Круиз по джунглям / Jungle Cruise (2021) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважная исследовательница дикой природы Лили Хоутон намерена отправиться в верховья Амазонки, чтобы найти легендарное дерево, которое – согласно преданиям южноамериканских индейских племен – обладает магическими целебными свойствами. Сопровождать Лили будут её утонченный брат Макгрегор и бесшабашный капитан круизного пароходика Фрэнк. В дебрях джунглей путников (   Читать дальше...   )Производство: США, 7 Bucks Productions, Davis Entertainment, Flynn Picture Company, TSG Entertainment, Walt Disney Pictures, Zaftig FilmsЖанр: Приключения, Комедия, ФэнтезиРежиссер: Жауме Кольет-СерраАктеры: Дуэйн Джонсон, Эмили Блант, Эдгар Рамирес, Джек Уайтхолл, Джесси Племонс, Пол Джаматти, Вероника Фалькон, Энди Найман, Филипп Максимилиан, Дэни РовираПеревод: Многоголосый закадровый (HDRezka Studio)Субтитры: Русские, Украинские, Английские, мультиязычныеПродолжительность: 02:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9133AC528026D9CF9EA4900031E65A8A06F1D08A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352119   (1000934) от 14.01.2020
-
-Первый Ил-96-400М передан в цех окончательной сборки
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый летный опытный образец самолета Ил-96-400М передан в цех окончательной сборки. В настоящее время завершена стыковка фюзеляжа и консолей крыла. На следующем этапе предстоит монтаж систем управления воздушным судном и установка интерьера.
-«Работы по программе создания нового пассажирского самолета Ил-96-400М идут по графику. Изготовление опытного образца планируется (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352126   (1000926) от 14.01.2020
-
-Новое открытие может ответить на вопрос о возникновении человеческого разума
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда ученых из Германии и Греции обнаружила новые свойства головного мозга, которые в перспективе могут объяснить возникновение уникального разума и сознания человека.Науке до сих пор неизвестно, почему люди умнее пауков, обезьян или птиц. Почему, глядя на закат солнца, мы можем заплакать от переполняющих нас чувств. Происходящие в нашей голове процессы коренным (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352357   (1000916) от 14.01.2020
-
-Стоимость услуг операторов связи повышается из-за «пакета Яровой»
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оператор связи «Мегафон» поднимет стоимость архивных тарифов с 13 января, компания «Вымпелком» — с 16 января. В «Мегафоне» сообщили, что повышают стоимость тарифов из-за роста потребления услуг. В компании отметили, что повышение затронет небольшую часть абонентов. В «Вымпелкоме» сказали, что повышают цены из-за расходов на реализацию требований российских законов, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352520   (1000735) от 15.01.2020
-
-SCUM (2018) [Ru/Multi] (0.3.67.19766/dlc) Repack Mr_Weegley [Early Access]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миру недостаточно простых развлечений. Теперь он жаждет крови, и медийный гигант TEC1 готовит премьеру второго сезона телевизионной сенсации SCUM, чтобы удовлетворить потребности зрителей. В новом сезоне участники не будут ограничены закрытыми аренами; их ждут густые леса, холмистые поля и труднопроходимая местность на персональном острове TEC1 — SCUM. Новые заключенные (   Читать дальше...   )Тип издания: RepackРазработчик: Gamepires, CroteamЖанр: Action, Survival, RPG (Open World), 3rd Person, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FFDE8B7C4444FEDEF96F0E0ABDCC796485F7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352561   (1000725) от 15.01.2020
-
-Adobe Photoshop 2020 21.0.2.57 RePack (& Portable) by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A470BF5E237C11BD201AC78050D18AE1713C1ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

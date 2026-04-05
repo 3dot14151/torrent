@@ -1,3 +1,32 @@
+###  Публикация: 1645210   (231994) от 08.07.2023
+
+SoulSplit - Пустой ад. Часть 1-2 (2021-2023) [MP3|320 Kbps] <Gothic, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вспомнить всё [00:03:55]
+02. Вампир [00:05:49]
+03. Пустой aд [00:04:47]
+04. Под землёй [00:04:20](   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3803489F4452DCD9CF724823091A11F5B7588632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646492   (231993) от 15.07.2023
 
 Tokyo Blade - Fury (2022) [FLAC|Lossless|image + .cue] <NWOBHM, Heavy Metal>
@@ -6,7 +35,7 @@ Tokyo Blade - Fury (2022) [FLAC|Lossless|image + .cue] <NWOBHM, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231993.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mourning Knight - A World of Dreams (2023) [MP3|320 Kbps] <Progressive Rock, Sym
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231988.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Arkham Witch - Beer and Bullet Belts (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231981.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231967.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Kikimora - For A Broken Dime (2023) [FLAC|24/48|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231960.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231954.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Lee Small - The Last Man On Earth (2023) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231944.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ John Greenwood - Dark Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231943.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Rosslyn - Soul in Sanctuary (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231941.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Freedom Call - The M.E.T.A.L. Fest (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231935.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Dust Coda - Loco Paradise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231932.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Winterage - Nekyia (2023) [FLAC|24/44,1|tracks|WEB-DL] <Symphonic-Power-Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231925.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Predatory Void - Seven Keys to the Discomfort of Being (2023) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231922.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Bangalore Choir - Center Mass (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231917.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Steve Lukather - Bridges (2023) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231907.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Morkt Stof - Revival (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231904.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ All For Metal - Legends (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231900.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Ontborg - Following the Steps of Damnation (2023) [MP3|320 Kbps] <Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231899.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Ghost - Phantomime (2023) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231898.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Kim Dracula - A Gradual Decline In Morale (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231895.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Vendetta - Black As Coal (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231885.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ The Design Abstract - Transhuman Ascendant (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231879.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Pussy Pistol - Икона стиля (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231875.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Strangerland - Echoes from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231870.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Tailgunner - Guns For Hire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231869.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Tailgunner - Guns For Hire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D714836BC224E58666EACB095FB304E21EAE4C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647034   (231863) от 17.07.2023
-
-Morguenstern - 2 Albums (2014-2023) [MP3|320 Kbps] <Horror Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мёртвое Сердце
-02. Мне Неведома Жалость
-03. Погрёбенная Заживо
-04. Эйфория(   Читать дальше...   )Жанр: Horror Gothic MetalПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBC6FA15BC64C3D2CD4261B27BC79A2B5A3B7B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

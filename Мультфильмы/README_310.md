@@ -1,3 +1,136 @@
+###  Публикация: 315541   (206350) от 09.10.2022
+
+С бору по сосенке (1974) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шуточный фильм о нерадивых спортсменах.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Зинаида Брумберг, Валентина БрумбергАктеры: Сергей Цейц Евгений ВесникСубтитры: ОтсутствуютПродолжительность: 00:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB27E90CF6A1D170944BBC1DF0A84F7DB89C42D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615543   (206349) от 26.02.2023
+
+Тачки 3 / Cars 3 (2017) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте самого знаменитого гонщика всех времен, легенду гоночного трека Молнию Маккуина!
+
+Герой все еще продолжает показывать лучшие результаты на всех турнирах, однако победы даются ему не так легко, а конкуренция становится все жестче. Молнию Маккуина ждут захватывающие приключения, где он встретит новых друзей, а также поймет, что не только скорость и мощность (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, комедия, приключения, семейный, спортРежиссер: Брайан ФиПеревод: дублированныйЯзык озвучки: русский, казахский, английскийСубтитры: отсутствуютПродолжительность: 01:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4D31355B2A3C0AF2BE24F702E66185FD44A836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293045   (206331) от 09.10.2022
+
+Без этого нельзя (1971) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не дружил с маленьким грубым и непослушным щенком до тех пор, пока он не исправился.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Михаил БотовАктеры: Татьяна Пельтцер, Эраст Гарин, Клара Румянова, Александр Баранов, Нина Зорская, Людмила ГниловаСубтитры: ОтсутствуютПродолжительность: 00:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C11AABFF1334E17CE409B8A6BB1336A7ED92A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 322675   (206329) от 09.10.2022
+
+Девочка и зайцы (1985) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206329.jpg" />
+</div>
+
+
+###  Подробнее
+
+В зимний день маленькая девочка каталась в лесу на лыжах. Ей повстречались два зайца. Им было очень холодно.
+Девочка дала им свой тёплый платочек, и зайцы согрелись. Пришла девочка домой…Производство: СССР, КиевнаучфильмЖанр: детский, сказкаРежиссер: Алла ГрачеваАктеры: Людмила Томашевская, Николай Лозовский, Ольга Паско, Э. Слуцкая, Богдан БенюкСубтитры: ОтсутствуютПродолжительность: 00:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A01A8BC70B32EDC8EDE1B186195E86284848D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 322668   (206325) от 09.10.2022
+
+Веселый огород (1947) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм про Ваню и Машу Кнопочкиных, которые посадили свой веселый детский огород и вырастили урожай, а щенок Бобик и Чучело помогли им его сохранить.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Владимир СутеевСубтитры: ОтсутствуютПродолжительность: 00:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9CF76AC14AF5C4A045A98B97AB5FD7B154A8BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 325954   (206324) от 09.10.2022
 
 Лесная хроника (1970) DVDRip
@@ -6,7 +139,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206324.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206318.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206259.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206235.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206217.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206212.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206137.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206134.jpg" />
 </div>
 
 
@@ -216,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206099.jpg" />
 </div>
 
 
@@ -242,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206093.jpg" />
 </div>
 
 
@@ -268,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206085.jpg" />
 </div>
 
 
@@ -295,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206082.jpg" />
 </div>
 
 
@@ -321,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206075.jpg" />
 </div>
 
 
@@ -347,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206069.jpg" />
 </div>
 
 
@@ -375,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206042.jpg" />
 </div>
 
 
@@ -401,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206039.jpg" />
 </div>
 
 
@@ -427,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206031.jpg" />
 </div>
 
 
@@ -453,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205935.jpg" />
 </div>
 
 
@@ -479,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205928.jpg" />
 </div>
 
 
@@ -505,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205904.jpg" />
 </div>
 
 
@@ -532,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205872.jpg" />
 </div>
 
 
@@ -543,136 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B46661E8999D9CAAA37CAF7B30B803E46F81C4B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616983   (205838) от 04.03.2023
-
-Закусочная Боба. Фильм / The Bob's Burgers Movie (2022) BDRip [H.264/1080p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничто так не объединяет семью как мелкие неудачи. У скромной закусочной Боба появились новые конкуренты, и теперь хозяину заведения приходится буквально из кожи вон лезть, чтобы удержаться на плаву. Неожиданным подспорьем для Боба могут оказаться собственные непутевые отпрыски, способные как следует попортить нервы Джимми Престо, мозолящему глаза своей пиццерией (   Читать дальше...   )Производство: США / 20th Century Studios, Fox Animation Studios, Buck & Millie ProductionsЖанр: мультфильм, мюзикл, триллер, драма, комедияРежиссер: Лорен Бушар, Бернард ДерриманАктеры: Х. Джон Бенжамин, Джон Робертс, Дэн Минтц, Юджин Мирман, Кристен Шаал, Дэвид Уэйн, Зак Галифианакис, Кевин Клайн.Перевод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F9D94FEF462B4980BCD079ACFDB187277CEE1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654059   (205837) от 20.08.2023
-
-Солнечные противоположности / Solar Opposites (2023) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-11 из 11) HDrezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришельцы, спасаясь со своей умирающей планеты, потерпели крушение на Земле и теперь вынуждены прикидываться обычными людьми. Человеческая цивилизация вызывает у гостей из другого мира немало вопросов, и они никак не могут до конца решить, хорошая она или нет. Точно известно только одно: они должны защищать Пупу — живой суперкомпьютер, который однажды эволюционирует, (   Читать дальше...   )Производство: США, 20th Century Fox Television, Fox Television Animation, Justin Roiland's Solo Vanity Card Productions, Walt Disney Pictures and TelevisionЖанр: для взрослых, комедия, приключения, фантастикаРежиссер: Майк МакМахан, Джастин РойландПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH), Испанские (SDH)Продолжительность: 11 x00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E9C14D8A183A006A39DABF166F53718E1B6A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654474   (205795) от 21.08.2023
-
-Солнечные противоположности / Solar Opposites (2023) WEBRip [H.264/720p-LQ] (сезон 4, серии 1-11 из 11) HDrezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришельцы, спасаясь со своей умирающей планеты, потерпели крушение на Земле и теперь вынуждены прикидываться обычными людьми. Человеческая цивилизация вызывает у гостей из другого мира немало вопросов, и они никак не могут до конца решить, хорошая она или нет. Точно известно только одно: они должны защищать Пупу — живой суперкомпьютер, который однажды эволюционирует, (   Читать дальше...   )Производство: США, 20th Century Fox Television, Fox Television Animation, Justin Roiland's Solo Vanity Card Productions, Walt Disney Pictures and TelevisionЖанр: для взрослых, комедия, приключения, фантастикаРежиссер: Майк МакМахан, Джастин РойландПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские, ИспанскиеПродолжительность: 11 x00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886DA2DFA977A01362BAE895A05B46BE37D4FBBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830612   (205742) от 27.10.2025
-
-Квартет (1947) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм по одноименной басне Ивана Крылова о том, как мартышка, осел, козел и медведь решили стать музыкантами. Во время выступления были освистаны соловьем, поскольку они не умели обращаться с музыкальными инструментами.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражка, детский, басняРежиссер: Александр ИвановАктеры: Эраст Гарин, Сергей ЛемешевСубтитры: отсутствуютПродолжительность: 00:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65BA6E1D9E0F32B2ED3E409499743D86B5176E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830901   (205733) от 27.10.2025
-
-В гости к сказке - Непослушный козлёнок (1947-1953) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник отечественных мультипликационных фильмов для детей. В него вошли: Непослушный козленок, Непослушный котенок, Квартет, Веселый огород, Каштанка, Новогодняя ночь.Производство: СССР / Грузия-фильм, СоюзмультфильмЖанр: мультфильм, детский, короткометражка, сказкаРежиссер: Шалва Гедеванишвили, Теймураз Микадзе, Мстислав Пащенко, Александр Иванов (II), Владимир Сутеев, Михаил Цехановский, Ольга Ходатаева, Пётр НосовАктеры: Татьяна Барышева, Маргарита Докторова, Мария Яроцкая, Юлия Юльская, Владимир Ратомский, Виктория Иванова, Татьяна Барышева,Маргарита Докторова,Мария Яроцкая, Юлия Юльская, Владимир Ратомский и другиеСубтитры: отсутствуютПродолжительность: 01:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B152937E7DA47971245EE55ED9C547A6EFFA8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

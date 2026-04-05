@@ -1,3 +1,61 @@
+###  Публикация: 203755   (1030357) от 19.02.2021
+
+VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030357.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Paco De Lucia - Entre Dos Aguas		      (06:01)
+02. Paul Mauriat - L'Amour Est Bleu	 	      (02:34)
+03. David A Stewart feat. Candy Dufler - Lily Was Here (04:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC5DC0E110914174C6A9D262DC084941BF75036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314749   (1030354) от 19.02.2021
+
+VA - Romantic Guitar (1995) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance De Amour 	(03:21)
+02. Johnny Guitar 	(02:29)
+03. La Ragazza Di Bube 	(02:42)
+04. Love Story 		(02:31)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994238C1081A2478B61B2A605BF55418CB804AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 286660   (1030343) от 19.02.2021
 
 Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
@@ -6,7 +64,7 @@ Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030343.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Le Valedon - Sensuous Sax (1995, 1996) 2СD  [FLAC|Lossless|tracks + .cue] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030342.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030334.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ The Gino Marinello Orchestra - Romantic Instrumental. Collection (1987-1998) [FL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030332.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030276.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030267.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030211.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Midnight Sax (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030129.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Albert Assayag - Accordion Dances: Tango Waltz Paso (2009) [FLAC|Lossless|tracks
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030118.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030107.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Вдохновение - Оттенки настроения 5 альбом
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030105.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030103.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030102.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030098.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - 100 Hits Accordeon (2008) 5CD, Box-Set [FLAC|Lossless|image + .cue] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030093.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Золотой саксофон (2003) [FLAC|Lossless|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030091.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Evgeny Grinko - Ice for Aureliano Buendia (2014) [FLAC|Lossless|WEB-DL|tracks] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030010.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029932.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Mystera II (1998) [OGG Vorbis|480 Kbps] <NewAge, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029595.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Country Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029523.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029347.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Devesh Sodha - Past & Present (2018) + Singles (2013-2020) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029343.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Darren Korb - Hades OST (2020) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029337.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Simon Chylinski - Subnautica (Original Game Soundtrack) (2018) [FLAC|Lossless|WE
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029003.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Simon Chylinski - Subnautica (Original Game Soundtrack) (2018) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F4A2FE3ACAE93BC6A6E4B55F0E62169C2C4646A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 19013   (1027979) от 04.03.2021
-
-The Best of Paul Mauriat 10 CD
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027979.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01 BEGIN THE BEGUINE '90
-02 EBB TIDE '72(   Читать дальше...   )Жанр: InstrumentalПродолжительность: ~12:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A60833FE6116FD23FCE31085A78404CEACC2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452519   (1027705) от 06.03.2021
-
-Wardruna - Kvitravn (2021) [FLAC|Lossless|tracks + .cue] <Dark Folk, Ambient, Nordic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synkverv (4:51)
-02. Kvitravn (6:18)
-03. Skugge (6:38)
-04. Grá (3:32)(   Читать дальше...   )Производство: Sony Music, Columbia, Fimbulljóð Productions – 19439724702Жанр: Folk, Ambient, Nordic Folk, Dark FolkПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB676E7919376F6373E0F53F6FB8EA3FF017919
 ```
 
 https://mybot314.ru/tekegram_catalog/

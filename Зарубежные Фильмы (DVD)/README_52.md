@@ -1,81 +1,3 @@
-###  Публикация: 735597   (277960) от 17.12.2013
-
-На грани сомнения / Suspension of Disbelief (2012) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теряясь между реальностью и вымыслом, талантливый писатель Мартин оказывается на грани сомнения. Убийство, исчезновение жены 10 лет назад, загадочная встреча с сексуальной незнакомкой, как две капли воды похожей на жертву, заставляют Мартина задаться одним единственным вопросом: «Кому можно верить?».Производство: Великобритания / Sosho Production, Red Mullet, SuspensionЖанр: триллерРежиссер: Майк ФиггисАктеры: Себастьян Кох, Лотте Вербеек, Эмилия Фокс, Ребекка Найт, Оуэн Мэкен, Локлен Нибор, Фрэнсис де ла Тур, Джулиан Сэндс, Кеннет Крэнэм, Пэрис ЭрроусмитПеревод: Профессиональный (многоголосый закадровый)Субтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAB3BC1B3DB8A5D1EC514CC66582DB84AEE4D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735367   (277805) от 17.12.2013
-
-Мачете убивает / Machete Kills (2013) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правительство США вербует Мачете для миссии, которую не под силу выполнить простому смертному. Мачете прорывается в Мексику, чтобы схватить безумного лидера карательного отряда и эксцентричного миллиардера, торгующего оружием, который, в свою очередь, лелеет мечту начать войну планетарного масштаба и запустить смертельно опасное оружие в космос. И только Мачете может (   Читать дальше...   )Производство: США, Россия / AR Films, Aldamisa Entertainment, 1821 PicturesЖанр: боевик, комедияРежиссер: Роберт РодригесАктеры: Дэнни Трехо, Мишель Родригес, София Вергара, Эмбер Хёрд, Леди Гага, Антонио Бандерас, Кьюба Гудинг мл., Джессика Альба, Демиан Бишир, Мэл ГибсонПеревод: Профессиональный (полное дублирование)Субтитры: ОсутствуютПродолжительность: 01:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E77CEC72BAE1FDFA192D05191B5399F435D5CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265189   (276273) от 26.11.2018
-
-Небоскреб / Skyscraper (2018) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый высокий и технологичный небоскрёб в мире становится центром огненной катастрофы. Только бывший агент ФБР, а теперь эксперт по безопасности Уилл Сойер может спасти вертикальный город под небесами. Когда нельзя доверять никому, а жизнь семьи в опасности, каждая секунда на счету.Производство: США / Universal Pictures, Legendary Pictures, 7 Bucks Productions, Flynn Picture Company, Third FloorЖанр: Боевик, триллерРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Нив Кэмпбелл, Чинь Хань, Роланд Мюллер, Ноа Тейлор, Байрон Манн, Пабло Шрайбер, МакКенна Робертс, Ной Коттрелл, Ханна КуинливанПеревод: Дублированный (лицензия)Субтитры: Русские, английские, польские, эстонские, латышские, литовскиеПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8ABCDDBFE71B1C1EEE9B80DDA38A12F8BF42DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 849356   (276011) от 16.12.2014
 
 Стражи Галактики / Guardians of the Galaxy (2014) DVD5
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276011.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275932.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275280.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273969.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273887.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273885.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273151.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272955.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272838.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271799.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271786.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271750.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269503.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269500.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269485.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269387.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268684.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267776.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266581.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266539.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264727.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264679.jpg" />
 </div>
 
 
@@ -658,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263788.jpg" />
 </div>
 
 
@@ -669,6 +591,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C812D9689720AC0217AFCDAC8A07FBE6F561664F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340923   (263193) от 25.11.2019
+
+Апгрейд / Upgrade (2018) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263193.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ближайшем будущем разнообразные технологии участвуют во всех аспектах человеческой жизни. Но в этом технологичном мире Грей — один из немногих людей, кто любит работать руками. Он восстанавливает и чинит старые автомобили. Однажды, возвращаясь от клиента, Грей с женой попадают в аварию, а после — в руки банды отморозков, в результате чего женщина погибает, а Грей (   Читать дальше...   )Производство: Австралия / Universal Pictures, OTL Releasing, Blumhouse ProductionsЖанр: Фантастика, боевик, триллер, детектив, криминалРежиссер: Ли УоннеллАктеры: Логан Маршалл-Грин, Мелани Валльехо, Стив Даниелсен, Эбби Краден, Харрисон Гилбертсон, Бенедикт Харди, Ричард Коуторн, Кристофер Кирби, Ричард Анастасиос, Кенни ЛоуПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649A9377D1B58F2C473FD7535B33DC0329665970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340895   (263174) от 25.11.2019
+
+Люди Икс: Тёмный Феникс / Dark Phoenix (2019) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263174.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Джин Грей, которая разворачивается в тот момент, когда героиня превращается в культового Тёмного Феникса. Во время опасной для жизни спасательной миссии в космосе девушка оказывается поражена таинственной космической силой, которая превращает её в одного из самых могущественных мутантов. В борьбе с этой всё более изменчивой мощью и со своими собственными (   Читать дальше...   )Производство: США, Канада / 20th Century Fox Film Corporation, TSG Entertainment, Marvel EntertainmentЖанр: Фантастика, боевик, приключенияРежиссер: Саймон КинбергАктеры: Джеймс МакЭвой, Майкл Фассбендер, Дженнифер Лоуренс, Николас Холт, Софи Тёрнер, Тай Шеридан, Александра Шипп, Эван Питерс, Коди Смит-Макфи, Джессика ЧестейнПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, финские, норвежские, шведские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921644A5E7C02A6D1C1C2230960E6BC99C90015F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340907   (263173) от 25.11.2019
+
+Игры разумов / The Professor and the Madman (2018) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англия середины XIX века. Оксфордский профессор Джеймс Мюррей работает над первым в истории словарем английского языка, а его главным соратником становится заключенный психиатрической клиники для особо опасных преступников — доктор Уильям Майнор.Производство: Ирландия / Voltage Pictures, Fabrica de Cine, 22h22, Caviar Antwerp NV, Definition FilmsЖанр: Триллер, драма, детектив, биографияРежиссер: Фарад СафиниаАктеры: Мэл Гибсон, Шон Пенн, Эдди Марсан, Натали Дормер, Дженнифер Эль, Стив Куган, Стивен Диллэйн, Йоан Гриффит, Джереми Ирвин, Лоуренс ФоксПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902F62E8AEF19404A3736ACC09A6A65FC247F81B
 ```
 
 https://mybot314.ru/tekegram_catalog/

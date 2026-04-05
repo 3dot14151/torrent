@@ -1,134 +1,3 @@
-###  Публикация: 1172252   (394163) от 07.10.2017
-
-Д. И. Писарев | Литературно-критические статьи (1939) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий Иванович Писарев (1840 - 1868) - русский публицист и литературный критик, революционный демократ. По праву считается «третьим», после Чернышевского и Добролюбова, великим русским критиком-шестидесятником. Плеханов называл его «одним из самых выдающихся представителей шестидесятых годов». В книгу вошли самые известные литературно-критические статьи Д. И. Писарева: (   Читать дальше...   )Жанр: История, политология, искусство, философия, эстетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C569332CDB65EFCF0015D22898089E690537C25F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 401109   (394089) от 19.10.2011
-
-Свами Сатьянанда Сарасвати | Древние тантрические техники йоги и крийи [3 тома] (2004-2007) [PDF, DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сбалансированное руководство (в трех томах) разработано Бихарской школой йоги. Оно использует разные направления йоги - хатха йогу, бхакти йогу, джняна йогу и крийя йогу, предлагая выверенную многолетней практикой последовательную систему освоения йогического мастерства, наиболее эффективную и безопасную. При этом особый акцент делается на практике и применении (   Читать дальше...   )Жанр: Йога, Нетрадиционная медицинаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF2CE38AF8D1A043E1369537A11D8E9A3E90BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172126   (393983) от 07.10.2017
-
-Александр Никишин | Тайны русской водки. Эпоха Михаила Горбачева (2014) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о шести годах из пятисотлетней истории русской водки, которые пришлись на годы правления в СССР М.С. Горбачева. Этот краткий отрезок был насыщен эпохальными событиями. Среди них введение в 1985 году «сухого закона». Считается, что именно он привел к народному бунту 1991 года, за которым последовали развал СССР, приход к власти Б.Н. Ельцина, создание мафиозной (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AE7359A1E4C2575FEB89E96F5F213607E63A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172158   (393981) от 07.10.2017
-
-Никакой пощады шпионам и изменникам родины (1937) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник материалов о методах шпионской и диверсионной деятельности троцкистско-бухаринской агентуры японо-немецкого фашизма.Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5F58221B7A6B152F0449D059EF6CC258D9F2EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172130   (393975) от 07.10.2017
-
-Б.В. Родионов | История русских крепких питей (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудно найти в русской материальной культуре тему, которая была бы настолько мифологизирована, как тема истории русских национальных напитков.
-Борис Родионов взял на себя труд разобраться в этом вопросе и представить читателям ясную картину, целиком и полностью основанную на имеющихся в научном обороте исторических документах. Было изучено порядка 200 000 первоисточников. (   Читать дальше...   )Жанр: История, Культурология, КулинарияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42475D729EACD34D37DE98BA2BA5B00CE56994E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568586   (393942) от 01.11.2012
 
 В.В. Белов, Е.М. Воробьёв | Сборник задач по дополнительным главам математической физики [1978] [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393942.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393816.jpg" />
 </div>
 
 
@@ -193,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393742.jpg" />
 </div>
 
 
@@ -219,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393588.jpg" />
 </div>
 
 
@@ -245,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_393582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393582.jpg" />
 </div>
 
 
@@ -272,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393235.jpg" />
 </div>
 
 
@@ -298,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393184.jpg" />
 </div>
 
 
@@ -324,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393167.jpg" />
 </div>
 
 
@@ -350,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393150.jpg" />
 </div>
 
 
@@ -377,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393115.jpg" />
 </div>
 
 
@@ -403,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393114.jpg" />
 </div>
 
 
@@ -429,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393109.jpg" />
 </div>
 
 
@@ -455,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393053.jpg" />
 </div>
 
 
@@ -481,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393052.jpg" />
 </div>
 
 
@@ -507,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393049.jpg" />
 </div>
 
 
@@ -533,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393042.jpg" />
 </div>
 
 
@@ -559,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393039.jpg" />
 </div>
 
 
@@ -586,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393037.jpg" />
 </div>
 
 
@@ -612,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392979.jpg" />
 </div>
 
 
@@ -639,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392901.jpg" />
 </div>
 
 
@@ -666,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392830.jpg" />
 </div>
 
 
@@ -678,6 +547,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39F23FBBA760927E019CBD419F3DBB03C5D64499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568852   (392615) от 02.11.2012
+
+О.И.Лаврушин и др. | Банковское дело [2009] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банковское дело как учебный курс имеет практическую направленность, дает профессиональные знания в области организации деятельности коммерческих банков, учит будущих банкиров и все тех, кто интересуется взаимоотношениями с банками, основным правилам банковского дела.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB3D89BB1698DBE94BF662A1A57E8F0D666179DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172731   (392061) от 09.10.2017
+
+А.Г. Дугин | Ноомахия: войны ума. Логос Европы: средиземноморская цивилизация во времени и пространстве (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392061.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются основные структурные характеристики европейской цивилизации с архаических эпох по настоящее время. Выявляется баланс трех Логосов (аполлонического, дионисийского и кибелического) на разных этапах европейской истории и в разных регионах Европы. Развивается идея о двух Европах — римской и греческой, западносредиземноморской и восточносредиземноморской, (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C954E0D13C6186A869AC1F1AF37E3979013554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172729   (392057) от 09.10.2017
+
+А.Г. Дугин | Ноомахия. Войны ума. Германский Логос. Человек апофатический (2015) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нооомахия — сражение в сфере идеального. Автор представляет человечество как ансамбль цивилизационных парадигм, ведущих между собой непрерывный диалог (борьба, понимание, солидарность, оппозиционность, война) на протяжении всей мировой истории. Панорама современного человечества предстает во всем многообразии философских Логосов, типов рациональностей и мифологических (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659A34E7D1FDED305F757EAC4971CE51A6B11730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172730   (392055) от 09.10.2017
+
+А.Г. Дугин | Ноомахия. Войны ума. Французский Логос. Орфей и Мелюзина (2015) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нооомахия — сражение в сфере идеального. Автор представляет человечество как ансамбль цивилизационных парадигм, ведущих между собой непрерывный диалог (борьба, понимание, солидарность, оппозиционность, война) на протяжении всей мировой истории. Панорама современного человечества предстает во всем многообразии философских Логосов, типов рациональностей и мифологических (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2024E76DCBB4F1D03831FC4ED7A991586C63A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172940   (391964) от 09.10.2017
+
+В.В. Волшаник, Г.В. Орехов | Низконапорные гидравлические двигатели (2009) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены современные экологические и ресурсные проблемы энергетики и электроэнергетики, оценены перспективы развития гидроэнергетики как подотрасли электроэнергетики, ориентированной на использование экологически чистой возобновляющейся энергии водных масс Земли. Предложена классификация видов энергии водных масс и кратко описаны технологии ее преобразования. (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B3D79E7C50540C6B2870970C74AB54EA16A06C
 ```
 
 https://mybot314.ru/tekegram_catalog/

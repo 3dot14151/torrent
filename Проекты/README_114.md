@@ -1,3 +1,264 @@
+###  Публикация: 1015813   (772666) от 12.05.2016
+
+Проекты - RocketStock - Chromatech [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chromatech - Чистый, стильный и яркий! Chromatech является полностью настраиваемым After Effects шаблоном с участием более 25 слайдов и 11 эффектов заголовка. Персонализируйте внешний вид с вашей собственной цветовой гаммой и вставьте любой шрифт. Этот шаблон AE идеально подходит для корпоративных или бизнес-видео, презентаций и других мероприятий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FC85D10C04F8231373CBCC99831F367F09D774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391630   (772624) от 21.06.2020
+
+Проекты - NNM-Club - Kids Slideshow - 1391630 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kids Slideshow - шаблон After Effects, разработанный по мотивам Circus Slideshow, релиз на NNM-Club: Проекты - VideoHive - Circus Slideshow - 26080451Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F75C4B18D1A03ED7F8B6A296229B209AD3A08AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391601   (772620) от 21.06.2020
+
+Проекты - VideoHive - Wedding Freeze - 27211302 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772620.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Wedding Freeze" - это элегантно анимированный шаблон After Effects с минималистичным дизайном, чистой текстовой анимацией и модными эффектами перехода. Вы можете использовать режим заморозки в ключевом кадре, что бы подчеркнуть происходящее событие.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4400BC23C6E610B88AF15563EF8A53CF223A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015812   (772482) от 12.05.2016
+
+Проекты - RocketStock - Anarchy [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anarchy - резкий, высокий октан-графический пакет, идеально подходит для музыкальных клипов, живых событий, интервью и многого другого! Этот проект включает в себя 9 профессиональных элементов анимированной графики - все, что нужно, чтобы бренд вашего следующего производства видео был на высоте.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600A92A684C1649A4E9E747A5A8300D234CA3BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015964   (772418) от 12.05.2016
+
+Проекты - VideoHive - Butterfly Wings Creator - 4489656 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой и интуитивно понятный проект позволит продемонстрировать летающих бабочек с вашими СМИ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C54E0E84F595E532766950B9482DFBDCBCF4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015910   (772415) от 12.05.2016
+
+Проекты - VideoHive - Momentum Glitch Opener V2 - 14801542 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с эффектом глюка для Вашего начального видео, или интро-ролика.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB9ACBAD99F1E8FDB890B7E60B190D83FCD8A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016063   (772406) от 12.05.2016
+
+Проекты - VideoHive - Digital Glitch Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон проекта для демонстрации логотипа, с цифровым импульсом ложного эффекта искажения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3995AF066B6775D5A45504083123211F7B0B2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015970   (772404) от 12.05.2016
+
+Проекты - VideoHive - TheWay - Portfolio & Resume [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон проекта который поможет вам создать видео портфолио или резюме (CV). Это очень гибкий шаблон, и может использоваться для любой профессии, аниматор, веб-дизайнер, программист, иллюстратор, фотограф, художник, видео оператор, SMM специалист, и многое другое. Кроме того, этот шаблон содержит маркетинговые триггеры, которые могут помочь вам произвести впечатление (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20E313BF6007532BBE9E818041B2618CEB10ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015899   (772357) от 12.05.2016
+
+Проекты - VideoHive - 3D Typography Portrait Tool - 15743540 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772357.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D Typography Portrait Tool - проект, который позволит Вам создать свой собственный стилизованный, типографический портрет в 3D.
+Все, что Вам нужно, так это ввести свой текст, и настроить карту глубины для вашего портрета.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9D7361BB6D7C6C658D19689BBE176A02D225C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016061   (772350) от 12.05.2016
+
+Проекты - VideoHive - 3D-Text Evolutions - 54692 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон проекта для демонстрации логотипа или слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2765D05F4B71050DE889766926F1E19A6007A7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016054   (772347) от 12.05.2016
 
 Проекты - VideoHive - Bittersweet Titles - 113886 [AEP]
@@ -6,7 +267,7 @@
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772347.jpg" />
 </div>
 
 
@@ -32,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772346.jpg" />
 </div>
 
 
@@ -58,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772343.jpg" />
 </div>
 
 
@@ -84,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772293.jpg" />
 </div>
 
 
@@ -110,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772290.jpg" />
 </div>
 
 
@@ -137,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771448.jpg" />
 </div>
 
 
@@ -164,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771348.jpg" />
 </div>
 
 
@@ -190,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771305.jpg" />
 </div>
 
 
@@ -216,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771266.jpg" />
 </div>
 
 
@@ -242,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_771192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_771192.jpg" />
 </div>
 
 
@@ -268,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771188.jpg" />
 </div>
 
 
@@ -294,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771124.jpg" />
 </div>
 
 
@@ -322,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771114.jpg" />
 </div>
 
 
@@ -348,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771066.jpg" />
 </div>
 
 
@@ -375,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771014.jpg" />
 </div>
 
 
@@ -401,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771012.jpg" />
 </div>
 
 
@@ -412,275 +673,6 @@ Neon Sign Logo - с помощью этого шаблона вы легко м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61764D3C6665068A185EB6F62584EAC42214F392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391991   (770456) от 23.06.2020
-
-Проекты - Motion Array - Happy Slideshow - 408975 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элегантно анимированный шаблон After Effects со стилизованным дизайном. Вы можете использовать его как краткое введение в свои презентации, рекламные акции и видео о событиях, для демонстрации вечеринок по случаю дня рождения ваших детей, друзей и семейных фотографий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F993572D5AC92BCC58A65D3EB547328AC8121BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016410   (770232) от 14.05.2016
-
-Проекты - RocketStock - System [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770232.jpg" />
-</div>
-
-
-###  Подробнее
-
-System - смелый, электрический, и быстрый темп! Добавьте смесь научной фантастики и технологий к следующему видео-проекту! Система поставляется с 11 слайдами и 14 названиями, а также с заполнителем логотипа. Настраиваются шрифты, цвета и эффекты, такие как шум и виньетки. Система доступна для немедленной загрузки и готова к действию!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D9E16372811F8758AF09C581CAFB4E473E33F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016406   (770197) от 14.05.2016
-
-Проекты - RocketStock - Waypoint [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waypoint - Принесите ваши снимки в жизнь с этой красочной и экзотической слайд-шоу анимацией с участием 22 слайдов, 22 наименований, и замыкающим раскрывающимся логотипом. Выражения  совместимы со всеми языками AE. Легко настроить все цвета в центральной панели эффектов элементов управления. 11 минутный видео учебник, шаг за шагом, также включен!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D86425BB0CDD1E7A4707FC10BF7468F79FDF85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780067   (770132) от 23.04.2014
-
-VideoHive - Valentines Flower Power - 6761876 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предназначен ко дну св. Валентина и не только.
-Возможности:
-* Этот проект включает в себя 12 фото заполнителей.
-* Инструкция в раздаче.(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C1DC5A4D5786C90788B981066C8F599D5EC816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016537   (770111) от 14.05.2016
-
-Проекты - VideoHive - Royal Hotel Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Royal Hotel Presentation - это проект для  брэндовой Королевской презентации отелей. Продвигайте свой роскошный отель, квартиры, недвижимость, аренду или сервис.
-А так же сайт недвижимости и др.
-Одно касание системы управления цветом позволяет быстро изменить все цвета проекта. Модульная структура проекта даст Вам возможность легко изменить длительность итогового (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B3549811CD1D98B1166F42E0B805F4627F2C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016473   (770061) от 14.05.2016
-
-Проекты - VideoHive - Cool Slide Show [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cool Slide Show - элегантная видео-презентация, которая подойдет для рекламы Вашего корпоративного продукта, презентации, портфолио, моды, событий, промо-ролика, концерта.
-Строгий, черный, глянцевый, идеальный вид, как нельзя кстати подойдет для всего этого.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B2E0DD1359976C2A2BD788B6BF1E853814DB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016563   (770059) от 14.05.2016
-
-Проекты - VideoHive - Multi Light Kit - Fire Light Neon Energy Composer - 15872578 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Multi Light Kit - Fire Light Neon Energy Composer - превращает ваш логотип или текст в огонь, светящийся неон, энергитические прожилки непосредственно от их последействия! Просто поместите ваш текст или прозрачный логотип и все его сделали. С помощью простых элементов управления вы можете также настроить готовые модули с помощью всего лишь нескольких щелчков мыши. (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BA074D84B7D3323FB14358DDE084F726BACAEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392252   (769647) от 24.06.2020
-
-Проекты - VideoHive - Beautiful Travel Slideshow - 27354612 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769647.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Beautiful Travel Slideshow» - это мило выглядящий и творчески анимированный шаблон After Effects, который использует снятые "живые" видеокадры.
-Используйте его, как воспоминания о вашем отпуске, поездке или приключении.
-Произведите впечатление на свою аудиторию с помощью этого профессионально разработанного и элегантно анимированного шаблона After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E907846C6DD38D2B0DF638432DC311F170680A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392009   (769613) от 24.06.2020
-
-Проекты - VideoHive - Destruction | Electricity Logo - 25459617 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осторожно - биологическая опасность! Продемонстрируйте свой логотип в высоко-технологичном стиле.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB99443EC8D682FBFB16392CAD2A9DE1D62F2F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392232   (769611) от 24.06.2020
-
-Проекты - VideoHive - City Real Estate | Constructions Logo - 14543536 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный город с небоскребами и современный городской интерьер пустого офиса выполненного в бизнес-стиле, помогут вам продвигать свою коммерческую или жилую недвижимость, услуги по строительству недвижимости, архитектурный дизайн или производство оконных рам, штор и жалюзи. Светофоры, туман и праздничные световые лучи могут быть включены / выключены.
-Фотографию (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB252AF1C9AFE38557B082902713BAD37AA1B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1628145   (238861) от 22.04.2023
-
-Оркестр Поля Мориа (Paul Mauriat) - Под музыку Вивальди (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-
-1. Под музыку Вивальди · Sur Un Air Du Vivaldi 3:02
-2. Pulstar 3:29(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636742   (238726) от 01.06.2023
 
 Royal Hunt - Studio Albums (17 releases) (1992-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Progressive Metal>
@@ -35,7 +6,7 @@ Royal Hunt - Studio Albums (17 releases) (1992-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238726.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ The Eagles - Hotel California (1976) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238688.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Duran Duran - Notorious (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238506.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Amon Amarth - Studio Albums (13 releases) (1996-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238489.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238458.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA (Юрий Антонов, Александр Серов, Александр �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238423.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238422.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - RETROспектива часть XXI. Зарубежные исполнит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238403.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Elton John - The New Collection vol. I - vol. II (1983) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238397.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238389.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238371.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Visage - The Anvil (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238357.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238355.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238348.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Jonathan Jeremiah - Horsepower For The Streets (2023) Deluxe Version [FLAC 2.0|4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238316.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238299.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238268.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238237.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ VA - В Помощь Любителям Грамзаписи. Для Прове�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238228.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ VA - Мелодии экрана, 7 серия (1961) [FLAC 1.0|96/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238151.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ Carl Perkins/Карл Перкинс - Лучшее из репертуара К
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238121.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ Amanda Lear - Sweet Revenge (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238010.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237946.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Iron Maiden - Дискография (19 albums) (1979 - 2021)  hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237909.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Bea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237874.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ A4 Run For Your Life(   Читать дальше...   )Жанр: Beat, Rock & R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60F7117FBF0628A8A67A947F0FB16B1DE452A755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629816   (237820) от 27.04.2023
+
+Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Yes Sir, I Can Boogie (Dostal - Soja) 4:37
+02 Love You Till I Die (Dostal - Soja) 4:29
+03 Granada (Lara) 4:21
+04 Gimme More (Soja - Zentner) 3:54(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCFF4D651623339252A73CA4D8A37716199A78F
 ```
 
 https://mybot314.ru/tekegram_catalog/

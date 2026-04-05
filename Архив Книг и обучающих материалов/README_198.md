@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216314.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215178.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215163.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215036.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214425.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214304.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214300.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214296.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Udemy, Константин Крючков | Разработка Telegram бо�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213844.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213157.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212716.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210970.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207540.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202991.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202934.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202347.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Udemy, Hussein Nasser | Fundamentals of Backend Engineering (2023) WEB-DL [EN / 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202326.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Udemy, Hussein Nasser | Fundamentals of Networking Engineering (2023) WEB-DL [EN
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200996.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200805.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Embacy, Артём Кузнецов | Курс верстки на Webflow (2022
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198692.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197054.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196834.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192235.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191617.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Karpov.courses | Продвинутая аналитика данных (Час�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190751.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190271.jpg" />
 </div>
 
 

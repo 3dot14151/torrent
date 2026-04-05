@@ -1,44 +1,20 @@
-###  Публикация: 1391109   (781339) от 19.06.2020
+###  Публикация: 200389   (781999) от 12.05.2010
 
-Русалка на суше / Mermaid Down (2019) WEB-DL [H.264/1080p-LQ]
+Флаббер / Flubber (1997) DVD-5
 
->>3
->>След.
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Русалок замечали в этих водах на протяжении многих сотен лет. Они выглядывают посмотреть: любопытство побеждает разум. Может, они и правда существуют?» — такие разговоры ведут рыбаки на шхуне в Тихом океане и отправляются на охоту. И охота оказывается удачной… В их сети попадает русалка, и они решают отрубить ей хвост, перевезти и запереть в психушке. Хорошее место (   Читать дальше...   )Производство: США / Grellman Film, Heartpine Pictures, Mermaid DownЖанр: Ужасы, фэнтези, триллер, детективРежиссер: Джеффри ГреллманАктеры: Александра Бокова, Меган Тереза Риппи, Филлип Андре Ботельо, Эрин Ри, Берт Калвер, Кэролайн Бэмфорд, Джессика Хонор Карлтон, Эшли Корделия, Мишель Галлахер, Мелисса ЛугоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (на надписи), английские (Full, SDH)Продолжительность: 01:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7425945B2E6A377BE7E2EEB4D81EF82F7BB33805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214487   (781338) от 19.06.2020
-
-Tom Clancy's Rainbow Six: Siege (2015) [Ru/Multi] (14457777/dlc) UplayRip =nemos= [Ultimate Edition + HD Texture Pack]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tom Clancy's Rainbow Six: Siege - разрабатываемый шутер от первого лица. Игра фокусируется на командную игру и реализм. Тем не менее, существуют значительные различия со старыми версиями игры. Шутер фокусируется на многопользовательской игре и отличается разрушаемым окружением. Tom Clancy’s Rainbow Six® Осада – новая часть всемирно известной серии шутеров от первого (   Читать дальше...   )Тип издания: UplayRipРазработчик: Ubisoft MontralЖанр: Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+Жанр: фэнтези, комедия, семейный Флаббер. Последнее изобретение профессора химии, над которым он трудился всю жизнь. Рассеянный ученый даже не подозревает, какое важное открытие подарил миру. Ведь на самом деле этот непримечательный кусок резины — концентрированный сгусток энергии невероятной мощности.
+Наденьте тапочки из волшебного материала, и можете смело отправляться на соревнования по прыжкам в высоту. Если вам этого мало — заправьте им свой автомобиль, но лучше не нажимать на газ, иначе вскоре радары обнаружат в воздухе неопознанный летающий объект.
+А теперь представьте, что может произойти, если неуправляемая материя исчезает прямо из — под носа счастливого профессора и попадает в руки злодеев…Режиссер: Лес МэйфилдАктеры: Робин Уильямс, Марша Гэй Харден, Кристофер МакДональд, Рэймонд Дж. Бэрри, Клэнси Браун, Тед Левайн, Уил Уитон, Эди МакКлёрг, Джоди Бенсон, Лесли Стефансон ...Перевод: дублированный
 
 ## Скачать торент
 ```bash
@@ -50,28 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206892   (781337) от 16.02.2018
+###  Публикация: 1206606   (781983) от 14.02.2018
 
-VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
+3D модели - Daz 3D - UltraHD IRAY HDRI With DOF - Outdoor Pack 2 - 50323 [DUF]
 
->>Electronic
->>House
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sugarboys - Nah Nah Nah (Original Mix)
-02. Adam Walker - Pump It (Original Mix)
-03. Nicole Palmer - Little Divine (Original Mix)
-04. Recovery Mafia - Make Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:05
+Iray HDRI для DAZ 3D из категории Resources.Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
+magnet:?xt=urn:btih:D3C3FEAD404AEC15032F23B2846FE3E6B27ECBF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,143 +52,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206956   (781336) от 16.02.2018
+###  Публикация: 1206569   (781982) от 14.02.2018
 
-Abney Park (Эбни Парк) - Taxidermy (2005) Not On Label [MP3|320 Kbps] <Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Wake (2005 Mix) 5:33
-02. New Black Day 4:50
-03. The Change Cage (2005 Mix) 4:00
-04. White Wedding 3:48(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEE1CEC50A241061B1054BA81871971E78A0D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206915   (781335) от 16.02.2018
-
-Jakob Lindhagen - Paces (2017) Feeder [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenopsia (04:20)
-02. Shelter (05:09)
-03. The Tipping Point (04:41)
-04. Forgotten (02:51)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D410D764C9CD43A2C9F27A52571C91229B183B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206562   (781334) от 16.02.2018
-
-VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
-02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
-03.Adeva - Respect (Extended Mix) (7:32)
-04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206920   (781333) от 16.02.2018
-
-LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change (05:57)
-02. Tape Loops (05:28)
-03. Enchantment (03:25)
-04. Rise (06:31)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206955   (781332) от 16.02.2018
-
-KCNcrew Pack 15.02.2018 [En]
+Smart Zipper - RAR&7Zip Tool 1.71 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и регулярно обновляется!
-
-База серийных номеров проекта KCNcrew по состоянию на середину февраля 2018 года.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
+Smart Zipper представляет собой простую в использовании и эффективную утилиту сжатия и распаковки файлов. Поддерживаются более 20 форматов файлов для распаковки, включая RAR, 7z , ISO, CAB, Zip, StuffIt, Lzma, Tar, Gzip, Bzip2, EXE, PAX и многие другие. Поддерживаемые форматы файлов для сжатия: 7z, ZIP, GZIP, Tar, Bzip2 с 5 различными уровнями сжатия.
+Smart Zipper (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2018Разработчик: Yu qipengПоддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5CAA4AA02417419869A077072D6DA810F4B94C0
+magnet:?xt=urn:btih:5850B34C3C261A4541F96653517402A7EED83F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,318 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206972   (781331) от 16.02.2018
+###  Публикация: 1206616   (781981) от 14.02.2018
 
-Abney Park (Эбни Парк) - Ancient World (2012) Not On Label [MP3|320 Kbps] <Rock, Folk, World&Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Steampunk Revolution 3:17
-02. Scupper Shanty 2:56
-03. The Story That Never Starts 4:08
-04. Ancient World 4:30(   Читать дальше...   )Жанр: Rock, Folk, World&CountryПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74835CCF40CD43160FC2E80918F448E2F954BA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206889   (781330) от 16.02.2018
-
-VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cyre & DJ T.H. - Salida Del Sol (Original Mix)
-2. Kajis feat. Ylona - Way Back Home (Taival Remix)
-3. RAMiNiO - Confession (Extended Mix)
-4. Sunlight Project - Desert Flower (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206964   (781329) от 16.02.2018
-
-Abney Park (Эбни Парк) - The End Of Days (2010) Not On Label [MP3|320 Kbps] <Industrial, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The End Of Days 3:25
-02. Neobedouin 3:41
-03. The Wrath Of Fate 3:05
-04. I've Been Wrong Before 2:55(   Читать дальше...   )Жанр: Industrial, FolkПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA4A30173E46C8E780A7C340E64D1C290F8350F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206910   (781328) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. 2-я Квалификация (12.02.2018) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781328.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 13:30 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Фристайл. Мужчины.
-Могул. 2-я Квалификация(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FA7C4B18679E631466DE6C11779291EEECBBD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207062   (781327) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Женщины. Трамплин HS-109. Финал (12.02.2018) IPTV [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781327.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 15:50 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Прыжки с трамплина. Женщины.
-Трамплин HS-109. Финал(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7623F68B95A20F9D476C01502ECC056914065F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206936   (781326) от 16.02.2018
-
-VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781326.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estiva & Justin Oh - Reach For The Sky
-002. Marc Van Gale - Mumbai Taxi (Original Mix)
-003. Emanuele Braveri - Destination Summer (Original Mix)
-004. Activeblaze - Last Day(   Читать дальше...   )Жанр: Progressive, Vocal, Uplifting TranceПродолжительность: 13:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207028   (781325) от 16.02.2018
-
-White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hansa (Cygnus)
-2. Patent Leather
-3. Slave
-4. Wait Till Tomorrow(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206766   (781324) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Женщины. Гонка преследования (12.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781324.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 13:10 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Биатлон.
-Женщины. Гонка преследования 10 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CC357A906516F356CA759294364CEFBCC4A1D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206961   (781323) от 16.02.2018
-
-VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Metamorph  -  Wash Your Pain Away (feat. Shelley Sheree) (Original Mix)  7:05
-02.  Leonety  -  Le Lis Blanc (Original Mix)  7:06
-03.  Luvmac  -  Daybreak (Original Mix)  6:26
-04.  Niklas Grosswald  -  Daybreak (Nuestro Remix)  6:21(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 02:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49F6B1B3D0DA41A444FAB5802F7E3FABA714575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207047   (781322) от 16.02.2018
-
-Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781322.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 L'amas d'chair
-2 Aie
-3 Soirees parisiennes
-4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206921   (781321) от 16.02.2018
-
-VA - Erased Tapes Collection VIII (2017) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Avantgarde, IDM, Modern Classical, Ambient>
+Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7194.5000 VL (x86) RePack by SPecialiST v18.2 [Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_781981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Allred & Broderick - The Ways (03:08)
-02. Penguin Cafe - Cantorum (07:22)
-03. Daniel Brandt - Kale Me (06:30)
-04. Rival Consoles - Slow Song (03:52)(   Читать дальше...   )Жанр: Contemporary, Avantgarde, IDM, Modern Classical, AmbientПродолжительность: 00:59:06
+Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4139825AD30EBE02B9D443C3838DE8DA3D180178
+magnet:?xt=urn:btih:DED5646EC55B1E18FA83A60C9C72DB55E5A85457
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206893   (781320) от 16.02.2018
+###  Публикация: 1206521   (781980) от 14.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. 1/2 финала. Россия (ОАР) — Швейцария (12.02.2018) IPTV [H.264/720p-LQ]
+Carrier Command: Gaea Mission (2012) [Ru/Multi] (1.6.0011) Repack R.G. Catalyst
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 февраля 2018 года, понедельник. 14:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. 1/2 финала.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:52
+Carrier Command: Gaea Mission - это футуристический экшн с элементами стратегии от создателей Operation Flashpoint и Arma. Gaea Mission - сиквел легендарного Carrier Command образца 1988 года. После разрушительной войны контроль над планетой Земля перешёл в руки Азиатско-Тихоокеанского Союза, но Объединённые Силы Земли не сдаются и продолжают вести ожесточённые бои (   Читать дальше...   )Тип издания: RepackРазработчик: Bohemia Interactive, Black Element SoftwareЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64B9A1DE3E603C067247F322714FE4A07003F51B
+magnet:?xt=urn:btih:3C7C99490CCA2178DE2EF3513286417A013C88F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,28 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206944   (781319) от 16.02.2018
+###  Публикация: 1206375   (781979) от 14.02.2018
 
-VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Room>
+Парадокс Кловерфилда / The Cloverfield Paradox (2018) WEBRip [H.264] [MVO]
 
->>Electronic
->>House
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Dave202  -  Open Up Your Heart (Original Club Mix)  4:26
-02.  Dave202 & Gino G  -  Along With You (Extended Mix)  4:33
-03.  Dave202 & Gino G  -  Like An Animal (Club Mix)  4:15
-04.  Dave202  -  Kimura (Original Club Mix)  4:44(   Читать дальше...   )Жанр: House, Future House, Big Room, Electro HouseПродолжительность: 02:54:16
+В то время как земной мир пребывает на грани войны за ресурсы, в космосе группа учёных проводит испытания устройства, которое способно решить проблему энергетического кризиса. Несколько неудачных попыток вводят учёных в отчаяние. Топлива осталось на три запуска, и когда вдруг происходит удачный запуск устройства, радость длится недолго - команде предстоит иметь дело (   Читать дальше...   )Производство: США, Bad Robot, Paramount PicturesЖанр: Ужасы, Детектив, Фантастика, ТриллерРежиссер: Джулиус ОнаАктеры: Гугу Эмбата-Ро, Дэвид Ойелоуо, Даниэль Брюль, Крис О’Дауд, Аксель Хенни, Чжан Цзыи, Элизабет Дебики, Роджер Дейвис, Джон Ортис, Jordan RiveraПеревод: Многоголосый закадровый (NewStudio)Субтитры: русские (полные)Продолжительность: 01:42:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
+magnet:?xt=urn:btih:D75D7094B81FA41BA8C73CAC7B975B3D4D50C344
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,28 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206959   (781318) от 16.02.2018
+###  Публикация: 1205602   (781978) от 14.02.2018
 
-Abney Park (Эбни Парк) - The Death Of Tragedy (2005) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
+София (2016) BDRemux [H.264/1080p] (серии 1-8 из 8)
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Stigmata Martyr 5:05
-02. The Wrong Side 3:31
-03. Dear Ophelia 4:51
-04. Witch Cult 0:25(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:38:01
+История средневековой Руси глазами Софии Палеолог, последней наследницы византийского престола, жены московского князя Ивана III и бабушки Ивана Грозного.Производство: РоссияЖанр: историяРежиссер: Алексей АндриановАктеры: Мария Андреева, Евгений Цыганов, Александр Балуев, Надежда Маркина, Пётр Зайченко, Борис Невзоров, София Никитчук, Сергей Пускепалис, Илья Ильиных, Николай Козак, Борис Токарев и др.Продолжительность: ~00:50:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CA49C1DD22F6AFC12A5F72E77C50306F05E9550
+magnet:?xt=urn:btih:1EEBC7CCD35207209B66D7E97017BE19C0DDEEC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,57 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206914   (781317) от 16.02.2018
+###  Публикация: 1206597   (781977) от 14.02.2018
 
-VA - Deep Progressive House Set | Mixed by Johnny M (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny M - Deep Progressive House Set (Dj Continuous Mix) (2:01:36)
-02. Nahuel Carrizo - Blind in the Mist (Original Mix) (8:44)
-03. Robert R. Hardy - Sensus (GMJ Rmx) (9:14)
-04. Robert R. Hardy - Chasing Pleasure (Silinder Rmx) (9:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98CA3BA4109400723AEED5866D75D37527ECCA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206663   (781316) от 16.02.2018
-
-Anderva - Boarding Pass Festival DJ Contest (2018) [MP3|320 Kbps] <Electro House, Progressive House>
+Adobe Bridge CC 2018 8.0.1.282 RePack by KpoJIuK  [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anderva Intro Edit w/ Galantis - Runaway (Acapella)
-02. Nicky Romero & Teamworx vs. Linkin Park - Champion Sound vs. In the End (Steady Mashup)
-03. Jose De Mara & Crusy Ft. Chipper - Believe (Original Mix)
-04. Florian Picasso & Tom Tyger - Mamo (Original Mix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:31:47
+Adobe Bridge CC предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F088DC9889877D3EA2FCF312C63AD840CFB42EE
+magnet:?xt=urn:btih:D1AC810E08CFB551B4EFD0C595B0019E151D39B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,25 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206902   (781315) от 16.02.2018
+###  Публикация: 1185523   (781976) от 14.02.2018
 
-Виктор Лихачев | Единственный крест (2018) [MP3]
+Валерий Цуркан | Звёзды в прицеле (2015) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что чувствует человек, потерявший память? Герой новой книги Виктора Лихачева попадает в автокатастрофу. В попытках вспомнить себя и свою прошлую жизнь, он побывает во многих уголках России, встретит свою любовь, станет участником удивительной и даже опасной истории. Но самое главное - он поймет, что каждый человек несет свой крест, без которого невозможна дорога (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:28:22
+Рейс не сложился с самого начала - неприятности шли одна за одной: сначала корсары, ограбив караван, набили трюмы совершенно бесполезным грузом, потом их настиг республиканский крейсер. Пути к отступлению не было, осталось только принять неравный бой, однако капитан Гор смог разыграть эту партию вничью. Но республиканцы, как оказалось, не самые страшные враги, с (   Читать дальше...   )Жанр: Фантастика, боевикПродолжительность: 06:41:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAF3EFE695193A7C8FB6AFC8D1E2B944C7F5D133
+magnet:?xt=urn:btih:2C8ADDF4C22E1D67C7B790A8EE33362C7D9FC38A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,28 +235,445 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207034   (781314) от 16.02.2018
+###  Публикация: 1206196   (781975) от 14.02.2018
 
-Abney Park (Эбни Парк) - The Circus At The End Of The World (2013) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
+Очередное достижение: 8000 релизов от ra3wa
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Circus At The End Of The World 3:44
-02. Blowing Off Steam 3:53
-03. The Anthropophagists' Club 3:38
-04. Follow Me If You Want To Live 3:23(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:47:05
+Очередное достижение: 8000 релизов от ra3wa!Друзья!
+Рад сообщить, что наш одноклубник ra3wa преодолел значимый рубеж в 8000 релизов.
+От души поздравляю! Цифра совсем не малая! Спасибо за увлеченность и альтруизм. За потраченные время и энергию. Надеюсь, да чего там, не сомневаюсь, что ты и дальше продолжишь нас радовать своими успехами на этом поприще. Удачи! :respekt:(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A723EB1EC417FF7705462E629AE7ADEB0FE54454
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206642   (781974) от 14.02.2018
+
+Algo Bot (2018) [Ru/Multi] (1.0.0) License RELOADED
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то в глубине "Европы" – пангалактического корабля колонизаторов – экипаж спит и видит сны о новой жизни в далекой галактике. Но Алго-боту отдыхать некогда – служебный дроид трудится в мусорном отсеке. В результате серьезного сбоя в рутинном процессе утилизации под руководством зловредного линейного менеджера ПАЛа вся "Европа" оказывается на (   Читать дальше...   )Тип издания: LicenseРазработчик: Fishing CactusЖанр: Adventure, Logic, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390E8223E48DA6DD00C83A029B247F6D4ED99C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206495   (781973) от 14.02.2018
+
+Kingdom Come: Deliverance (2018) [Ru/Multi] (1.2) License CODEX [patch]
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingdom Come: Deliverance – это захватывающая РПГ с открытым миром, которая перенесёт вас в эпическое приключение в Священную Римскую империю. Отомстите за смерть ваших родителей, сражаясь с силами вторжения, выполняйте квесты, изменяйте мир своими решениями.Тип издания: LicenseРазработчик: Warhorse StudiosЖанр: RPG (Open World), Action, Adventure, 3DЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE3B7CC2BE454B527B2D7CA9A128C3ABB2FBA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206517   (781972) от 14.02.2018
+
+Счастливчик / Lucky (2017) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокий девяностолетний старик по прозвищу Счастливчик тихо доживает свой век в маленьком, богом забытом городишке. Изо дня в день он делает одни и те же вещи: завтракает в кафе, смотрит дома викторины на ТВ и сидит вечером в баре. В какой-то момент герой понимает, что отведённое ему время в этом мире скоро закончится. Осознание неизбежности смерти заставляет его (   Читать дальше...   )Производство: США / Divide / Conquer, Lagralane Group, The, Superlative FilmsЖанр: Драма, КомедияРежиссер: Джон Кэрролл ЛинчАктеры: Гарри Дин Стэнтон, Дэвид Линч, Рон Ливингстон, Эд Бегли мл., Том Скерритт, Бет Грант, Джеймс Даррен, Бэрри Шебака Хенли, Ивонн ХаффПеревод: Многоголосый закадровый, любительский (HDrezka Studio)Субтитры: отсутствуютПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD1626F0A5BF81000846EE70E4D95026AC37D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206603   (781971) от 14.02.2018
+
+Последний богатырь (2017) Blu-ray [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван, обычный парень, по воле случая переносится из современной Москвы в фантастическую страну Белогорье. В этом параллельном мире живут герои русских сказок, волшебство — неотъемлемая часть быта, а спорные вопросы решаются битвой на богатырских мечах. Неожиданно Иван оказывается в самом центре борьбы светлых и темных сил, вот только непонятно, почему главная роль (   Читать дальше...   )Производство: Россия, Кинослово, Walt Disney Pictures, Yellow, Black & WhiteЖанр: Комедия, СемейныйРежиссер: Дмитрий ДьяченкоАктеры: Виктор Хориняк, Мила Сивацкая, Екатерина Вилкова, Елена Яковлева, Константин Лавроненко, Евгений Дятлов, Александр Семчев, Сергей Бурунов, Александр Кухаренко, Марина КалецкаяПеревод: Не требуется (Русский) (Лицензия Blu-Ray RUS)Субтитры: Русские, английскиеПродолжительность: 01:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82384381A0D4F6977FF96C778E99C217CDA12032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206181   (781970) от 14.02.2018
+
+Поезда под пристальным наблюдением / Ostre sledovane vlaky (1966) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781970.jpg" />
+</div>
+
+
+###  Подробнее
+
+1944 год. Оккупированная фашистами Богемия. На маленькой железнодорожной станции начинает работать молодой паренек Милош Хрма. Новичок пытается во всем равняться на диспетчера Губичку, у которого и на работе все в порядке и на сердечном фронте: редкая дама не попадает в объятия Губички. Милош же влюблен в кондуктора Машу. Но пока разгораются любовные страсти, Восточный (   Читать дальше...   )Производство: Чехословакия, Filmové Studio BarrandovЖанр: Драма, Комедия, ВоенныйРежиссер: Иржи МензельАктеры: Вацлав Некар, Йозеф Шомр, Властимил Бродский, Владимир Валента, Алоис Вачек Фердинанд Крута, Йитка Скоффин, Итка Зеленогорска, Надя Урбанкова, Либуше ГавелковаПеревод: Многоголосый закадровый, одноголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DD405703F28DB736E497A7ADCFFDFB7688BD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206632   (781969) от 14.02.2018
+
+Последний портрет / Final Portrait (2017) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альберто Джакометти окружен признанием коллег, интересом любовницы и ревностью жены. Чахнущий над своими доходами и уставший от предсказуемой жизни, художник находит покой в компании Джеймса Лорда — позирующего ему критика. Запланированный портрет не готов и через две недели: двое проводят много времени вместе, обсуждают искусство и работу, дышат свежим воздухом (   Читать дальше...   )Производство: Великобритания / Olive ProductionsЖанр: Драма, КомедияРежиссер: Стэнли ТуччиАктеры: Арми Хаммер, Джеффри Раш, Клеманс Поэзи, Тони Шэлоуб, Джеймс Фолкнер, Сильви Тестю, Керри Шейл, Филипп Сполл, Мартин Мейджер, Аттила Дж. КерекешПеревод: Многоголосый закадровый, профессиональный iTunesСубтитры: нетПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADFFB31684E4986756DF45FFAEFFA8ACF532867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206618   (781968) от 14.02.2018
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86) RePack by SPecialiST v18.2 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3F4583E43FC871F1589D6A71444543AE8AC06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206551   (781967) от 14.02.2018
+
+State of Decay: Year-One (2015) [Ru/Multi] (1.0 от 12.02.2018/dlc) Repack R.G. Catalyst [Survival Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики тщательно поработали над тем, чтобы сделать State of Decay и дополнения Breakdown и Lifeline еще лучше: теперь игроки смогут насладиться всеми прелестями формата полной высокой четкости (1080p). Новые задания и оружие, бонусный контент, а также целый ряд доработок, в том числе улучшенные световые и анимационные эффекты, новые текстуры и переработанная (   Читать дальше...   )Тип издания: RepackРазработчик: Undead LabsЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E00EA6425F6A19471EA7039A54382138878A1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206341   (781966) от 14.02.2018
+
+Cheb Khaled - Aicha (2017) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aicha
+2. Brooklyn Edit
+3. Up MusicЖанр: Club, DanceПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5E720F1520995FE13B908BCE93C4066A7044D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206565   (781965) от 14.02.2018
+
+Лига справедливости / Justice League (2017) WEB-DL [H.264/720p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брюс Уэйн, вдохновленный самопожертвованием Супермена, вновь обретает веру в человечество. Он заручается поддержкой новой союзницы, Дианы Принс, чтобы сразиться с еще более могущественным противником. Бэтмен и Чудо-Женщина быстро набирают команду сверхлюдей для борьбы с пробудившейся угрозой. Но несмотря на уникальный состав отряда супергероев - Бэтмен, Чудо-Женщина, (   Читать дальше...   )Производство: США, Atlas Entertainment, Cruel & Unusual Films, DC Comics, DC Entertainment, Dune Entertainment, Lensbern Productions, Warner Bros.Жанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Зак СнайдерАктеры: Галь Гадот, Робин Райт, Джейсон Момоа, Конни Нильсен, Эми Адамс, Бен Аффлек, Эзра Миллер, Эмбер Хёрд, Генри Кавилл, Дайан ЛэйнПеревод: Дублированный iTunesСубтитры: Русские (forced, full), украинские (forced), английские (full)Продолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B07F2921A14411F1CD482DDB5FBB6834ADAE179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206511   (781964) от 14.02.2018
+
+Мифы (2017) WEB-DLRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя надежда русского кино, продюсер и режиссер Федор, торчит денег за музыкальный клип браткам из 90-х. Артист Сергей сыграл всех от Иисуса Христа до белочки. У Сергея кончились роли, он в депрессии, и не знает, как жить дальше. Телеведущий страны номер один, Иван, не может перестать шутить в обычной жизни. Девушка Ивана не понимает, почему он смешит ее за (   Читать дальше...   )Производство: Россия / Art Pictures Studio, Hype FilmЖанр: КомедияРежиссер: Александр МолочниковАктеры: Яннис Пападопулос, Фёдор Бондарчук, Сергей Безруков, Иван Ургант, Милош Бикович, Паулина Андреева, Ксения Раппопорт, Виктория ИсаковаСубтитры: отсутствуютПродолжительность: 01:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B97CE782672D8AE4BB5747200D965189E619506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206621   (781963) от 14.02.2018
+
+Adobe Photoshop Lightroom Classic CC 2018 (7.2.0.10) Portable by XpucT [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский и английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC89E84155833BBD9EB6B06656A515904B91D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206487   (781962) от 14.02.2018
+
+Лига справедливости / Justice League (2017) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брюс Уэйн, вдохновленный самопожертвованием Супермена, вновь обретает веру в человечество. Он заручается поддержкой новой союзницы, Дианы Принс, чтобы сразиться с еще более могущественным противником. Бэтмен и Чудо-Женщина быстро набирают команду сверхлюдей для борьбы с пробудившейся угрозой. Но несмотря на уникальный состав отряда супергероев - Бэтмен, Чудо-Женщина, (   Читать дальше...   )Производство: США, Atlas Entertainment, Cruel & Unusual Films, DC Comics, DC Entertainment, Dune Entertainment, Lensbern Productions, Warner Bros.Жанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Зак СнайдерАктеры: Галь Гадот, Робин Райт, Джейсон Момоа, Конни Нильсен, Эми Адамс, Бен Аффлек, Эзра Миллер, Эмбер Хёрд, Генри Кавилл, Дайан ЛэйнПеревод: Дублированный (iTunes)Субтитры: Русские форсированные (отдельно)Продолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCF79CCEF7300C8231B1941482559EAB38566F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206605   (781961) от 14.02.2018
+
+Мифы (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя надежда русского кино, продюсер и режиссер Федор, торчит денег за музыкальный клип браткам из 90-х. Артист Сергей сыграл всех от Иисуса Христа до белочки. У Сергея кончились роли, он в депрессии, и не знает, как жить дальше. Телеведущий страны номер один, Иван, не может перестать шутить в обычной жизни. Девушка Ивана не понимает, почему он смешит ее за (   Читать дальше...   )Производство: Россия / Hype Film, Art Pictures StudioЖанр: КомедияРежиссер: Александр МолочниковАктеры: Яннис Пападопулос, Паулина Андреева, Фёдор Бондарчук, Сергей Безруков, Иван Ургант, Милош Бикович, Ксения Раппопорт, Виктория Исакова, Максим Суханов, Андрей Смоляков ...Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C24512E7A881476E78C059F8E35B74900FB4DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206494   (781960) от 14.02.2018
+
+Три билборда на границе Эббинга, Миссури / Three Billboards Outside Ebbing, Missouri (2017) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя несколько месяцев после убийства дочери Милдред Хейс преступники так и не найдены. Отчаявшаяся женщина решается на смелый шаг, арендуя на въезде в город три биллборда с посланием к авторитетному главе полиции Уильяму Уиллоуби. Когда в ситуацию оказывается втянут еще и заместитель шерифа, инфантильный маменькин сынок со склонностью к насилию, офицер Диксон, (   Читать дальше...   )Производство: Великобритания, США / Blueprint Pictures, Film 4, Fox Searchlight PicturesЖанр: Криминал, ДрамаРежиссер: Мартин МакДонаАктеры: Фрэнсис МакДорманд, Вуди Харрельсон, Сэм Рокуэлл, Джон Хоукс, Питер Динклэйдж Калеб, Лэндри Джонс, Лукас Хеджес, Эбби Корниш, Керри Кондон, Даррел Бритт-Гибсон ...Перевод: Одноголосый закадровый, авторский (Михаил Яроцкий) (Субтитры: Русские, АнглийскиеПродолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74661A72031F6CFE7AF6831AAB624878C620B687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157900   (781959) от 14.02.2018
+
+Утиные истории / DuckTales (2017) WEB-DLRip (сезон 1, серии 1-9 из 9)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781959.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Утиные истории» перезапуск известного одноимённого мультсериала 1987 года.Производство: США / Walt Disney Television AnimationЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Дана ТеррасПерсонажи: Тони Ансельмо, Эрик Бауза, Бек Беннетт, Джош Бренер, Кори Бёртон, Кит Фергюсон, Кимико Гленн, Эллисон Джэнни, Марго Мартиндейл, Кейт МикуччиПеревод: Многоголосый закадровый, профессиональный - IdeaFilmСубтитры: ОтсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D97FDEBC19D68C9B924735341ABD3B79E0D8EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,161 +1,3 @@
-###  Публикация: 1110872   (849680) от 04.03.2017
-
-Катрин Пассиг, Йоханнес Яндер | Программирование без дураков (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849680.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Хотите научиться программировать "less wrong"? Тогда эта книга - для вас. Ведь программирование - это во многом коммуникация. Стиль программирования, именование, комментирование, работа с чужим кодом - зачастую соглашения складываются именно там, где строгая регламентация на уровне языка программирования отсутствует. Познакомьтесь с разнообразными (   Читать дальше...   )Жанр: Разработка программного обеспеченияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AEDB9833FA4861A1A050C4B30F8A75922B0B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876996   (848716) от 11.03.2015
-
-Джон Уокенбах | Microsoft Excel 2010. Библия пользователя + CD (2013) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами по-прежнему одна из лучших книг для обучения MS Excel для пользователей с любым уровнем подготовки. Эта книга предназначена для разработчиков и пользователей электронных таблиц как начального и среднего уровня, так и опытных пользователей, которые стремятся узнать больше о возможностях Excel вообще и о нюансах работы с новой версией Excel — Excel 2010 (   Читать дальше...   )Жанр: MS Excel. Электронные таблицыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50B4B26F41B64F6DE5F7FD0D18B0E9C32FF8D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001874   (848217) от 31.03.2016
-
-Джеймс Куроуз, Кит Росс | Компьютерные сети. Нисходящий подход (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга знакомит читателя с фундаментальными основами построения и функционирования компьютерных сетей на примере пятиуровневой архитектуры сети Интернет. Описаны базовые компоненты компьютерной сети, ключевые подходы к передаче данных в телекоммуникационных сетях, принципы взаимодействия сетей друг с другом, подробно рассмотрены важнейшие службы и протоколы всех уровней (   Читать дальше...   )Жанр: ОС и СетиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C27D08EE59DCA2E1F16A5547DF51156D03953D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110860   (848150) от 05.03.2017
-
-Дэвид Минделл | Восстание машин отменяется! Мифы о роботизации (2017) [EPUB, FB2, MOBI]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее уже наступило: роботов и новые технологии человек использует в воздухе, под водой и на земле. Люди изучают океанские впадины с помощью батискафов, переводят самолет в режим автопилота, используют дроны не только в обороне, но и обычной жизни. Мы уже не представляем мир без роботов.
-
-Но что останется от наших профессий – ученый, юрист, врач, солдат, водитель (   Читать дальше...   )Жанр: Искусственный интелект, экспертные системыФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AA5E97DEB8848E2F3E50B6966810A7C29B3BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002603   (846434) от 01.04.2016
-
-А.В. Поляк-Брагинский | Локальная сеть под Linux (2010) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В практическом руководстве по созданию локальной вычислительной сети под управлением Linux для дома или небольшого офиса рассмотрены вопросы маршрутизации, удаленного администрирования и управления, настройки почтового сервера, совместного использования ресурсов. Описаны программы для удаленного управления и администрирования, веб-интерфейсов для локальной и удаленной (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52661C164F1B1141E0416607DDF397375A23761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002904   (846423) от 01.04.2016
-
-Энди Ратбон | Windows 10 для чайников (2016) [DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 сочетает в себе все лучшее, что было в предыдущих версиях системы, и может выполняться на любых современных устройствах. Независимо от того, получили вы Windows 10 в свое распоряжение вместе с новым устройством или обновили до нее прежнюю операционную систему, в этой книге вы найдете ответы на ключевые вопросы, которые неизбежно возникнут у вас при работе (   Читать дальше...   )Жанр: Компьютерная литература,  Операционные системы,  MS Windows 10Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FDA7E5ACB719B0B13B2B183BDFDE8F43B48E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378531   (846392) от 25.04.2020
 
 Black Dog Media Ltd. | The Complete Photoshop Elements Manual / Полное руководство по Photoshop Elements (2020, 2nd Edition) [PDF] [EN]
@@ -164,7 +6,7 @@ Black Dog Media Ltd. | The Complete Photoshop Elements Manual / Полное р�
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846392.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ Black Dog Media Ltd. | The Complete Photoshop Manual / Полное руково
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846144.jpg" />
 </div>
 
 
@@ -216,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846006.jpg" />
 </div>
 
 
@@ -242,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845698.jpg" />
 </div>
 
 
@@ -268,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844043.jpg" />
 </div>
 
 
@@ -294,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843914.jpg" />
 </div>
 
 
@@ -320,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842457.jpg" />
 </div>
 
 
@@ -346,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842456.jpg" />
 </div>
 
 
@@ -373,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842206.jpg" />
 </div>
 
 
@@ -399,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840942.jpg" />
 </div>
 
 
@@ -425,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840940.jpg" />
 </div>
 
 
@@ -451,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840930.jpg" />
 </div>
 
 
@@ -477,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838958.jpg" />
 </div>
 
 
@@ -503,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838838.jpg" />
 </div>
 
 
@@ -530,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837640.jpg" />
 </div>
 
 
@@ -556,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837602.jpg" />
 </div>
 
 
@@ -582,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837589.jpg" />
 </div>
 
 
@@ -608,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837499.jpg" />
 </div>
 
 
@@ -634,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837485.jpg" />
 </div>
 
 
@@ -662,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837243.jpg" />
 </div>
 
 
@@ -673,6 +515,166 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13F4B005A8BD64EBAF126A9E238608E8177BE756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380033   (835886) от 01.05.2020
+
+Gus Cicala | The Project Managers Guide to Microsoft Project 2019 / Руководство для руководителей проектов по Microsoft Project 2019 (2020) [EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите Microsoft Project 2019 с точки зрения менеджера проекта.
+Это руководство является универсальным учебным ресурсом, который охватывает все версии в наборе Microsoft Project 2019, предназначенное для объяснения и демонстрации того, почему эти функции важны для вас как руководителя проекта, что позволяет максимально повысить ценность Microsoft Project 2019.
+Каждый (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41367A4468709340DE9E65A3E51BF98637E36094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379892   (835705) от 01.05.2020
+
+Курт Гантерот | Оптимизация программ на С++. Проверенные методы для повышения производительности (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835705.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современном быстром мире производительность программы является для клиентов таким же важным свойством, как и ее функциональные возможности. В данном практическом руководстве изложены основные принципы производительности, которые позволяют разработчикам оптимизировать программы на языке C++. Вы узнаете, как писать код, который воплощает наилучшие практики проектирования (   Читать дальше...   )Жанр: ПрограммированиеПеревод: И.В. КрасиковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D319A38195B3AA34C5B1624559A1ED8318F41C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379885   (835624) от 01.05.2020
+
+Питер Готтшлинг | C++ для инженерных и научных расчетов (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835624.jpg" />
+</div>
+
+
+###  Подробнее
+
+С развитием вычислительной техники научные и инженерные проекты становятся все более крупными и сложными, и все более вероятно, что все новые проекты будут разрабатываться на C++. По мере того, как встраиваемое аппаратное обеспечение становится все более мощным, его программное обеспечение также все чаще разрабатывается на C++. Овладение языком программирования C++ (   Читать дальше...   )Жанр: ПрограммированиеПеревод: И.В. КрасиковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8953DE63B9AAC6466F4B0524EFE5BD21D99FB280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501534   (834868) от 10.10.2021
+
+А.В. Белов | Управление модулем Arduino по Wi-Fi с мобильных устройств (2020) [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, в которой рассказывается, как самому разработать электронное устройство на основе микроконтроллерного модуля Ардуино и управлять им на расстоянии по каналу Wi-Fi при помощи мобильного устройства (смартфона или планшета). Описывается популярный Wi-Fi модуль на основе специализированного микроконтроллера ESP8266EX и способы его подключения к модулю Ардуино. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC19E65A1105D687378CBB2AC4F6DE5AE973278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005116   (833796) от 08.04.2016
+
+МаксКит | Быстрый старт. Первые шаги по освоению Arduino (2015) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стартовый набор-конструктор c платой Arduino - Ваш пропуск в мир программирования, конструирования и электронного творчества. Эта брошюра содержит всю информацию для ознакомления с платой Arduino, а также 14 практических экспериментов с применением различных электронных компонентов и модулей. Полученные знания, в дальнейшем, дадут возможность создавать свои собственные (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD3F62C3D9AB7E721668E27F5593635771EBED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501676   (833209) от 11.10.2021
+
+Кей С. Хорстманн | Java. Библиотека профессионала, том 2. Расширенные средства программирования (11-е издание) (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исчерпывающее руководство по разработке пользовательских интерфейсов и корпоративных приложений на Java! Полностью обновлено по версии Java 11.
+
+Это одиннадцатое издание представляет собой солидное справочное руководство, рассчитанное на опытных программистов, стремящихся писать надежный код на Java для реальных приложений. Во втором томе настоящего издания освещаются (   Читать дальше...   )Жанр: Языки программированияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7316F434A3C6F16602D622BCEB50E09C34E7C32
 ```
 
 https://mybot314.ru/tekegram_catalog/

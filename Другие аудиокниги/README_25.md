@@ -1,3 +1,55 @@
+###  Публикация: 1248935   (439822) от 21.09.2018
+
+Ольга Крючкова | Черный рыцарь (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец XI - начало XII века. Графство Бургундия переживает не лучшие времена после Первого крестового похода. Многие рыцари не вернулись из Палестины. В графстве царят запустение и нищета. Однако жизнь продолжается. Ригор Жюиф, сын бургундского торговца, не желает продолжать дело отца, его манят приключения. По воле судьбы ему приходится превратиться в трубадура, (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 07:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9233794947DDE436A392F3F57836F5017082902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164762   (439073) от 10.09.2017
+
+Герхард Больдт | Гитлер. Последние десять дней. Рассказ очевидца. 1945 (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Герхард Больдт, помощник главы Генерального штаба, оставил удивительное историческое свидетельство. Он с документальной точностью передает реакции фюрера и его ближайшего окружения на важнейшие события, описывает механизм принятия решений. Автору довелось вблизи наблюдать вождя национал-социализма и первых лиц Третьего рейха в последние дни перед крушением (   Читать дальше...   )Жанр: Мемуары, воспоминанияПродолжительность: 09:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36D01CCECDFDC450498D824DCC322CA646E676F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944805   (438220) от 08.10.2015
 
 Александр Вейн | Бодрствование и сон (2011) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438220.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437532.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437360.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435471.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435156.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434395.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431757.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431725.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429572.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428638.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427769.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426819.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426649.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424398.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424222.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424061.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420398.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414584.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414470.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412375.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412234.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412080.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409636.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407987.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BC45FDF546F7540FCEBE1FDCCF4667FD6A13A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559990   (407704) от 13.10.2012
-
-Анатолий Вассерман | Скелеты в шкафу истории [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, фраза, начинающаяся "Анатолий Вассерман не знает..." по определению ложна. Самый экстравагантный интеллектуал России рассматривает историю, как набор загадок и задач, которые при правильном решении помогают понять наше время. Автор собрал все самое вкусное, таинственное и увлекательное из далекого и недалекого прошлого. Главы этой книги своеобразные шарады на абсолютно разные темы - знаменитые люди, архитектура, живопись, мировые войны и даже кулинария. Анатолий Вассерман пишет только о том, что его самого потрясло, удивило, позабавило или поставило в тупик при знакомстве с историей.Жанр: Современная Проза
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEB823151817E62E3D206E6845A83F499E7EDC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565465   (399828) от 26.10.2012
-
-Платон | Государство [2008] 2CD [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Госуда́рство — диалог Платона, посвящённый проблеме идеального государства. Написан в 360 г. до н. э. С точки зрения Платона, государство является выражением идеи справедливости. В диалоге впервые отчётливо определяются философы как люди, способные постичь то, что вечно тождественно самому себе (идея). Именно философы должны управлять идеальным государством. Вторым сословием должны быть бессемейные стражи. Ниже их — простой народ.Жанр: Философия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2452F09E4553230498FB82473C008F45DA1A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

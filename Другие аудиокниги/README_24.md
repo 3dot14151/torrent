@@ -1,3 +1,55 @@
+###  Публикация: 1319868   (479337) от 14.08.2019
+
+Лонгин Федорович Пантелеев | Воспоминания (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга – это достаточно большой сборник статей, прочитав которые можно сложить отчетливую картину российской жизни второй половины XIX века. Большинство воспоминаний писателя автобиографичны. Автор пишет о событиях и людях, с которыми ему довелось работать и общаться. А интересных людей на его пути встречалось множество. Так, в книге есть отдельные главы воспоминаний (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 25:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA864D87368608A0E2B9C7B009C0DD0A8934A3F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056197   (479306) от 26.09.2016
+
+Андрей Воронин | Кровавый реванш (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшего инструктора спецназа ГРУ Иллариона Забродова приглашают работать в Аналитическую службу безопасности. АСБ готовит отчеты, влияющие на судьбы всего мира. Вскоре в воздухе взрывается самолет, на борту которого был сотрудник АСБ Виктор Фемидин. Погибло 92 человека. Забродов находит в нескольких газетах, вышедших за день до гибели Фемидина, статьи о Греции. Илларион (   Читать дальше...   )Жанр: БоевикПродолжительность: 12:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DF8E8270F3A4EA6C4FDBD05DBF6BBCEC0E9299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567860   (470187) от 04.08.2022
 
 Илона Шикова, Юлия Еленина | Ловушки (Книга 1). Капкан для бешеного (2022) [MP3, Ульяна Галич]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470187.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468326.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463879.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463540.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463261.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461960.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459666.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459144.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_459134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_459134.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457402.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453714.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453385.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453217.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448992.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448858.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448350.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446043.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446040.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444453.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444262.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443873.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442153.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441960.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440300.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68DB6AFB7346811CE5E20863D29AA5E26C7953F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248935   (439822) от 21.09.2018
-
-Ольга Крючкова | Черный рыцарь (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец XI - начало XII века. Графство Бургундия переживает не лучшие времена после Первого крестового похода. Многие рыцари не вернулись из Палестины. В графстве царят запустение и нищета. Однако жизнь продолжается. Ригор Жюиф, сын бургундского торговца, не желает продолжать дело отца, его манят приключения. По воле судьбы ему приходится превратиться в трубадура, (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 07:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9233794947DDE436A392F3F57836F5017082902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164762   (439073) от 10.09.2017
-
-Герхард Больдт | Гитлер. Последние десять дней. Рассказ очевидца. 1945 (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Герхард Больдт, помощник главы Генерального штаба, оставил удивительное историческое свидетельство. Он с документальной точностью передает реакции фюрера и его ближайшего окружения на важнейшие события, описывает механизм принятия решений. Автору довелось вблизи наблюдать вождя национал-социализма и первых лиц Третьего рейха в последние дни перед крушением (   Читать дальше...   )Жанр: Мемуары, воспоминанияПродолжительность: 09:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36D01CCECDFDC450498D824DCC322CA646E676F
 ```
 
 https://mybot314.ru/tekegram_catalog/

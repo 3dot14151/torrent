@@ -1,3 +1,55 @@
+###  Публикация: 1134830   (686517) от 16.05.2017
+
+Might and Magic - Clash of Heroes (2011) [Ru/Multi] (1.0.1.1) Repack R.G. Origami
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Might and Magic: Clash of Heroes - является приквелом к Heroes of Might and Magic V, и ее действие происходит сорока годами ранее в том же мире, в Асхане. В центре сюжета выступают пять главных персонажей – Годрик, Айдан, Анвен, Надя и Фиона, каждый из которых представляет разные расы. Для каждого из героев есть своя кампания.Тип издания: RepackРазработчик: Capybara GamesЖанр: Strategy (Turn-based), Logic (Puzzle)Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE1BB906C5387CA431458F2D34C61A3530F03A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511185   (680083) от 09.03.2022
+
+Hammerting (2020) [Ru/Multi] (1.2.39.0) License GOG
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hammerting - это вертикальный симулятор гномьей шахтерской колонии с элементами RPG. Управляйте кланом забавных гномов, затевайте эпические шахтерские проекты, куйте легендарные мечи и закапывайтесь как можно глубже, чтобы найти славу, богатства... И опасности. На поверхности бушует война. Искусные ремесленники гномы дали обещание поселиться в глубине и обеспечивать (   Читать дальше...   )Тип издания: LicenseРазработчик: Warpzone StudiosЖанр: Стратегия, Симулятор, МенеджментЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504902D98427C7465DB5979A100613543CB4ED07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205194   (679835) от 19.03.2019
 
 My Time At Portia (2019) [Ru/Multi] (2.0/dlc) Repack R.G. Catalyst
@@ -6,7 +58,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679835.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Goliath (2016) [Ru/En] (1.04/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677867.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Fate/EXTELLA LINK (2019) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677793.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Submerged: Hidden Depths (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676144.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (1.0.6e-fix/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675929.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675737.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ We. The Revolution (2019) [En/Po/Fr] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673818.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Monster Hunter: World (2018) [Ru/Multi] (1.0 build 166925/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671929.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671563.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ StarCrawlers (2017) [En] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670530.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ HordeCore (2022) [Ru/Multi] (1.06.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670438.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Telepath Tactics (2015) [En] (1.051) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670222.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Witcher 3 Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru] (1
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670014.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ City of Brass (2018) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665820.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Agarest: Generations of War (2014) [En] (1.0) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663586.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Fictorum (2017) [En] (1.1.01) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663581.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Haven (2020) [Ru/Multi] (1.1.302/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661895.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Bastard (2018) [Ru/En/De] (1.31) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660603.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ AereA (2017) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659806.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки Миров [R
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_658640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658640.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Fallout 3 (2009) [Ru] (1.7.0.3/dlc) Repack Other s [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657521.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Deus Ex: Human Revolution: The Missing Link [Ru] (RePack/1.4.651) 2011 | Audiosl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655152.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Victor Vran (2015) [Ru/Multi] (2.07/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654483.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654279.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8940ED63C2F80486E1A8A41034F72F7BE9A8012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031153   (652966) от 03.07.2016
-
-Gnomes Vs. Fairies (2016) [En] (5.0B) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gnomes vs. Fairies игра в стиле Hack 'n' slash-Action RPG platformer. Улучшайте своего гнома тонной предметов, раскачивайте любую из 5 школ Магии Меча, и наслаждайтесь уникальным ретро приключением, круто замешанным на элементах таких Гуру жанра как: Mario 64, Zelda 64, Spiro.Тип издания: LicenseРазработчик: Prismic Studios LLCЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BA45974DD4D7929D30BE24FC11F8253818A4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291794   (651876) от 26.03.2019
-
-Outward (2019) [Multi] (1.0) License RELOADED
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outward – приключенческая РПГ, события которой разворачиваются в большом открытом мире. Вам предстоит выступить в роли путешественника, отправившегося исследовать неизведанные земли, населенные опасными существами, неприятелями и интересными персонажами. Играть вы сможете как в одиночку, так и с друзьями в кооперативном режиме локально или онлайн.Тип издания: LicenseРазработчик: Nine Dots StudioЖанр: RPG, Adventure, 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A393A8F5A5A795C8C9CCA368A4446B708C8669CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

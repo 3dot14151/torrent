@@ -1,3 +1,29 @@
+###  Публикация: 1448643   (1030404) от 19.02.2021
+
+Facebook заблокировал австралийские СМИ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская соцсеть Facebook заблокировала средства массовой информации Австралии из-за споров с австралийскими властями, сообщает агентство Reuters.В частности, страницы государственных телерадиовещательных компаний Австралии и информационных агентств оказались пустыми. Также заблокированы оказались страницы австралийского минздрава и государственного метеорологического (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620102   (1030396) от 27.03.2023
 
 Нападение на Рио Браво / Gunfight at Rio Bravo (2023) BDRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030396.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030326.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi /
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030164.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030162.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030112.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030106.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ theHunter: Call of the Wild (2017) [Ru/En] (1959233/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030076.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029832.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029756.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029656.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Amnesia: Rebirth (2020) [Ru/Multi] (1.23) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029634.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Windows 11 22H2 (Build 22621.1413) Revi-OS [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029550.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029544.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029366.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029356.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029253.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029250.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029246.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029223.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Telegram превращается в Clubhouse. В мессенджере поя
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029135.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029125.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ MInstAll v.22.02.2021 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029103.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028948.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Windows 10 20H2 (19042.804) x64 Home + Pro + Enterprise (3in1) by Brux v.02.2021
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028932.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028787.jpg" />
 </div>
 
 
@@ -653,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717280   (1028583) от 28.02.2021
-
-Компьютерная графика - Экспериментальные фантазии [JPG]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028583.jpg" />
-</div>
-
-
-###  Подробнее
-
--Э,слыш,художник что ле?
--А чо,меня нарисуешь?
--о хюдожник,а ито у тибиа акварэль да?
--рисуешь...Я тоже в детстве стихи писал...матерные...(   Читать дальше...   )Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B87F1FEAF495A0A5907EC78050686F15326E2B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

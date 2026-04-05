@@ -1,31 +1,3 @@
-###  Публикация: 1447943   (1031355) от 15.02.2021
-
-Тим Волков, Алексей Сидоров | Город Безликих (2021) [EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Рок Зоны» из межавторского цикла «S.T.A.L.K.E.R.».
-
-Эта музыка будет вечной, если… парням из группы «Рок Зоны» удастся остаться в живых. А для этого необходимо приложить все усилия, потому что на сей раз рок-музыканты отправляются не куда-нибудь, а в самое загадочное место Зоны – Город Безликих. Цель благородна – спасти друга, капитана Ожогина. (   Читать дальше...   )Жанр: Боевая фантастикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB407A12C4D98A4F1B6294655E9D5EE4F0C3AFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448221   (1031146) от 16.02.2021
 
 Серафима Дашкевич | Исполнители кармы. Книга судьбы (2020) [EPUB]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031146.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031134.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031132.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031104.jpg" />
 </div>
 
 
@@ -143,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030904.jpg" />
 </div>
 
 
@@ -169,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030690.jpg" />
 </div>
 
 
@@ -195,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029316.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029004.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028977.jpg" />
 </div>
 
 
@@ -276,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028697.jpg" />
 </div>
 
 
@@ -302,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028198.jpg" />
 </div>
 
 
@@ -330,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027921.jpg" />
 </div>
 
 
@@ -356,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027547.jpg" />
 </div>
 
 
@@ -383,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026374.jpg" />
 </div>
 
 
@@ -410,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025732.jpg" />
 </div>
 
 
@@ -436,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025366.jpg" />
 </div>
 
 
@@ -462,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025250.jpg" />
 </div>
 
 
@@ -490,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025079.jpg" />
 </div>
 
 
@@ -516,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025039.jpg" />
 </div>
 
 
@@ -542,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024726.jpg" />
 </div>
 
 
@@ -570,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024592.jpg" />
 </div>
 
 
@@ -597,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024561.jpg" />
 </div>
 
 
@@ -625,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024289.jpg" />
 </div>
 
 
@@ -651,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023912.jpg" />
 </div>
 
 
@@ -677,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023440.jpg" />
 </div>
 
 
@@ -688,6 +660,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CE33BD20BB3AB882E7274B2E944156A4EAF5BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459352   (1023286) от 01.04.2021
+
+Крейг Дилуи | Один из нас (2021) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпидемия новой болезни, которая закончила эпоху хиппи и Лета любви, вызвала появление массовых мутаций у новорожденных. Рога, шерсть, клыки, когти и хвосты. Брошенные родителями, они вырастают в аутсайдеров, которые содержатся в спецшколах и игнорируются обществом. Наступили консервативные восьмидесятые. Терпение мутантов на исходе, у них начинают просыпаться сверхспособности, (   Читать дальше...   )Жанр: Зарубежная фантастика, Мистика, Социальная фантастика, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F218D7529011D61D16616FAD20FEE28013560F
 ```
 
 https://mybot314.ru/tekegram_catalog/

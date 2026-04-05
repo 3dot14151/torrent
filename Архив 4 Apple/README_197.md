@@ -6,7 +6,7 @@ Nevercenter CameraBag Photo 2021.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791592.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Keep It 1.11.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791590.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ OnyX 4.1.1 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791588.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Keyboard Maestro 10 v10.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791587.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ AweCleaner Professional 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791584.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ FileMaker Pro 19 v19.4.1.36 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791583.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Permute 3 v3.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791581.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wondershare UniConverter 13.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791580.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Coming soon 3 v3.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791576.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Marvelous Designer 7.5 Personal 4.1.101 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791542.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Wondershare PDFelement Pro 8.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791534.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ iStat Menus 6 v6.61 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791530.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Wondershare Repairit 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791529.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Unclutter 2.1.17d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791484.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sketch 52.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791479.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Logic Pro X 10.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791444.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Wondershare Filmora Х v10.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791419.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ MAMP PRO 6 v6.6 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791384.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Permute 3 v3.4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791345.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Mountain Duck 4.0.0 (build 16449) beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791344.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Boxy SVG 3  v3.38.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791343.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ AnyMP4 iOS Toolkit 9.0.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791339.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Elmedia Player Pro 7.11 (build 2110)  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791295.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ PDF Expert 2.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791265.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Final Cut Pro 10.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791238.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Bartender 3 v3.1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791223.jpg" />
 </div>
 
 

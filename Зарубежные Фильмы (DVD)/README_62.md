@@ -1,83 +1,3 @@
-###  Публикация: 474222   (84753) от 27.03.2012
-
-Моя маленькая принцесса / My Little Princess (2011) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84753.jpg" />
-</div>
-
-
-###  Подробнее
-
-11-летнюю Виолетту не спутать со сверстницами — не только потому, что пышные золотые волосы девочки видны за версту. Виолетта — ребёнок-звезда, героиня эстетских фотографий, сделанных блудной богемной мамой, превратившей свою дочь в объект эротического вожделения коллекционеров и пристального внимания социальных служб, гостью салонов и школьную парию.Жанр: ДрамаРежиссер: Ева ЙонескоАктеры: Изабель Юппер, Анамария Вартоломей, Жоржетта Ляху, Дени Лаван, Джетро Кейв, Луи-До де Ланкесэ, Паскаль Бонгард, Анн Бенуа, Дебора РевиПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 01:42:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473495   (84542) от 26.03.2012
-
-Король вечеринок 2 / Van Wilder 2: The Rise of Taj (2006) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тадж Бадаландабад только что закончил колледж и отправляется поступать в Оксфорд. Он мечтает пойти по стопам своего отца и не только получить ученую степень, но и стать членом закрытого лагеря «Братская гильдия лис и собак», следующим представителем Бадаландабадов, названных «Султаном простыней».
-
-Однако когда Тадж приезжает в Оксфорд, Пип Эверетт, Серый Граф, возглавляющий (   Читать дальше...   )Жанр: КомедияРежиссер: Морт НэтанАктеры: Кэл Пенн, Лорен Коэн, Дэниэл Персивал, Глен Бэрри, Энтони Козенс, Стивен Рэтман, Холли Дэвидсон, Том Дэвей, Уильям де Коверли, Бет СтилПеревод: ДублированныйПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472529   (84402) от 25.03.2012
-
-Вальгалла: Сага о викинге / Valhalla Rising (2009) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1000 год нашей эры. Немой воин по прозвищу Одноглазый, вырывается из 10-летнего рабства. Сурово расправившись со своими мучителями, он вскоре встречает викингов, с которыми направляется в Иерусалим. По пути следования путешественники переживают страшный шторм, затем их судно попадает в необычный туман. Выбравшись из непроглядной пелены, викинги оказываются около неведомых земельЖанр: Приключения, БоевикРежиссер: Николас Виндинг РёфнАктеры: Мадс Миккельсен, Маартен Стивен, Гордон Браун, Эндрю Флэнеган, Гари Льюис, Гари МакКормак, Александр Мортон, Джэми Сивз, Ивэн Стюарт, Мэтью ЗаяцПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:28:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472777   (84284) от 25.03.2012
 
 Проблески надежды / Hope Floats (1998) DVD9
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84284.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84275.jpg" />
 </div>
 
 
@@ -142,7 +62,7 @@ Q: Загадка женщины / Q (2011) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83755.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83569.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83565.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83532.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83474.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83457.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83440.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83384.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83382.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83352.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83339.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83145.jpg" />
 </div>
 
 
@@ -454,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83128.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83011.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83007.jpg" />
 </div>
 
 
@@ -534,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82915.jpg" />
 </div>
 
 
@@ -560,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82709.jpg" />
 </div>
 
 
@@ -586,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82660.jpg" />
 </div>
 
 
@@ -612,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82631.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82336.jpg" />
 </div>
 
 
@@ -666,13 +586,91 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82315.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Новое реалити-шоу под названием «Задание» вынуждает шестерых молодых участников выполнять квесты, находясь на территории заброшенной тюрьмы. Понятно, что за большой денежный выигрыш они вскоре будут готовы перегрызть друг другу глотки прямо в прямом эфире, чем искусно пользуется неизвестный, устроивший им ночь ТВ-террора…Жанр: УжасыРежиссер: Алекс ОруэллАктеры: Александра Стаден, Виктор МакГуайр, Адам Рэйнер, Антония Кэмпбелл-Хьюджес, Эшли Мулрон, Амара Каран, Том Пэйн, Марк Пикеринг, Тексас Бэттл, Сэм СтокманПеревод: Многоголосый закадровыйЯзык субтитров: украинскийПродолжительность: 01:30:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467649   (82163) от 14.03.2012
+
+Артист / The Artist (2011) DVD5 [BD -> DVD]
+
+>>След.
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Франция, БельгияЖанр: Драма, Мелодрама, КомедияРежиссер: Мишель ХазанавичусАктеры: Жан Дюжарден, Беренис Бежо, Джон Гудмен, Джеймс Кромуэлл, Пенелопа Энн Миллер, Мисси Пайл, Угги, Бет Грант, Эд Лотер, Джоэль МюррейПеревод: Немое кино / Двуголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:36:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468034   (82141) от 14.03.2012
+
+Полночь в Париже / Midnight in Paris (2011) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель и безнадежный романтик, уверенный в том, что должен был жить в 1920-е годы, приезжает в Париж со своей возлюбленной на каникулы и попадает в прошлое. Встречаясь там с Хемингуэем, Пикассо, супругами Фицжеральдами, Гертрудой Стайн он понимает, что принадлежит этому времени и хочет остаться там навсегда.Производство: США, Испания / Gravier Productions, Mediapro, Televisiо de Catalunya (TV3)Жанр: Фэнтези, Мелодрама, КомедияРежиссер: Вуди АлленАктеры: Оуэн Уилсон, Рэйчел МакАдамс, Курт Фуллер, Мими Кеннеди, Майкл Шин, Карла Бруни, Морис Зонненберг, Тьерри Ханчиссе, Эдриан Броуди, Марион Котийяр, Кэти Бейтс, Том ХиддлстонПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 01:30:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467511   (82108) от 14.03.2012
+
+Мартовские иды / The Ides of March (2011) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82108.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме рассказывается об избирательной кампании Говарда Дина, проводившейся во время первичных выборов кандидата на пост президента США от демократической партии в 2004 году.Производство: Cross Creek Pictures / Exclusive Media Group / Smoke House / Crystal City EntertainmentЖанр: ДрамаРежиссер: Джордж КлуниАктеры: Райан Гослинг, Джордж Клуни, Филип Сеймур Хоффман, Пол Джаматти, Мариса Томей, Джеффри Райт, Ивэн Рэйчел Вуд, Макс Мингелла, Дженнифер Эль, Грегори ИтцинПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:37:02
 
 ## Скачать торент
 ```bash

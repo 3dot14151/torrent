@@ -1,3 +1,162 @@
+###  Публикация: 1285411   (720380) от 26.02.2019
+
+Зелёная книга / Green Book (2018) WEBRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утонченный светский лев, богатый и талантливый музыкант нанимает в качестве водителя и телохранителя человека, который менее всего подходит для этой работы. Тони «Болтун» — вышибала, не умеющий держать рот на замке и пользоваться столовыми приборами, зато он хорошо работает кулаками. Это турне навсегда изменит жизнь обоих.
+Основано на реальных событиях.Производство: США / Participant Media, DreamWorks, Amblin PartnersЖанр: Драма, Комедия, БиографияРежиссер: Питер ФарреллиАктеры: Вигго Мортенсен, Махершала Али, Линда Карделлини, Себастьян Манискалко, Димитар Маринов, Майк Хаттон, П.Дж. Бирн, Джозеф Кортезе, Мэгги Никсон, Фон ЛьюисПеревод: Дублированный (iTunes), многоголосый закадровый (HDRezka Studio)Субтитры: Русские (полные)Продолжительность: 02:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99493727A9DBC6ECA8E476BBE0ED46E9246399DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069291   (720379) от 26.02.2019
+
+OS X FOR BDU - ACTUALLY BUILDS [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочные разделы (5.hfs) с инсталляторами OS X 10.7.5 - macOS 10.14.3, для восстановления на второй раздел флешки через BDU.
++ Инсталляторы разделов для восстановления (RecoveryHD).
++ BDU_FAQ_STARCOM_v1.0.3.pdf.Тип издания: Авторская раздачаРелиз состоялся: 24 Февраля, 2019.Разработчик: Apple IncЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4CC05E63127EB9D6394111BD6ADD30DC9C4677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531523   (720148) от 16.02.2022
+
+Intel будет предлагать дополнительные функции процессоров за отдельную плату
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технология Intel SDSi позволит процессорам Xeon устанавливать новые обновления сразу после покупки.Компания Intel намерена предоставлять пользователям возможность разблокировать дополнительные функции процессоров за отдельную плату. Технология Intel SDSi позволит процессорам Xeon внедрять новые функции и устанавливать обновления непосредственно на процессоры сразу (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129351   (719970) от 29.04.2017
+
+Microsoft советует не устанавливать Creators Update для Windows 10 вручную
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация Microsoft около двух недель назад представила финальную версию нового кумулятивного апдейта для своей ОС Windows 10. Это обновление добавляет несколько новых функций плюс исправляет существующие проблемы операционной системы. Правда, на днях в своем блоге корпорация разместила обращение к пользователям, в котором просит не устанавливать Creators Update (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129662   (719964) от 29.04.2017
+
+Викинг (2016) BDRip [H.264/720p-LQ] [Unrated, GER Transfer]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раннее Средневековье. Время тяжелых мечей и темных законов крови. Правящий род в раздоре. Вина за случайную смерть брата легла на Великого Князя. По закону мстить ему должен младший брат - бастард. За отказ убивать он заплатит всем, что у него было, потому что «для мира нужно больше мечей, чем для войны».Производство: Россия / Дирекция КиноЖанр: История, ДрамаРежиссер: Андрей КравчукАктеры: Данила Козловский, Светлана Ходченкова, Максим Суханов, Игорь Петренко, Андрей Смоляков, Владимир Епифанцев, Александра Бортич, Ростислав БершауэрПеревод: Не требуется (Русский, Лицензия BD GER)Субтитры: ОтсутствуютПродолжительность: 02:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940F2D146D9772C052A4B2574C9F7EF18B2D4709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790261   (719730) от 28.05.2014
+
+Трудно быть Богом (2013) BDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Россия / Ленфильм, Студия СеверЖанр: Драма, ФантастикаРежиссер: Алексей ГерманАктеры: Леонид Ярмольник, Юрий Цурило, Наталья Мотева, Александр Чутко, Евгений Герчаков, Валентин Голубенко, Пётр Меркурьев, Олег Ботин, Константин Быков, Юрий ДумчевПеревод: Не требуетсяПродолжительность: 02:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31939742AD7C4C889CAE0F0582E303F27863AE8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761834   (719688) от 28.05.2014
 
 Ганнибал / Hannibal (2014) WEB-DLRip (Сезон 2 полный (13 серий)) (Sony Sci-Fi)
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719688.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719687.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Watch Dogs (2014) [Ru] (1.06.329/dlc) Repack =nemos= [Digital Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719294.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ Geekbrains | Профессия Веб-разработчик (2015) PCRec [H.26
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719291.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ Microsoft Windows 7 SP1 RTM X86&64 FULL&LITE RUS SPA CLASSIC PROJECT 2 DVD 2011[
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_719266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719266.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ Daum PotPlayer 1.7.10667 Stable RePack (& portable) by 7sh3 (06.04.2018) [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718977.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718975.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718968.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ ZORIN OS Ultimate 12.3 [x86 + x64] 2xDVD
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718963.jpg" />
 </div>
 
 
@@ -240,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718843.jpg" />
 </div>
 
 
@@ -266,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718842.jpg" />
 </div>
 
 
@@ -292,7 +451,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4711.
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718750.jpg" />
 </div>
 
 
@@ -318,7 +477,7 @@ Adobe Photoshop CC 2014.2.2 (20141204.r.310) RePack by D!akov (25.04.2015) [Mult
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718746.jpg" />
 </div>
 
 
@@ -344,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718740.jpg" />
 </div>
 
 
@@ -371,7 +530,7 @@ Microsoft Windows 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy 04.2
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718737.jpg" />
 </div>
 
 
@@ -397,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718575.jpg" />
 </div>
 
 
@@ -424,7 +583,7 @@ ITVDN | Подборка учебных курсов IT специальност
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718512.jpg" />
 </div>
 
 
@@ -453,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718465.jpg" />
 </div>
 
 
@@ -479,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718464.jpg" />
 </div>
 
 
@@ -505,7 +664,7 @@ Android сертифицирована FIDO2 - пользователей изб
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718374.jpg" />
 </div>
 
 
@@ -516,163 +675,6 @@ Android сертифицирована FIDO2 - пользователей изб
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531530   (718188) от 17.02.2022
-
-В России начали тестировать цифровой рубль
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банк России и участники рынка приступили к тестированию платформы цифрового рубля. Об этом говорится в сообщении, опубликованном на сайте регулятора. Участие в тестировании будут принимать 12 банков.«Сейчас три банка из пилотной группы уже подключились к платформе. Два из них успешно провели полный цикл операций по переводу цифровых рублей между клиентами с использованием (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531812   (718174) от 17.02.2022
-
-Google представил Chrome OS Flex, пригодный для установки на любое оборудование
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Google представила операционную систему Chrome OS Flex, представляющую собой новый вариант Chrome OS, предназначенный для использования на обычных компьютерах, а не только на изначально поставляемых с Chrome OS устройствах, таких как Chromebook, Chromebase и Chromebox.В качестве основных областей применения Chrome OS Flex упоминается модернизация уже имеющихся (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145179   (718166) от 17.02.2022
-
-Домашний видеоархив / Коллекция музыкальных клипов / Music Videos Collection (1980-2010) [VOB] [DVD5, DVD9]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромная коллекция музыкальных клипов разных лет, стилей и направлений.Жанр: Dance, Pop, Club, Trance, Eurodance, Rock, Hard Rock, Metal, Nu Metal, Breakbeat, Trip-Hop, Dance Punk, etc.Формат: VOB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCCE515821DD04FBEEAD701AACA7C951DFDF420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129895   (718133) от 30.04.2017
-
-В Китае ввели регистрацию по паспорту для участников онлайн-игр
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Власти Китая вводят паспортную регистрацию для игроков онлайн-игр
-В Китае власти ввели обязательную регистрацию по удостоверению личности для участников онлайн-игр. Правила регистрации опубликовало Минкультуры КНР, сообщает Life. Новые правила регистрации геймеров вступают в силу с 1 мая.Отмечается, что администраторы онлайн-площадок будут обязаны хранить регистрационные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116745   (717873) от 30.04.2017
-
-Watch Dogs / Watch_Dogs (2014) [Ru/En] (1.06.329/dlc) Repack R.G. Origami [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все друг с другом связаны. Мы зависим от новинок рынка высоких технологий, ведь лишь с их помощью узнаем, что происходит в мире. Но у прогресса есть и темная сторона. Каждое наше действие оставляет след: каждый наш шаг, каждая остановка, все, что нам нравится или не нравится. И дело не только в нас. Мегаполисы опутаны цифровыми сетями. Городская инфраструктура контролируется (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montréal, Ubisoft Reflections и Ubisoft RomaniaЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589461CB0AD26C770628967C33655ACDDE702BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130004   (717867) от 30.04.2017
-
-CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Portable by conservator [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717867.jpg" />
-</div>
-
-
-###  Подробнее
-
-CorelDRAW Graphics Suite 2017 — новейшее и самое передовое программное обеспечение для графического дизайна. В состав пакета входят все признанные в индустрии инструменты, представленные в CorelDRAW Graphics Suite X8, а также множество других функций. Забудьте о набросках на бумаге и сканировании рисунков! Замечательный новый инструмент LiveSketch™ позволяет мгновенно (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EECB45207AB8DB3621DB5C4B523A8E593FAFC96
 ```
 
 https://mybot314.ru/tekegram_catalog/

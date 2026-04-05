@@ -1,3 +1,85 @@
+###  Публикация: 1043615   (561396) от 22.08.2016
+
+Степан Александрович Богомолов | Актуальная бесконечность. Зенон Элейский, Исаак Ньютон, Георг Кантор (1934) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые „апории“ Зенона Элейского более 2000 лет привлекают к себе внимание ученых и философов; всё снова и снова стараются их опровергнуть. Пройти мимо апорий Зенона, объявив их пустыми софизмами, было бы совершенно неправильно; здесь элейская школа с необыкновенной силой и глубиной критиковала возможность движения; а ведь понятие движения лежит в основе механики (   Читать дальше...   )Жанр: История, философия, науковедение, математикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4CAEDF0140548FE0276CE1A55FB8E0B97EED80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045079   (561002) от 22.08.2016
+
+Нил Деграсс Тайсон, Дональд Голдсмит | История всего. 14 миллиардов лет космической эволюции (2016) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наше происхождение началось не на Земле, а, на самом деле, в космосе. Основываясь на научных открытиях и исследованиях, где пересекаются несколько наук — геология, биология, астрофизика и космология, — вы узнаете, как сформировались наши знания о космосе.
+В этой книге Нил Деграсс Тайсон и Дональд Голдсмит отправят вас в космический тур, где вы узнаете о рождении (   Читать дальше...   )Жанр: АстрономияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB03352363F10E668D1E01E2FD5DFB3AA01106EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045037   (559421) от 23.08.2016
+
+Н. И. Арепьева, Т. А. Романова (ред.) | Ливия. Справочная карта (1979) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559421.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Ливии (масштаб 1:2 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D94A11E900DD9A847DA5A07E770F67E1C9E0C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924304   (559072) от 03.08.2015
 
 А. С.  Эддингтон | Относительность и кванты (1933) [DJVU]
@@ -6,7 +88,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559072.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554328.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ C. А. Аррениус | Химия и современная жизнь (1925)
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554256.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552799.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552403.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550011.jpg" />
 </div>
 
 
@@ -167,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549926.jpg" />
 </div>
 
 
@@ -193,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548790.jpg" />
 </div>
 
 
@@ -219,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548476.jpg" />
 </div>
 
 
@@ -247,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548029.jpg" />
 </div>
 
 
@@ -273,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546955.jpg" />
 </div>
 
 
@@ -302,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546381.jpg" />
 </div>
 
 
@@ -328,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546380.jpg" />
 </div>
 
 
@@ -354,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546314.jpg" />
 </div>
 
 
@@ -381,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545710.jpg" />
 </div>
 
 
@@ -407,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545385.jpg" />
 </div>
 
 
@@ -433,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545347.jpg" />
 </div>
 
 
@@ -459,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545173.jpg" />
 </div>
 
 
@@ -487,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544787.jpg" />
 </div>
 
 
@@ -515,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544225.jpg" />
 </div>
 
 
@@ -541,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543513.jpg" />
 </div>
 
 
@@ -567,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540923.jpg" />
 </div>
 
 
@@ -595,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539861.jpg" />
 </div>
 
 
@@ -608,84 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFF5F87B64CBADB5E64B0DBE19F961A9E99114EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050375   (537872) от 08.09.2016
-
-Д. Лукашанец и др. | Самые редкие, красивые и удивительные насекомые мира (2016) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537872.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Предлагаем вам познакомиться с самыми редкими и красивыми насекомыми нашей планеты. Мир насекомых хранит множество тайн и загадок, он яркий, шумный, пестрый и такой разнообразный. Факты и подробности жизни, семейные устои и брачные танцы, раскраска и маскировка - обо всем этом вы узнаете из нашей книги.Жанр: ЗоологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B9B3C001456843D66FB8C9A0D73218EF863ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239628   (536557) от 06.08.2018
-
-Эдвард Шейнерман | Путеводитель для влюбленных в математику (2018) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принято считать, что математика – наука точная и совершенно скучная, но Эдвард Шейнерман берется доказать обратное. Он утверждает, что математика бывает не менее увлекательной, чем гуманитарные дисциплины. Как объяснить тот факт, что бо́льшая часть окружающих нас чисел начинается на единицу, а тех, что начинаются на девятку, – совсем мало? Каков наилучший путь (   Читать дальше...   )Жанр: Математика, Научно-популярная литератураПеревод: Алексей ОгнёвФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D6AA722E6EB97FB044EBC24CE101AC3A191F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050741   (536301) от 09.09.2016
-
-Манфред Шредер | Фракталы, хаос, степенные законы (2005) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная цель книги — помочь читателю глубже понять, что такое самоподобие — возможно, наиболее важную из встречающихся в природе симметрии, а также продемонстрировать широчайший диапазон применений масштабной инвариантности в физике, химии, биологии, музыке и, в особенности, в изобразительном искусстве. Материал изложен на доступном уровне и снабжен множеством иллюстраций. (   Читать дальше...   )Жанр: математика,научно-популярныеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DA320EC0E6DC93A71284EC36C500689DA9CEC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

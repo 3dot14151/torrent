@@ -1,3 +1,56 @@
+###  Публикация: 344301   (654241) от 31.05.2011
+
+Майн Рид | Собрание сочинений в шести томах [1956-1958] [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди книг для детей и подростков большое место занимает литература приключений и путешествий. Смелые и закаленные люди, о которых она рассказывает, становятся любимцами молодого читателя. К числу славных создателей романа приключений и путешествий принадлежит и Томас Майн Рид.
+Антикварное издание, с иллюстрациями. В 6-томник вошли все лучшие произведения Майна Рида.Жанр: Детская литература, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3F83EA12063BC8A72A38DE744D8F40CB08AC3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904491   (654122) от 03.06.2015
+
+Михаил Зощенко | Рассказы (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путь от «взрослой» к литературе для ребёнка проходили многие писатели. Взрослый писатель Михаил Зощенко (1894–1958) тоже занял своё особое место в детской литературе. В 1937–1945 годах он писал для детей. Неповторимый юмор и назидательность, соединившиеся в его рассказах, полюбили дети. Рассказы М. Зощенко с удовольствием читают и сегодня. Вероятно, у писателя получилось (   Читать дальше...   )Жанр: Детская проза, Советская классическая прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDA30F850E0790FFBE4C4FCD0A40848C87B7AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540320   (654078) от 29.03.2022
 
 Александр Дружинин | Проникшие из кошмаров (2022) [FB2, EPUB, MOBI]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654078.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654072.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654066.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654032.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654030.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654023.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654012.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653960.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653544.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653502.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653320.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653319.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653277.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653107.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652963.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652712.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652708.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652668.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652642.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652159.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652150.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652084.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651742.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651602.jpg" />
 </div>
 
 
@@ -629,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6DF383CAC216345CCBB9A1E35F38FD759D9A3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905233   (651577) от 05.06.2015
-
-Ф.С. Капица, Т.М. Колядич | История мировой культуры (2010) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник школьника - современное и самое полное учебное пособие, составленное по действующей базовой программе, утвержденной Министерством образования и науки РФ. Серия составлена и разработана опытными учителями московских школ и преподавателями МГУ им. М.В.Ломоносова.
-
-Издание, охватывающее все аспекты школьной программы, предназначено для школьников 4-11 классов, (   Читать дальше...   )Жанр: Учебная литература, СправочникиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484F5728C09FFEE3F42A9D8019163005EEDC577A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905372   (651561) от 05.06.2015
-
-К. Ушинский, Н. Некрасов и др. | Делу время, потехе час (1988) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651561.jpg" />
-</div>
-
-
-###  Подробнее
-
-О труде, главном содержании человеческой жизни, издавна говорилось в пословицах,пелось в народных песнях, сказывалось в сказках. Радость труда, любовь к родной земле, остаются с человеком навсегда с детства. Вот почему рассказы, стихи, народные песни из этой книги никогда не устареют, будут читаться и всегда найдут отклик в человеческой душе.Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBFC315DFFA6171AD047265A5B80479F6CA9788
 ```
 
 https://mybot314.ru/tekegram_catalog/

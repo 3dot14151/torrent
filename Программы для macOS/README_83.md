@@ -1,3 +1,58 @@
+###  Публикация: 1052245   (529264) от 13.09.2016
+
+Perfect Diet Tracker 3.8.8003 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfect Diet Tracker - Данная программа предназначена для мониторинга дневной нормы потребления калорий. В Perfect Diet Tracker включена база данных, содержащая более 110,000 наименований продуктов, и она постоянно обновляется. В программе поддерживаются как эмпирические, так и количественные измерения. Включена возможность добавлять виды продуктов, оценивать их (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 сентября 2016Разработчик: Byoni LtdПоддерживаемая ОС: OS X 10.6.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3506976E074651EAABFBE6F745A6ED4ABA048489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052193   (529259) от 13.09.2016
+
+Suite for iWork 3.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Suite for iWork -  основной инструмент для пользователей iWork
+Suite for iWork представляет собой набор из шаблонов для Pages, Keynote и Numbers.
+689 уникальных и красивых шаблонов для документов Pages, 35 тем для презентаций Keynote и 90 шаблонов для Numbers. Все-в-одном приложении.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 марта 2016Разработчик: Alungu UABПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CAAA6B34F59C08B89FC903F98526E328D57C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052120   (528995) от 13.09.2016
 
 GIF Brewery 3 - Video to GIF Creator 3.0.2 [En]
@@ -6,7 +61,7 @@ GIF Brewery 3 - Video to GIF Creator 3.0.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528995.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Auto Refresh Page 1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528934.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ SnippetsLab 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528863.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ xScope 4 v4.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527839.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Do Your Data Recovery Pro 8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527829.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ Webcam Setting 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527804.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ InstaBro | Instagram Browser 5.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527802.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ Iris Pro 0.8.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527598.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ Layouts for Keynote 2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527367.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ Themes for iBooks Author 4.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527359.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ Qbserve 1.89 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527229.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ DFind - Fast File Search for macOS 2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527227.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ DSync - File Synchronizer 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527189.jpg" />
 </div>
 
 
@@ -359,7 +414,7 @@ JPEGmini Pro 2.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526971.jpg" />
 </div>
 
 
@@ -387,7 +442,7 @@ Mail Designer Pro 3 v3.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526942.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526290.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ Spot Maps 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526072.jpg" />
 </div>
 
 
@@ -469,7 +524,7 @@ Things 2.8.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526002.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ Jaksta Deluxe 2.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525819.jpg" />
 </div>
 
 
@@ -525,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525517.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ MetaTV 1.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525172.jpg" />
 </div>
 
 
@@ -581,7 +636,7 @@ Proxie: HTTP debugging proxy 2.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525171.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ Periodic Table Explorer 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524758.jpg" />
 </div>
 
 
@@ -639,7 +694,7 @@ FileAssistant 3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524497.jpg" />
 </div>
 
 
@@ -652,60 +707,6 @@ FileAssistant 3.5 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F2A2D4C8D8BB0782A65335EF15B847DEE1753B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559458   (524422) от 25.06.2022
-
-DoYourData AppUninser Pro 5.9 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524422.jpg" />
-</div>
-
-
-###  Подробнее
-
-DoYourData AppUninser - очень мощный, но простой в использовании деинсталлятор Mac. Он может полностью удалить приложения, удалить связанные файлы и очистить все, что осталось. Он может полностью удалить даже самые «упрямые» приложения, аварийные программы, плагины, виджеты и панели настроек с вашего Mac. DoYourData AppUninser также может удалять ненужные языковые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.06.2022Разработчик: © 2021 DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7EEAB17C42C419F3558FD7CDC556DDC81A8B34F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053838   (524279) от 18.09.2016
-
-Corporate Packs for Pages 2.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый взгляд для ваших документов  Pages! Corporate Packs for Pages  Jumsoft в комплект имеет 18 пакетов с последовательными визуальными стилями для практически любых типов документов, которые могут понадобиться в вашем офисе.
-
-Каждый пак содержит до 41 различных шаблонов, от базовой одной страницы счет-фактуры, резюме, или комплексной брошюры с до 12 вариантов обложек (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 марта 2016Разработчик: JumsoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988A8A24FFB3A89DD013768861026B43E7410B19
 ```
 
 https://mybot314.ru/tekegram_catalog/

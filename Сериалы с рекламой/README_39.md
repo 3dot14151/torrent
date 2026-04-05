@@ -1,3 +1,55 @@
+###  Публикация: 1432079   (165136) от 16.12.2020
+
+В неведении / The Sleepers (2019) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165136.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989 год. Мария Скалова - профессиональная скрипачка, бежавшая 12 лет назад со своим мужем, диссидентом Виктором, из тоталитарной Чехословакии в Великобританию. Но теперь социалистический режим ослаблен и Мария хотела бы через много лет наконец-то навестить свою семью. Но вскоре после возвращения в Прагу выясняется, что это решение было роковой ошибкой. Виктор при (   Читать дальше...   )Производство: Чехия / HBO EuropeЖанр: триллер, драмаРежиссер: Иван ЗахариасАктеры: Татьяна Паугофова, Мартин Мышичка, Ян Власак, Ленка Власакова, Петр Лненичка, Хэтти Морахэн, Кристина Малерова, Джим Хай, Иван Г’Вера, Мартин Хофманн м д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBB1167B0F253D18766E29CFE88FBAD23D3052C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673446   (164961) от 01.11.2023
+
+Женщина в стене / The Woman in the Wall (2023) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сериала строится вокруг женщины по имени Лорна Брейди. Главная героиня однажды утром обнаруживает то, что меньше всего ожидала увидеть: в её доме появляется труп неизвестной женщины. Лорна понятия не имеет, кто она такая, поэтому с огромным волнением принимает то, что происходит в её собственном доме. Героиня не спешит обращаться в полицию, ведь знает, что (   Читать дальше...   )Производство: Великобритания / Motive Pictures, Showtime Networks, British Broadcasting Corporation (BBC)Жанр: триллерРежиссер: Гарри Вутлифф, Рашна СуриАктеры: Рут Уилсон, Дэрил МакКормак, Саймон Делани, Филлипа Данн, Марк Хубермэн, Хильда Фэй, Фрэнсис Томелти, Дермот Краули, Эбби Фиц, Caoimhe Farren и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийПродолжительность: ~00:55:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E444098C81FF6FB067485213A8293CB43F39BE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673221   (164402) от 02.11.2023
 
 Адвокатское бюро Батталья / Studio Battaglia (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164402.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164358.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164102.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164081.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164070.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163184.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163157.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163142.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163087.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163011.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163007.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162973.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162923.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162810.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162642.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162570.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162553.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162538.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162505.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162460.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161118.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161065.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160584.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160550.jpg" />
 </div>
 
 
@@ -623,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3543E3450E16E7C9DBBCB7A2E430C685141B3EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675236   (160249) от 09.11.2023
-
-Комиссар Риччарди / Il Commissario Ricciardi (2023) WEBRip [H.264/1080p] (сезон 2, серии 1-4 из 4) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160249.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета — успешная серия романов Маурицио де Джованни (автора "Комиссариата Пиццофальконе").
-Риччарди — комиссар, живущий в Неаполе в 30 годах 20 века. Он специализируется на сложных, запутанных делах, решать которые ему помогает один необычный дар: он видит призраки людей, умерших насильственной смертью.Производство: Италия / Clemart, Rai FictionЖанр: драма, криминал, детективРежиссер: Алессандро Д’Алатри, Джанпаоло ТескариАктеры: Лино Гуанчале, Антонио Мило, Энрико Ианнелло, Серена Иансити, Мария Вера Ратти, Марио Пиррелло, Нунциа Скьяно, Marco Palvetti, Фабриция Сакки, Adriano Falivene и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~01:45:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AC629EC0C03DF7EBA369353435C73160679146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675217   (160218) от 09.11.2023
-
-Комиссар Риччарди / Il Commissario Ricciardi (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160218.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета — успешная серия романов Маурицио де Джованни (автора "Комиссариата Пиццофальконе").
-Риччарди — комиссар, живущий в Неаполе в 30 годах 20 века. Он специализируется на сложных, запутанных делах, решать которые ему помогает один необычный дар: он видит призраки людей, умерших насильственной смертью.Производство: Италия / Clemart, Rai FictionЖанр: драма, криминал, детективРежиссер: Алессандро Д’Алатри, Джанпаоло ТескариАктеры: Лино Гуанчале, Антонио Мило, Энрико Ианнелло, Серена Иансити, Мария Вера Ратти, Марио Пиррелло, Нунциа Скьяно, Marco Palvetti, Фабриция Сакки, Adriano Falivene и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~01:45:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824EC19D9A96B28DE73DE0B6F596DDA071A6C3C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

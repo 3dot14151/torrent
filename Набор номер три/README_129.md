@@ -1,3 +1,161 @@
+###  Публикация: 300014   (877052) от 23.02.2011
+
+Санктум / Sanctum (2011) [H.264] DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа дайверов предпринимает очень рискованную экспедицию в самую большую систему пещер на Земле — невероятно красивую и почти недоступную. Неожиданный тропический шторм вынуждает их спуститься глубоко в пещеры. Единственное спасение для исследователей — найти неизвестный второй выход к морю, преодолевая неистовую стихию бушующих вод, коварные ловушки подземелий (   Читать дальше...   )Производство: США / Австралия, Relativity MediaЖанр: Боевик, Триллер, Драма, ПриключенияРежиссер: Алистер ГрирсонАктеры: Ричард Роксбург, Йоан Гриффит, Риз Уэйкфилд, Элис Паркинсон, Дэниэл Уилли, Кристофер Бэйкер, Элисон Крэтчли, Крамер Кэйн, Эндрю Хансен, Джон ГарвинПеревод: ДублированныйФормат: MKVПродолжительность: 01:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A590D0DED1E45D6C9A3CECC71D4470210524612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495426   (876958) от 14.09.2021
+
+Технология Google повышает разрешение изображений до 16 раз без потери качества
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876958.jpg" />
+</div>
+
+
+###  Подробнее
+
+В июле исследователи Google из команды Brain Team поделились своими достижениями в области масштабирования изображений. Результаты своих исследований они опубликовали в блоге Google AI, посвящённом исследованиям и разработкам в области машинного обучения и искусственного интеллекта.В статье под названием «Создание высокоточных изображений с использованием диффузионных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494945   (876952) от 14.09.2021
+
+Life is Strange: True Colors (2021) [Ru/Multi] (1.1.190.624221) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекс Чэнь давно скрывает от всех своё "проклятие" - сверхъестественное умение считывать и поглощать сильные чувства других людей, которые представляются ей в виде разноцветных аур, а также управлять ими. Когда её брат погибает - якобы в результате несчастного случая, Алекс приходится овладеть своими силами, чтобы узнать правду и заодно раскрыть мрачные (   Читать дальше...   )Тип издания: LicenseРазработчик: Deck NineЖанр: Adventure, Choice and Consequence, Choose Your Own AdventureЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB5870887AB2ED0EA7E62C979E527B83512E1C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495847   (876947) от 14.09.2021
+
+Adobe Photoshop 2020 21.2.12.215 (Win7) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная версия - последняя, которая нормально работает на windows7
+Adobe Photoshop 2020 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6532C1F15F585E49204B10A29CFD5BF76172B1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 155040   (876857) от 23.02.2015
+
+Набор в релиз-группу категории "Игры" R.G. Games
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идёт набор в релиз-группу "R.G. Games"Специализация: Делаем раздачи игр, делаем репаки,
+ Интересуют и тестеры,(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992797   (876653) от 15.03.2016
+
+Холодное лето пятьдесят третьего (1987) DVDRip [H.264] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вскоре после смерти Иосифа Сталина в 1953 году Лаврентий Берия, всесильный министр НКВД, объявил широкую амнистию. Благодаря этой амнистии на свободе оказались отпетые уголовники, совершившие тяжкие преступления. Бесчинствуя в тайге, в поисках еды и средств передвижения, бандиты набредают на маленькую деревушку, в которой ожидают прибытия катера двое амнистированных (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Боевик, Драма, КриминалРежиссер: Александр ПрошкинАктеры: Валерий Приемыхов, Анатолий Папанов, Виктор Степанов, Нина Усатова, Зоя Буряк, Юрий Кузнецов, Владимир Кашпур, Владимир Головин, Андрей Дударенко, Сергей Власов, Борис Плотников, Виктор Косых и др.Продолжительность: 01:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8F98203A99CB5AB0438023C374C2F28EB5B4BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997164   (876575) от 15.03.2016
 
 V-Ray 3.30.04 for 3ds Max 2016 [En]
@@ -6,7 +164,7 @@ V-Ray 3.30.04 for 3ds Max 2016 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876575.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876571.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Windows 8.1 (x86/x64) +/- Office 2016 32in1 by SmokieBlahBlah 14.03.16 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876564.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>34
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876561.jpg" />
 </div>
 
 
@@ -115,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876560.jpg" />
 </div>
 
 
@@ -141,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876502.jpg" />
 </div>
 
 
@@ -167,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876499.jpg" />
 </div>
 
 
@@ -193,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876497.jpg" />
 </div>
 
 
@@ -219,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876299.jpg" />
 </div>
 
 
@@ -245,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876220.jpg" />
 </div>
 
 
@@ -271,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876214.jpg" />
 </div>
 
 
@@ -297,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876211.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ Bes - Подкаст "NEUROPUNK" (2007-2020) [MP3|128-320 kbps]<Drum & Bass, Neu
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876195.jpg" />
 </div>
 
 
@@ -352,7 +510,7 @@ Windows 10 PE (x86/x64) by Ratiborus v.2.2020 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876189.jpg" />
 </div>
 
 
@@ -379,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876180.jpg" />
 </div>
 
 
@@ -405,7 +563,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (20200407) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876170.jpg" />
 </div>
 
 
@@ -431,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875995.jpg" />
 </div>
 
 
@@ -458,7 +616,7 @@ Ubuntu 16.04.2 LTS Xenial Xerus [i386, amd64] 2xDVD, 2xCD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875873.jpg" />
 </div>
 
 
@@ -486,7 +644,7 @@ AusLogics BoostSpeed 9.1.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875872.jpg" />
 </div>
 
 
@@ -512,7 +670,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.02.16 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875871.jpg" />
 </div>
 
 
@@ -523,165 +681,6 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.02.16 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC811091B4333E589F0D1D65340942096177BFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 123095   (875870) от 17.02.2017
-
-Ленокс Люис / Lennox Lewis [вся карьера] (1983-2003) TVRip [En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все бои Леннокса Люиса с 1983 до 2003 (включая бои с олимпийских игр 1984 - 1988 годов) + очень итересные интервю с драками (с Тайсоном и Хасимим Рахманом)!
-Качество различное (старые бои похуже, новые получше)
-Он один из самых сильных боксёров тяжоловесов за всю историю бокса.Жанр: СпортПеревод: нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246C6A7ECBBAB8C198FD6A1BE2B72C07CB97CAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105237   (875868) от 17.02.2017
-
-HitmanPro 3.7.15 Build 281 [x64] [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hitman Pro обнаруживает, идентифицирует и удаляет вирусы, шпионские программы, трояны, руткиты и другие вредоносные программы.
-Утилита использует собственный движок поведенческого анализа и экспертизы файлового кластера, а также инновационную облачную технологию проверки с помощью антивирусной базы данных SophosLabs. Сканер HitmanPro обнаруживает и удаляет потенциально (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3BAADBDCD196BB1F7B4233FD925721AA34F593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105701   (875864) от 17.02.2017
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86) RePack by SPecialiST v17.2 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFD96453339209681493597BDD69710EB2E55C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105307   (875859) от 17.02.2017
-
-Tales of Berseria (2017) [Ru/Multi] (1.48.00/dlc) License CPY
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875859.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Tales of Berseria вы отправитесь в путешествие в поисках себя. Станьте Велвет — в прошлом любящей и доброй девушкой, в сердце которой теперь пылает ненависть. Все изменилось, когда с ней случилась ужасная трагедия, произошедшая за три года до начала действия игры Tales of Berseria.Тип издания: LicenseРазработчик: Bandai Namco GamesЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E4D03F95E28FD969C5D183FE034599CE978C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 823003   (875857) от 17.02.2017
-
-Panzar: Новый рассвет (2012) [Ru/En] (42.8) License
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Panzar – бесплатная клиентская онлайн-игра в фентезийном стиле, где игрокам придется сразиться в битвах на аренах. В игре представлены четыре расы: люди, орки, гномы и эльфы, каждая из которых имеет по 2 класса: паладин и инквизитор, канонир и сапер, танк и берсерк и заклинатели огня и льда от расы эльфов.Тип издания: LicenseРазработчик: Panzar StudioЖанр: MMORPG, MOBA, ActionЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB72071C57A50EAD49A61414735DBF556CFE8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104981   (875856) от 17.02.2017
-
-iGO Primo NextGen 9.18.27.687519 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационное ПО iGO Primo NextGen (Israel) версии 9.18.27.687519Тип издания: ПираткаРелиз состоялся: 26.01.2017Разработчик: NNGПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9EEFCBC55B409CC471D88608DE7172651F4E20
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 1428576   (178203) от 04.12.2020
-
-Е.В. Захаров и др. | Уравнения математической физики (2010) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178203.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике представлен материал для первоначального изучения уравнений математической физики: даны математические постановки задач для уравнений в частных производных (теплопроводности, Лапласа, волнового); приведены доказательства теорем единственности, существования и устойчивости их решений; описаны методы построения решений.
-Для студентов высших учебных заведений.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6ED25F9371A1D0157008EB20071B3CE35C5F3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666808   (178199) от 06.10.2023
-
-Ю.Е. Верёвкин | Усилительно-Преобразовательные устройства (1976) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178199.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дан подробный анализ электрических схем, выполненных на полупроводниковых приборах и электронных лампах. Особое внимание уделено физическим процессам, происходящим в электрических схемах. Приведенный математический аппарат позволяет производить расчеты параметров различных каскадов. Единая методика построения и анализа электрических схем способствует легкому (   Читать дальше...   )Жанр: ЭлектроникаИздательство: СудостроениеФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66B41601B7B74BA341394359F8B8F4351F108E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428711   (178162) от 04.12.2020
-
-С.М. Аполлонский и др. | Электрические аппараты управления и автоматики (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие разработано на основании государственных образовательных стандартов высшего профессионального образования и предназначено для студентов заочной и очно-заочной форм обучения, изучающих электрические аппараты управления и автоматики по направлениям подготовки «Электроэнергетика и электротехника», «Автоматизация технологических процессов и производств», (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA9B185B3CCBD6483C6254712C607AEDE76450B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428972   (178160) от 04.12.2020
-
-Светлана Ульянова, Илья Сидорчук | Пагубные страсти населения Петрограда–Ленинграда в 1920-е годы. Обаяние порока (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поведение, не принимаемое обществом или законом, существует в любом социуме. Проблемы наркомании, алкоголизма, проституции и прочие пагубные страсти являются частью массовой культуры и предметом научного изучения. Книга посвящена асоциальным и нетрадиционным формам свободного времяпрепровождения жителей Петрограда—Ленинграда в 1920-е годы. Этот период выбран не случайно. (   Читать дальше...   )Жанр: Культурология, Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED5AD639E018E018E4CEEA744E921F1D9E8FDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428772   (178153) от 04.12.2020
-
-М.П. Тропин | Основы прикладной алгебры (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178153.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособие вошли такие разделы, как целые числа, элементы общей алгебры, общая теория многочленов, расширения полей, конечные поля, многочлены над конечными полями, эллиптические кривые. Эти разделы играют важную роль в приложениях. Уровень сложности изложения невысокий, однако предполагается, что читатель имеет математическую подготовку. В конце каждой главы предлагаются (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C62D67E7006C1F397A32DCB61782FE9CCF6455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666884   (178135) от 06.10.2023
 
 Б.П. Левитт (ред.) | Физическая химия быстрых реакций (1976) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178135.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178121.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177939.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177847.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177839.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177814.jpg" />
 </div>
 
 
@@ -295,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177793.jpg" />
 </div>
 
 
@@ -321,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177787.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177673.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177669.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177595.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177579.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177427.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177417.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177394.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177386.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177376.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177250.jpg" />
 </div>
 
 
@@ -610,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177248.jpg" />
 </div>
 
 
@@ -637,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177192.jpg" />
 </div>
 
 
@@ -664,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177040.jpg" />
 </div>
 
 
@@ -676,6 +545,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9A35AFA16E2824078A9E8EED6AD4BFEE77862B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427584   (177020) от 05.12.2020
+
+Рудольф Сворень | Электроника шаг за шагом (2020) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга подготовлена на базе второго расширенного издания, вышедшего в 1986 году. Основная (учебная) часть оставлена почти без изменений. Для привязки к современным реалиям и терминологии книга дополнена комментариями, а также «Практикумом» на основе современных компонентов.
+Для широкого круга любителей электроники.Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD86C309009BE9AE15F94165AB4AB0E7CAEEBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594788   (176957) от 02.12.2022
+
+Э. Альтон, Д. Альтон | Полный медицинский гид по выживанию. Скорая помощь в любой экстремальной ситуации (2022) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наиболее полный медицинский гид по выживанию, в котором вы найдете все: от распознавания симптомов аппендицита до алгоритма действий при возникновении ЧС с множеством жертв.
+
+Эта уникальная медицинская книга призвана помочь обычному человеку справиться с травмами и болезнями в ситуациях, когда современные медицинские учреждения и специалисты недоступны.
+Книга написана (   Читать дальше...   )Жанр: Медицина и здоровьеПеревод: А. МеркуловаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C0DBF0A630C0517B72E604C6054BD4F5371ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429545   (176618) от 06.12.2020
+
+Сесил Рот | Иудеи в Венецианской республике. Жизнь в условиях изоляции (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сесил Рот – известный британский исследователь и крупнейший специалист по истории евреев, автор многих трудов по названной теме, представляет венецианскую жизнь еврейской общины XV—XVII вв. Основываясь на исторических исследованиях и документальных материалах, Рот создал яркую, интересную и драматичную картину повседневной жизни евреев в Венецианской республике на (   Читать дальше...   )Жанр: Культурология, Популярно об историиПеревод: Л.А. ИгоревскийФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B020E4CC2F2351E6FF96537E52583262315700F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429530   (176608) от 06.12.2020
+
+Григорий Нарек | Тридцать дней в красной зоне. Заметки врача (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пандемия COVID-19 застала врасплох весь мир. Мы попали в заложники к непонятному вирусу, не готовые к такому развитию событий. На передовой всеобщего хаоса оказались врачи, которые на ходу вырабатывали методы лечения и помогали дышать заболевшим. За героическим образом врача, однако, стоит обычный человек, думающий о семье, любящий пошутить и при этом испытывающий (   Читать дальше...   )Жанр: Медицина и здоровье, Истории из жизниФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C2715DC5A4B3AA5C141E49B9DD61CCFB945B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429270   (176604) от 06.12.2020
+
+Фридрих Ницше | Человеческое, слишком человеческое (2016) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176604.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Человеческое, слишком человеческое» – произведение, важное с точки зрения развития творчества Ницше. В нем он переосмысливает значение своих идеалов и отказывается от них, разочаровывается в трудах своих кумиров. Ницше ищет свободу и освобождение от прописных истин и постепенно приходит к тем неординарным и эксцентричным мыслям, по которым мы его знаем в произведениях (   Читать дальше...   )Жанр: ФилософияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEA57DE9BE8D2A71B3F323979D9D6CD427C78E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 947468   (420548) от 16.10.2015
+
+Генрих Бурмин | Штурм абсолютного нуля (1989) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о том, как физики, проникнув в область температур вблизи абсолютного нуля, открыли замечательное свойство вещества — сверхпроводимость. В ней рассказывается о выдающемся достижении современной физики — высокотемпературной сверхпроводимости, о применении сверхпроводников в технике и промышленности, об ученых — творцах этой области науки.Жанр: Детская познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19835C2623B86672EF184883DEE934E60FD8197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947236   (420538) от 16.10.2015
+
+А. Федэ | Живем весело! (1928) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самодельные игрушки для маленьких.Жанр: Сделай СамФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CFD7617204EF9A143DFF99446169530659332A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947458   (420524) от 16.10.2015
 
 Лев Гумилевский | Создатели двигателей (1960) [FB2]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420524.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420514.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420450.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420381.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420289.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420281.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420225.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419882.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419828.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419518.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419424.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419154.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419138.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419081.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418989.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418759.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418539.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418447.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418264.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418202.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417916.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417805.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417804.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417759.jpg" />
 </div>
 
 
@@ -634,61 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAEAC96A8D660A3F53A27F229D03B2C53FAA7619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947690   (417683) от 17.10.2015
-
-С. А. Матвеев, Д. Л. Абрагин (сост.) | Красавица и чудовище. Золушка. Спящая красавица. Рапунцель. Волшебная лампа Аладдина / The Beauty and the Beast. Cinderella. The Sleeping Beauty. Rapunzel. Th ...
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417683.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящий сборник вошли самые известные и любимые волшебные сказки: «Красавица и чудовище», «Золушка», «Спящая красавица», «Рапунцель» и «Волшебная лампа Аладдина». Тексты произведений сокращены, адаптированы для начинающих изучать английский язык (уровень 1 – Elementary) и снабжены комментариями, объясняющими значение различных словосочетаний. Также каждая сказка (   Читать дальше...   )Жанр: Сказки, английский языкФормат: FB2, RTF, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D254EBDC93F709EA289079DAA7D9C4A258C39F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959721   (417651) от 29.09.2020
-
-Анастасия Петрова, Ирина Орлова | Самый лучший самоучитель английского языка (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами переработанное издание одного из лучших самоучителей по английскому языку известного педагога и методиста А.В.Петровой.
-Книга поделена на 3 части:
-"Экспресс-курс английского языка" - кратко и систематизировано дается основной грамматический и словообразовательный материал;
-"Сборник упражнений" - содержит упражнения к урокам экспресс-курса, (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89F9CF691108B9EA62B7CB30BDA0F75162E0164
 ```
 
 https://mybot314.ru/tekegram_catalog/

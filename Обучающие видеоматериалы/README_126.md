@@ -1,3 +1,31 @@
+###  Публикация: 908770   (629464) от 16.06.2015
+
+Яндекс.Events | OWASP Russia Meetup (2014) CamRip [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629464.jpg" />
+</div>
+
+
+###  Подробнее
+
+OWASP Russia Meetup — встреча российского сообщества специалистов по информационной безопасности. Мероприятие будет интересно как опытным безопасникам, так и тем, кто хочет ближе познакомиться с этим направлением.
+
+OWASP объединяет крупные компании, образовательные организации и частных лиц со всего мира. Участники сообщества пишут статьи и учебные пособия, создают (   Читать дальше...   )Жанр: Компьютерная безопасностьПродолжительность: 02:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992D0803DF67F51B08EAF8E9324A41C277247F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521222   (629089) от 10.07.2012
 
 А. Сидоров | Готовим дичь c Максимом Тарусиным [2007] DVDRip
@@ -6,7 +34,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629089.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628967.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628653.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Mike Dolce | UFC FIT (2013) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627146.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ LendWings | Все секреты SQL. SQL Injection Master Course (2014) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627029.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ Shaun T | Shaun Week: Insane Focus (2017) DVDRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627014.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627009.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627004.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626918.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625192.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625175.jpg" />
 </div>
 
 
@@ -306,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623508.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623506.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ Mike Donavanik | HIIT Workout (2016-2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623266.jpg" />
 </div>
 
 
@@ -387,7 +415,7 @@ Lynda.com | Создание отзывчивого веб-дизайна / Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623180.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623166.jpg" />
 </div>
 
 
@@ -440,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622047.jpg" />
 </div>
 
 
@@ -469,7 +497,7 @@ Allegorithmic, What's New in Substance Designer 5, Wha's New in Substance Painte
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621886.jpg" />
 </div>
 
 
@@ -495,7 +523,7 @@ Levelup.Digital, Daniel Thiger | Plaster Wall with Parameter-driven Bullet Holes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621876.jpg" />
 </div>
 
 
@@ -521,7 +549,7 @@ Shane Hurlbut | Cinematography Starter Kit (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621747.jpg" />
 </div>
 
 
@@ -547,7 +575,7 @@ ProfIT | Современные PHP-фреймворки (2017) PCRec [H.264/720
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620511.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620427.jpg" />
 </div>
 
 
@@ -601,7 +629,7 @@ Udemy, Nexttut, Alejandro Aguilar | Making a Fantasy Axe in Blender 3.1 and Subs
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619783.jpg" />
 </div>
 
 
@@ -628,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619675.jpg" />
 </div>
 
 
@@ -654,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619605.jpg" />
 </div>
 
 
@@ -667,35 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBA7682F9FB8EEBBFB68C71F731F01BF47E94301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230056   (618678) от 10.06.2018
-
-Алексей Гайдин | Работа со вспышками. Практика (2018) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 30 приёмов съёмки с искусственным светом.
-Выжимаем локации до дна!
-Зачастую, самая большая головная боль на съемке –– это идеи.
-Уже 10-й раз видишь примерно одну и ту же съемочную площадку, примерно один и тот же свет на улице. Локациями никого не удивишь, поэтому возникает вопрос: как снимать в них интересно и разнообразно? Не просто отражать свет от стеночки (   Читать дальше...   )Жанр: Съемка фотоПродолжительность: 02:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF720462E59EF2B9679B00699633045D615A7258
 ```
 
 https://mybot314.ru/tekegram_catalog/

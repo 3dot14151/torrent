@@ -1,3 +1,81 @@
+###  Публикация: 1376777   (857016) от 19.04.2020
+
+Кристальный человек / Хрустальный портрет / Shui jing ren / Portrait in Crystal (1983) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лонг Фей, скульптор, который создает фигурки из кристалла. В качестве материала для своих скульптур он использует какой-то особый кристалл, который по легенде обладает необычными свойствами: если на него пролить кровь, то скульптура превращается в некое подобие злого духа. Естественно, узнав об этом, Лонг Фей не поверил и решил поэкспериментировать. Злой дух не заставил (   Читать дальше...   )Производство: Гонконг / Shaw BrothersЖанр: Ужасы, боевик, детективРежиссер: Шан ХуаАктеры: Джэйсон Пай, Юк Лау, Сзу-Чиа Чен, Ка Сэнг Чэн, Хань Чианг, Хуанг Чин, Уинг Чунг, Хань Чоу Хо, Ю Лун Сяо, Сан Нэм ХунгПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82CA1B54BD87F520796A64C872104F40B2ED848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376790   (856906) от 19.04.2020
+
+Потому что я люблю тебя / Saranghagi ttaemune / Because I Love You (2017) WEBRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856906.jpg" />
+</div>
+
+
+###  Подробнее
+
+И-хён — талантливый поэт-песенник, но после несчастного случая ему приходится открыть в себе совершенно новое призвание. Будучи неспособным вернуться в собственное тело парень раз за разом переносится в тела других людей самых разных возрастов и полов. У всех этих людей есть одна общая черта: они несчастны в любви, хотя до победы в реальности всего пара шагов. И-хён (   Читать дальше...   )Производство: Южная Корея / AD406, Next Entertainment WorldЖанр: Мелодрама, фэнтезиРежиссер: Чу Джи-хонАктеры: Чха Тхэ-хён, Ким Ю-джон, Со Хён-джин, Лим Джу-хван, Ким Юн-хе, Пак Кын-хён, Сону Ён-нё, Сон Дон-иль, Пэ Сон-у, О На-раПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A05D7D287FF58C0DE0EBDDCDE1A00CD4DAA6E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376792   (856764) от 19.04.2020
+
+Наркобарон / Ma-yak-wang / The Drug King (2018) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корея 70-х — страна возможностей. Мелкий пусанский барыга, торгующий золотыми часами, однажды перевозит партию наркотиков в Японию. Там он узнаёт, что после войны в стране восходящего солнца не уменьшается спрос на метамфетамины, а в Пусане — лучший климат для их изготовления. Подкупив кого только можно и организовав производство, наш герой начинает масштабный экспорт (   Читать дальше...   )Производство: Южная Корея / Hive Media, Showbox EntertainmentЖанр: Драма, криминал, биографияРежиссер: У Мин-хоАктеры: Сон Кан-хо, Чо Джон-сок, Пэ Ду-на, Ли Сон-мин, Юн Джэ-мун, Ким Со-джин, Ким Дэ-мён, Ли Хи-джун, Чо У-джин, Ю Джэ-мёнПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C584034EFBF786303D5AC65BD5080ED032A1AC9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498058   (855792) от 27.09.2021
 
 Дзокки / Zokki (2020) WEB-DLRip [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855792.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855785.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855192.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855071.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854803.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854706.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853660.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853642.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853548.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853149.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853051.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852640.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851946.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851940.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851899.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851896.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851893.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851888.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851886.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851882.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851737.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851150.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850165.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4890D2A62A1A04247A76F925EF972B643105E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377837   (850094) от 23.04.2020
-
-Мэй Ланьфан: Навсегда очарованный / Mei Lanfang (2008) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэй Ланьфан - известнейший артист пекинской оперы, исполнитель женских ролей. Имя его было на устах не только в Китае, но и за рубежом. 110 лет спустя с рождения артиста, с лёгкой руки Чэнь Кайгэ и Мэй Баоцзю - младшего сына и наследника творческих традиций Мэй Ланьфана - вышел на экраны фильм "Навсегда очарованный", где затронуты основные моменты жизни (   Читать дальше...   )Производство: Китай, Гонконг / China Film Group Corporation (CFGC), CMC Entertainment, Emperor Motion PicturesЖанр: Драма, биография, историяРежиссер: Чэнь КайгэАктеры: Леон Лай, Чжан Цзыи, Сунь Хунлэй, Чэнь Хун, Е Минчжу, Масанобу Андо, Би Яньцзюнь, Ли Бинь, Минчэнь Ли, Шенсу ЛиПеревод: Одноголосый любительский (Александр Буданов (13-е творческое объединение "Самоделкин")Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4394696D60DB9B18B9B96DA4C2A1C67842D1FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377785   (850008) от 23.04.2020
-
-Любовь похожа на прошедший дождь / Koi wa ameagari no you ni / After the Rain (2018) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то Акира Татибана была спортсменкой, подающей большие надежды. Однако травма положила конец её карьере в лёгкой атлетике, которая едва успела начаться. Сейчас 17-летняя Акира — обычная старшеклассница, которая подрабатывает в семейном ресторане и влюбляется в его менеджера Масами Кондо. Всё бы ничего, но Масами — 45, он разведён и у него есть взрослый сын.Производство: Япония / AOI Promotion, East Japan Marketing & Communications Inc., GyaOЖанр: Драма, мелодрама, спортРежиссер: Акира НагаиАктеры: Нана Комацу, Ё Оидзуми, Нана Сэйно, Хаято Исомура, Сёно Хаяма, Хонока Мацумото, Майка Ямамото, Мари Хамада, Ё Ёсида, Сигэюки ТоцугиПеревод: Многоголосый любительский (3df_voice)Субтитры: Русские - отдельным файломПродолжительность: 01:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCC035743F6CCF426945D5B8E30D93392A50237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377822   (850006) от 23.04.2020
-
-Касанэ / Kasane (2018) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850006.jpg" />
-</div>
-
-
-###  Подробнее
-
-В день похорон матери, знаменитой и красивой актрисы, к Касанэ Фути подходит менеджер покойной и приглашает в театр. Там девушка смотрит выступление симпатичной, но совершенно бесталанной актрисы Нины Тандзавы, а после менеджер устраивает им встречу. У Касанэ есть не только шрам на пол-лица, но доставшиеся от матери актёрский талант и волшебная губная помада, с помощью (   Читать дальше...   )Производство: Япония / Fuji Television Network, Kyodo Television, KоdanshaЖанр: Драма, фэнтезиРежиссер: Юити СатоАктеры: Тао Цутия, Кёко Ёсинэ, Таданобу Асано, Рэи Дан, Ю Ёкояма, Марико Цуцуи, Томоко Икута, Кунио Мураи, Маколей КаллардПеревод: Двуголосый любительский (TAKEOVER)Субтитры: Английские - отдельным файломПродолжительность: 01:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC2E50616BC62E3B455CCF155E7DCEC0271F159
 ```
 
 https://mybot314.ru/tekegram_catalog/

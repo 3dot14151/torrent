@@ -6,7 +6,7 @@ History Channel: Вселенная. Бог и Вселенная / The Universe
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596864.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DV:  Невероятное вокруг нас. Взгляд в космос [1
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596793.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596254.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ History Channel. Реальные монстры / True Monsters (2015) HDTVRip 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596155.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery. Стальные парни / Steel Buddies (2014) HDTVRip [Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595992.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595965.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC. Horizon: В поисках бессмертия / The Immortalist (2016) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595702.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BBC: Выдающиеся женщины ХХ столетия. Индира Г�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595581.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595513.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BBC: Выдающиеся женщины ХХ столетия. Коко Шан�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595457.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595451.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NGW: Гризли Аляски бросают вызов. Короли остр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595005.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594602.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594545.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Discovery. Разгаданные тайны Библии / Biblical Mysteries E
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594518.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Discovery. Аляска: последний рубеж / Alaska: The Last Fronti
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594488.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Discovery. Аляска: последний рубеж / Alaska: The Last Fronti
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594485.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Discovery. Аэропорт изнутри / Airport from within (2015) HDTV [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594198.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NGW: В поисках таинственного зверя / Search for the Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593547.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593271.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Discovery. Пчелиный король / Bee Czar (2022) WEBRip [H.264/1080p-L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593266.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593114.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592989.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592969.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NGW: Змеи в городе / Snakes in the city (2015-2017) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592877.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592838.jpg" />
 </div>
 
 

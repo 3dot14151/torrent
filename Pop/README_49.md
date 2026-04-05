@@ -1,182 +1,3 @@
-###  Публикация: 1366507   (922240) от 12.03.2020
-
-Mandy Moore - Silver Landings (2020) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’d Rather Lose (03:45)
-02. Save A Little For Yourself (03:39)
-03. Fifteen (04:09)
-04. Tryin' My Best, Los Angeles (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23D45153915BAE068BE31299C058764BC4BA882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288505   (921857) от 29.01.2011
-
-Горячие головы - Дискография (2000-2006) [MP3|320 kbps]<Pop,Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop,DanceПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C73913C6207325A59FBED0B98A03FF491B980D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864075   (921623) от 28.01.2015
-
-VA - Лучшие новинки радиоэфира vol.1 (2014) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Так мало выходит сегодня приличных сборников российской попсы.Тем неожиданней эта компиляция, выпущенная "Квадро Диск Украина".
-За простеньким (даже несколько не затейливым оформлением) Вы услышите действительно треки и которые не сходят с эфиров, и которые промелькнули почти не замеченными, и те которые может быть кто-то пропустил.
-Особенно хороши два (   Читать дальше...   )01. Григорий Лепс и Ани Лорак - Зеркала  (3:49)
-02. Виа Гра  - Перемирие  (3:44)
-03. Пицца - Оружие  (3:29)
-04. Светлана Тарабарова - Мы верим в любовь  (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC811BFFE90758C653B397E3DA8AF536571B954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288535   (921587) от 29.01.2011
-
-Lara Fabian - Best Of (2CD, Edition Limitee) (2010) [FLAC|Lossless]<Pop, French pop, Adult contemporary>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921587.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. On S'Aimerai Tout Bas (Inйdit)  (4:02)
-02. Je T'Aime  (4:23)
-03. Tout  (4:17)
-04. Si Tu M'Aimes (3:30)
-05. Humana (5:39)
-06. La Diffйrence  (4:15)
-07. Pas Sans Toi  (4:45)
-08. Tu T'En Vas (3:47)
-09. Je Suis Malade  (4:24)(   Читать дальше...)Жанр: Pop, French pop, Adult contemporaryПродолжительность: 02:08:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988324   (920556) от 20.02.2016
-
-Фристайл плюс - Хиты и звёзды (2010) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Виталий Козловский - Больно, мне больно
-02.Фристайл и Нина Кирсо - А я тебя любила
-03.Триши - Завтра
-04.Фристайл и Сергей Кузнецов - Белая акация(   Читать дальше...   )Жанр: PopПродолжительность: 02:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3076C3B2857D3C0EDFEE97E4D5CCF343BE2BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988415   (920553) от 20.02.2016
-
-Sade - The Best Of Sade (1994) Compilation [FLAC|Lossless|image + .cue] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Love Is King (3:41)
-02. Hang On To Your Love (4:33)
-03. Smooth Operator (4:21)
-04. Jezebel (5:31)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7FA12F604DB8794CC16A7FB47FB39508830C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366817   (920140) от 13.03.2020
 
 VA - Eurodisco 80's Maxi Hits & Remixes Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
@@ -185,7 +6,7 @@ VA - Eurodisco 80's Maxi Hits & Remixes Vol.1 (2020) [FLAC|Lossless|WEB-DL|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920140.jpg" />
 </div>
 
 
@@ -214,7 +35,7 @@ Bjork - Vulnicura (2015) [FLAC|Web-Dl|Lossless]<Pop, Experimental>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920051.jpg" />
 </div>
 
 
@@ -243,7 +64,7 @@ VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919386.jpg" />
 </div>
 
 
@@ -272,7 +93,7 @@ Andromeda - Star Ship/Shooting Star (1978) 7" [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919211.jpg" />
 </div>
 
 
@@ -299,7 +120,7 @@ Iowa - Remixes (2016) EP [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919074.jpg" />
 </div>
 
 
@@ -328,7 +149,7 @@ Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918996.jpg" />
 </div>
 
 
@@ -357,7 +178,7 @@ VA - 90s Guitar Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918969.jpg" />
 </div>
 
 
@@ -386,7 +207,7 @@ Arabesque - The Magic of Arabesque (2016) [MP3|320 kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918959.jpg" />
 </div>
 
 
@@ -415,7 +236,7 @@ Boney M. - Their Most Beautiful Ballads (2000) [FLAC|Lossless|image + .cue] <Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918882.jpg" />
 </div>
 
 
@@ -444,7 +265,7 @@ Arabesque - The Magic of Arabesque (2016) [FLAC|Lossless|tracks + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918806.jpg" />
 </div>
 
 
@@ -473,7 +294,7 @@ VA - 80's Gold (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918763.jpg" />
 </div>
 
 
@@ -502,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917672.jpg" />
 </div>
 
 
@@ -531,7 +352,7 @@ Olivia Holt - Olivia (2016) EP [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917628.jpg" />
 </div>
 
 
@@ -558,7 +379,7 @@ Yumi Zouma ‎ - Willowbank (2017) Japanese Edition [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917487.jpg" />
 </div>
 
 
@@ -587,7 +408,7 @@ VA - Pure... Brazil (2010) Box Set, 4CD [FLAC|Track+.cue]<Dance, Pop, Jazz, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917388.jpg" />
 </div>
 
 
@@ -616,7 +437,7 @@ VA - Rock 'n Roll Party Hit Mix (1995) [FLAC|Lossless|tracks + .cue] <Rock & Rol
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917239.jpg" />
 </div>
 
 
@@ -645,7 +466,7 @@ VA - Greatest Rock'n'Roll Party (2004) [FLAC|Lossless|image + .cue] <Rock & Roll
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917237.jpg" />
 </div>
 
 
@@ -674,7 +495,7 @@ VA - 80's Gold (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917231.jpg" />
 </div>
 
 
@@ -703,7 +524,7 @@ VA - The Disco Box (1999) Compilation, 4CD [FLAC|Lossless|tracks] <Funk, Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917227.jpg" />
 </div>
 
 
@@ -732,7 +553,7 @@ VA - В десяточку! 1-15, 17 (16 CD) (1995-2004) [MP3|320 кб/с]<Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917210.jpg" />
 </div>
 
 
@@ -746,6 +567,186 @@ VA - В десяточку! 1-15, 17 (16 CD) (1995-2004) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8CC3092E126F6185A562D33C73A74AA3FEBE46F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989273   (917151) от 22.02.2016
+
+Mimi Page - Breathe Me In (2012) [MP3|320 кб/с] <Alternative Pop, Dream Pop, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Vanilla Sky
+02. Black Valentine
+03. Colorblind
+04. All I Need(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2924F0D8B2643F9FD6860EFD5CA937D45EE706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989260   (917110) от 22.02.2016
+
+Mimi Page - The Ethereal Blues (2015) [MP3|320 кб/с] <Alternative Pop, Dream Pop, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917110.jpg" />
+</div>
+
+
+###  Подробнее
+
+На творчество талантливой и востребованной исполнительницы, автора музыки и текстов оказали влияние такие мэтры, как Nine Inch Nails, Tori Amos, Radiohead, Thomas Newman и Enya.01. Singing in the Dark
+02. The Way
+03. Human Hurricane
+04. Hold Me(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FFB05A654574F6F1B08E8BB8403121D0B02D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289548   (916857) от 01.02.2011
+
+VA - Золотая русская коллекция. Облака в реке (2005) [MP3|320 kbps]<retro, pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ВИА Синяя птица - Клён (Ю.Акулов-Л.Шишко)
+02. ВИА Самоцветы - Салют (В.Пресняков, Ю.Маликов-Б.Салибов)
+03. ВИА Норок - О чём плачут гитары (М.Долган-рус.яз.В.Сундеев)
+04. ВИА Сябры - Печки-лавочки (О.Иванов-А.Поперечный)
+05. ВИА Поющие сердца - Вот какая беда (Б.Савельев-И.Кохановский)
+06. ВИА Самоцветы - Али-Баба (В.Пресняков, Ю.Маликов-И.Шаферан)
+07. ВИА Пламя 2000 - Не надо печалиться (А.Экимян-Р.Рождественский)
+08. ВИА Поющие сердца - Облака в реке (А.Днепров-И.Кохановыский)
+09. ВИА Надежда - До отправления поезда (А.Пахмутова-Н.Добронравов)
+10. ВИА Верные друзья - Девятый класс (Б.Монастырский-Ю.Рыбчинский)(   Читать дальше...)Жанр: retro, popПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB882EA4EC00A8D2BDF311B71D9AF6B082A24DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989168   (916637) от 22.02.2016
+
+Shania Twain - 6 студийных альбомов и 2 сборника (1993-2007) [FLAC|Losless|image+.cue] <Country, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальная дискография Шанайи Твэйн по версии Википедии и Wikipedia:
+1. Shania Twain (20 апреля 1993)
+2. The Woman in Me (7 февраля 1995)
+3. Come on Over (4 ноября 1997)(   Читать дальше...   )Жанр: Country, Pop, RockПродолжительность: 09:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416905C4A69EDB019173946DCA0CBA3206C68C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988621   (916620) от 22.02.2016
+
+Юрий Антонов - Зеркало (1993) Unofficial Release [FLAC|Lossless|image + .cue] <Schlager, Pop Rock>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Зеркало 	03:40
+02. 	Не Забывай 	03:54
+03. 	Двадцать Лет Спустя 	03:39
+04. 	Вот Как Бывает 	03:25(   Читать дальше...   )Жанр: Schlager, Pop RockПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A8D67312CEAB5CDDE5B56BB1B1A9E55764AD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097276   (915710) от 26.01.2017
+
+Сергей Трофимов (Трофим) - Сорокапяточка (2011) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нет, Я Не Стал (3:20)
+ 02. Жми На Фузз (5:14)
+ 03. Во Облацех (2:19)
+ 04. Наблюдения Во Время Прогулки (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC161A3D61AB1E6F1A002C04E1A8C3448ECF0BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

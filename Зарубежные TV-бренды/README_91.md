@@ -6,7 +6,7 @@ NG. Нотр Дам: гонка против ада / Notre-Dame. Race Against t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358909.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Ужас в небесах / Terror in the Skies (2013) DVB (серии 1-4)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358902.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358765.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358760.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Animal Planet. Гангстеры дикой природы / Gangland Killers (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358750.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358555.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Неделя космоса / Space Week (2018) HDTVRip 720p [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358355.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: Международный аэропорт Дубай. Серия 10 / Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357946.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Американские Изобретатели / Invent It Rich (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357867.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357673.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG: Подъем "Коста Конкордии" / The Raising the Costa Concord
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357551.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357547.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Секретное оружие Японии / Japan's Secret Weapon (2009) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356296.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Atari: конец игры / Atari: Game Over (2014) BDRip [H.264/1080p]
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356289.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356142.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356141.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356129.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Discovery: Разрушители легенд. Опасное вождение 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355358.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG. Потерянные мумии Новой Гвинеи / Mystery Mummies of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354264.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG. Титаник: Роковой пожар / Titanic's: Fatal Fire (Titanic: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354142.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354063.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ BBC: Мари Тюссо. Восковая легенда / Madame Tussaud: A Le
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353700.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ BBC:Атлантика: Самый необузданный океан на Зе
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352889.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Discovery. Трамп: беспрецедентно / Unprecedented (2022) WEBRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352047.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NGW: Остров муссонов. Озерные охотники / Island of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351888.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NGW: Загадка гигантского пещерного паука / Myste
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350810.jpg" />
 </div>
 
 

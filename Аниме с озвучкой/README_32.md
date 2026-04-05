@@ -1,3 +1,134 @@
+###  Публикация: 832475   (409701) от 19.10.2014
+
+Towa no Quon / Вечность вечного [2011, MV, 6 из 6] BDrip 1080p Hi10p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в будущем. Среди людского рода начали рождаться люди со сверх-способностями и получили название — пробудившиеся. За ними однако охотится тайная организация Кестос, которая призвана сохранять порядок в человеческом обществе, считая пробудившихся потенциально опасными, они ищут их и уничтожают. Пробудившимся может оказаться любой человек. Им помогает молодой парень (которому уже более 1000 лет) по имени Куон, он же сильнейший из пробудившихся, и главная его цель — объединить всех его сородичей, (   Читать дальше...   )Жанр: приключения, фантастикаРежиссер: Уманосукэ Иида, Мори ТакэсиПродолжительность: 6 эп. ~48 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD73943057CB674860FF9C6DA6D94B2BC70495E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948740   (408930) от 21.10.2015
+
+Violence Jack: Jigoku Gai / Violence Jack: Evil Town / Жестокий Джек OVA-2 [1988, OVA, 1 эп] DVDRip 400p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408930.jpg" />
+</div>
+
+
+###  Подробнее
+
+После землятресения город "М" погреб под своим руинами всех его жителей, которых выжила только малая горстка. Изолировавшись друг от друга после кровопролитных междоусобных стычек они стараются выжить каждый в своем блоке. Джек как нормальный мужик присоединяется к группе где одни девушки и идет мочит других мужиков. Кровь, кишки, секас и все такое.Производство: ЯпонияЖанр: приключения, эротика, ужасыРежиссер: Итано ИтироЯзык субтитров: Русский (отключаемый)Продолжительность: 59 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0888FDC2C764125922CD8D5B5406F4E15A9D5CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948742   (408929) от 21.10.2015
+
+Violence Jack: Hell's Wind Hen / Violence Jack: Hell's Wind Chapter / Жестокий Джек OVA-3 [1990, OVA, 1 эп] DVDRip 384p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408929.jpg" />
+</div>
+
+
+###  Подробнее
+
+После падения метеорита, вызвавшего многочисленные стихийные бедствия и движения земной коры, цивилизация стремительно деградировала. Города лежат в развалинах; люди стремятся хоть как-то отстроиться и выжить (чему совсем не способствуют постоянные набеги бандитов).
+Мото-банды Ангелов Ада терроризируют мирных жителей, грабят, убивают и насилуют, и мало кто пытается (   Читать дальше...   )Производство: ЯпонияЖанр: приключения, эротика, ужасыРежиссер: Вада ТакуяЯзык субтитров: Русский (отключаемый)Продолжительность: 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7335E4D88DE958D6176C3277C7CDF6C5EFD453C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948739   (408927) от 21.10.2015
+
+Violence Jack: Harem Bomber Hen / Violence Jack: Slum King / Жестокий Джек OVA-1 [1986, OVA, 1 эп] DVDRip raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408927.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце ХХ века на Землю упал метеорит, вызвав многочисленные землетрясения, цунами и прочие стихийные бедствия. Большинство крупных городов Японии оказалось в руинах, в уцелевших населенных пунктах хозяйничают мародеры и стихийные воинские образования. Человек, именующий себя «Слам Кинг», претендует на единовластное правление в Канто. Однако, есть некто (или, быть (   Читать дальше...   )Производство: ЯпонияЖанр: приключения, эротика, ужасыРежиссер: Камидзё ОсамуЯзык субтитров: Русский (отключаемый)Продолжительность: 37 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512465B374A855A0ED7F40C78F764721CB8EBDFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401440   (406601) от 06.10.2020
+
+Пётр Гриль и время мудреца | Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time [2020, TV, 12 из 12] WEBRip 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пётр Гриль — сильнейший боец на континенте. Он встречается с красавицей по имени Любелия, и вроде бы всё хорошо, но есть одна проблема: Любелия до сих пор считает, что детей приносят аисты, если сильно молиться богам. И за два года отношений они дошли только до держания за руки. В то же время другие женщины, такие как две близняшки-огрихи, эльфийка и гоблинша — подруга (   Читать дальше...   )Производство: Студия WolfsbaneЖанр: комедия, эттиРежиссер: ТацумиЯзык озвучки: Русский закадровый (AniDub)Субтитры: Русские надписи, Русский, EnglishПродолжительность: 12 эпизодов по 13 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8065B61840866E1E37B2A7DE203387521EA6BED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561005   (406253) от 16.10.2012
 
 Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRip 1080p raw + rus x2
@@ -6,7 +137,7 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406253.jpg" />
 </div>
 
 
@@ -40,7 +171,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405344.jpg" />
 </div>
 
 
@@ -66,7 +197,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405125.jpg" />
 </div>
 
 
@@ -92,7 +223,7 @@ Saiyuuki Reload Blast / Saiyuki Reload Blast / Путь на запад: Взр�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402972.jpg" />
 </div>
 
 
@@ -118,7 +249,7 @@ Dive!! / Дайв!! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402221.jpg" />
 </div>
 
 
@@ -144,7 +275,7 @@ Knight's & Magic / Рыцари и Магия [2017, TV, 13 ep] WEB-DL 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401059.jpg" />
 </div>
 
 
@@ -170,7 +301,7 @@ Pokemon: Master Quest (5 season) / Покемон: Путь Мастера (5 с
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400642.jpg" />
 </div>
 
 
@@ -197,7 +328,7 @@ Clannad After Story / Кланнад. Продолжение истории / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400491.jpg" />
 </div>
 
 
@@ -225,7 +356,7 @@ Action Heroine Cheer Fruits | Героиня поддерживает фрукт
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400110.jpg" />
 </div>
 
 
@@ -253,7 +384,7 @@ Kaito x Ansa | Кайто и Анса [2017, TV, 12 из 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396342.jpg" />
 </div>
 
 
@@ -279,7 +410,7 @@ Ikemen Sengoku: Toki o Kakeru ga Koi wa Hajimaranai | Красавчики из 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396341.jpg" />
 </div>
 
 
@@ -305,7 +436,7 @@ Jikan no Shihaisha / Chronos Ruler / Повелители Времени [2017, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391639.jpg" />
 </div>
 
 
@@ -331,7 +462,7 @@ Isekai wa Smartphone to Tomo ni / In Another World With My Smartphone / В ин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391638.jpg" />
 </div>
 
 
@@ -357,7 +488,7 @@ Motto To Love-Ru: Trouble / Любовные неприятности (ТВ-2) [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391432.jpg" />
 </div>
 
 
@@ -385,7 +516,7 @@ Starship Troopers / Звездный десант [1988, OVA, 6 из 6] DVDRip r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388822.jpg" />
 </div>
 
 
@@ -411,7 +542,7 @@ Shingeki no Bahamut: Virgin Soul / Rage of Bahamut: Virgin Soul / Ярость �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388707.jpg" />
 </div>
 
 
@@ -437,7 +568,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e / Добро пожаловат�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386409.jpg" />
 </div>
 
 
@@ -463,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385186.jpg" />
 </div>
 
 
@@ -491,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384660.jpg" />
 </div>
 
 
@@ -517,7 +648,7 @@ Fruits Basket 2019 | Корзинка фруктов 2019 [2019, TV, 25 из 25]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382496.jpg" />
 </div>
 
 
@@ -544,7 +675,7 @@ Joker Game / Игра Джокера [2016, TV, 12 ep + 2 sp] WEB-DL 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381819.jpg" />
 </div>
 
 
@@ -555,139 +686,6 @@ Joker Game / Игра Джокера [2016, TV, 12 ep + 2 sp] WEB-DL 720p Raw+Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E79E510499F90F9F52012F1A4F4131685C3A97E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574891   (380958) от 07.09.2022
-
-Hyakuren no Haou to Seiyaku no Valkyria | The Master of Ragnarok & Blesser of Einherjar | Повелитель Рагнарёка и покровитель эйнхерий [2018, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юто Суо как никто другой знает, что некоторым городским легендам лучше оставаться легендами. Решив с подружкой проверить одну из них, он не ожидал, что попадет в иной мир — мир, пропитанный духом древних скандинавских легенд. Вместе со знаниями, полученными в школе, и смартфоном на солнечной батарее Юто предстоит привести к величию клан Волка, что некогда о нем позаботился. (   Читать дальше...   )Производство: EMT Squared / EMTスクエアードЖанр: приключения, фэнтези, романтика, эттиРежиссер: Кобаяси КосукэЯзык озвучки: Японский, русскийСубтитры: #1: Русские, ASS, Надписи+Полные |Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAEE4B52BDB41B0D6F732B4EE4E5A30FB06C5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572920   (380714) от 10.11.2012
-
-Koi Koi Seven / Koikoi 7 / Дружная семерка (2005, TV, 13 эп.) DVDrip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танака Тетсура вдали от родственников собрался получить хорошее образование. Но он не знал,
-что будет единственным парнем в школе для девочек, и что там есть девушка,
- по уши в него влюбленная и ждущая его приезда. Но его особая дружба с милашкой Асукой
-причина множества проблем с советом школьниц,(   Читать дальше...   )Жанр: комедия, романтика, этти, школаРежиссер: Фудзимото ЁситакаПродолжительность: ТВ, 13 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618DDA63EF04B2947991A75E5E754C662E9A4CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573037   (379682) от 10.11.2012
-
-Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / За облаками [2004, MV, 1 из 1] BDRip 1080p 10 bit raw + rus  x3
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно альтернативному варианту развития истории, после поражения во второй мировой войне Япония оказалась разделённой между союзниками - северный остров Хоккайдо аннексировал Советский Союз, а Хонсю и другими южными островами овладели американцы. Летом 1996 года Советы начали сооружать в своей зоне оккупации загадочное сооружение - башню столь исполинских размеров, (   Читать дальше...   )Жанр: Фантастика, романтика, драмаРежиссер: Синкай МакотоПеревод: KerОзвучка: STOP-KRANПродолжительность: 1 ч. 30 м.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51928F445EFA77630392DD463EA9C7974A29DC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575279   (374684) от 10.09.2022
-
-Призрак в доспехах / Kokaku Kidotai / Ghost in the Shell (1995) BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374684.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком 2029 году сети и компьютеры развились до того, что появилась возможность создавать высокотехнологичных киборгов с полной интеграцией в Сеть. Главная героиня Кусанаги Мотоко - киборг, с человеческим разумом внутри кибернетического тела, майор Девятого отдела, созданного для спецопераций правительства. В Сети объявляется некий Кукловод, манипулирующий людьми (   Читать дальше...   )Производство: Япония /  Production I.G.Жанр: аниме, фантастика, киберпанк, боевик, детектив, криминалРежиссер: Осии МаморуАктеры: Ацуко Танака, Акио Оцука, Коити Ямадэра, Ютака Накано, Тамио Оки, Тэссё Гэнда, Намаки Масакадзу, Масато Яманоти, Синдзи ОгаваПеревод: ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 01:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1583BA98678F6B84E7AB2E2C1341AD3A4EE1C999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916340   (374106) от 24.10.2015
-
-Durarara!!x2 Ten / Дюрарара!! 2 (сезон второй) [2015, TV, 12 ep] WEBRip 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Икэбукуро, один из самых веселых и опасных районов Большого Токио, живет по-прежнему – быстро, жестко и непринужденно. Это мир ярких огней, которые не мешают творить темные дела, мир равных возможностей, где бьют, не спрашивая паспорта, мир масок, где мало кто является тем, кем кажется. Иначе как дремучий провинциал смог поставить полгорода на уши, хрупкая певица (   Читать дальше...   )Жанр: приключения, мистика, повседневностьРежиссер: Омори ТакахироПеревод: AleX_MytHСубтитры: ASS, Встроенные, Полные | НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4256A4563EAAF5A30BAB86BA71BF792345E9FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

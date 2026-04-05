@@ -1,3 +1,61 @@
+###  Публикация: 1023707   (719727) от 07.06.2016
+
+Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Milan / Remastered [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Main Title 	2:40
+02. 	Terminator Arrival / Reese Chased / Sarah On Motorbike 	7:09
+03. 	Terminator Gets Guns / Search For Sarah 	1:13
+04. 	Reese Dreams Of Future War 	1:51(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671CE556654B703612F6A1D3D64EE453E1CC19AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218871   (719526) от 11.04.2018
+
+Dean Evenson & Peter Ali - Prayers on the Wind (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Beyond Time
+ 02 – Slot Canyons
+ 03 – Across Worlds
+ 04 – Misty Morning(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F76026964135330D2460AC4E8E4FF9C1B9541AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285058   (718953) от 27.02.2019
 
 VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Capoeira>
@@ -6,7 +64,7 @@ VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718953.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 6 (1990) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718929.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .c
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718926.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718916.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 9 (1994) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718914.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - The Most beautiful musical hits the songs of Andrew Lloyd Webber (Unknown) 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718805.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Vittorio Del Monaco - Histoires D'amour (1991) (2CD) [FLAC|Lossless|image + .cue
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718753.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Christophe Goze - A Day In Ibiza (2009) [APE|Lossless|image + .cue] <Easy Listen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718742.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718734.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718731.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ The Native American Chanters - Native American Chants & Dances - The Native Amer
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718719.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ At The Movies - The Soundtrack Of Your Life - Vol. 2 (2022) [FLAC|Lossless|image
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718654.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Anne Dudley - Искушение / Benedetta (2021) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718648.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Guitarras Virtuosas (2006) [MP3|320 kbps]<Instrumental, Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718545.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Tommy Emmanuel - Midnight Drive (1997) [FLAC|Lossless|image + .cue] <Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718542.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718539.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718325.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Or
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718142.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717916.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717915.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Or
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717914.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Unwind Piano Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717903.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Thomas Newman - Зеленая миля / The Green Mile (1999) [MP3|320 kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717501.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ V.A. - Die Hit-Giganten Best Of Ballads (2011) 3CD [FLAC|Lossless]<Pop, Rock>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717091.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ CD1 - 01:19:56 | CD2 - 01:19:21 | CD3 - 01:19:54Треклист CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9520A6FA9789EBE829EAFCBCD7A5F24EC499CF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285121   (716811) от 28.02.2019
-
-Kitaro - Tenku (1986) Remastered, 1997, DOMO [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tenku 4:14
- 02 - Romance 4:41
- 03 - Wings 5:20
- 04 - Aura 7:24(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3F4DBA4E106D0389388AA5DB6C1B54BBF75115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285352   (716679) от 28.02.2019
-
-Moreza - Fragrance (2019) [MP3|320 Kbps] <New age, Nuevo Flamenco, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fragrance (5:28)
-02.King Of Guitarras (feat. Lorenzo De Medici) (4:44)
-03.Love Story (4:29)
-04.Miss Guitar (5:42)(   Читать дальше...   )Жанр: New age. Nuevo Flamenco, ChilloutПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797DCAF72F5D0FA2A4E5DBE4E6947405FC56E3D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

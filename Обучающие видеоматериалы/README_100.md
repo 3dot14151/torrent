@@ -1,3 +1,32 @@
+###  Публикация: 1512533   (787057) от 25.11.2021
+
+Хасай Алиев | Истощение нервной системы - как восстановить. Метод Ключ (2021) WEBRip
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787057.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом вебинаре вы получите:
+1. Новый подход к пробуждению и засыпанию;
+2. Новые Приемы настройки при пробуждении на бодрость и высокую эффективность на целый день;
+3. Новые приемы настройки при засыпании (методика "Озарение по заказу");(   Читать дальше...   )Жанр: ПсихологияПродолжительность: 03:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00571EA3AB45C7BF6339FD40B8A89589A35F981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512460   (787051) от 25.11.2021
 
 Хасай Алиев | Как решать свои конкретные вопросы универсальным методом Ключ (2021) WEBRip
@@ -6,7 +35,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787051.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787042.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ ITVDN | Создание адаптивного сайта с  Bootstrap 3 (2016
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786946.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ ITVDN | Ruby Essential (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786931.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ Udemy | Bootstrap 4 From Scratch With 5 Projects (2018/06) PCRec [H.264] [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786822.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ Blender Cloud | Создание морского чёрта в Blender 2.81 / A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786547.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Victory3D | Создание игрового стимпанк пистолет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786514.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ Blender Cloud | Создание стилизованного персонажа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786505.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786473.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ top3travel | Самостоятельное путешествие в Рим (20
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786333.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ top3travel | Самостоятельное путешествие в Барсе
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786327.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ top3travel | Самостоятельное путешествие в Париж
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786318.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ top3travel | Самостоятельное путешествие в Итали
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786282.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ top3travel | Путешествие в Стамбул (2015) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786113.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785699.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785694.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785585.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785506.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Jillian Michaels | Tone and Shred (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785500.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ ITVDN | Онлайн курс Bootstrap 4 (2018) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785247.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ MonsterLessons, Александр Кочергин | Docker и Docker Compose -
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785044.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784708.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784696.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ Blender Cloud | Создание фэнтезийного фургона в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784463.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Udemy | git. Контроль версий для разработчиков (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784138.jpg" />
 </div>
 
 
@@ -669,33 +698,6 @@ Udemy | git. Контроль версий для разработчиков (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4AC46729319353290C959BF6C66ADF3A5014BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390073   (783618) от 13.06.2020
-
-Jose Salvatierra | The Complete Python Course - Learn Python by Doing (2020) [H.264/720p-LQ] [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный Курс Програмированния на Пайтон - Обучение Пайтону примерами. С онлайн академии Udemy.
-В этом курсе мы не только рассмотрим основы, но и проведем вас через создание нескольких реальных проектов, чтобы предоставить вам все необходимые инструменты и код, как профессионал. Это и есть фокус этого курса. Мы будем использовать Python для работы с файлами, электронными (   Читать дальше...   )Жанр: Программирование, PythonЯзык озвучки: АнглийскийПродолжительность: 35:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675E64841D6031C0EFFBDF8D899C5BDA97954A7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

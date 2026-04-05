@@ -1,32 +1,3 @@
-###  Публикация: 1671581   (171108) от 25.10.2023
-
-Rebrain | Онлайн-тренажер Prometheus by Rebrain  (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171108.jpg" />
-</div>
-
-
-###  Подробнее
-
-За 7 дней узнайте все о Prometheus
-Научимся:
-    ✅Устанавливать и настраивать систему мониторинга Prometheus.
-    ✅Разбираться в инцидентах и понимать причину, а также получать уведомления о неработоспособности серверов через мессенджеры.(   Читать дальше...   )Производство: RebrainЖанр: Онлайн-тренажерЯзык озвучки: РусскийПродолжительность: 03:14:00Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFADD4D87C1AF98E26FE7CB7A41FF333FD2FB567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825908   (170962) от 19.10.2025
 
 Skill.Im, Екатерина Нечипоренко | Visual Basic for Application для Excel. Курсы базовый, продвинутый и создание интерфейса (2019) PCRec [RU]
@@ -35,7 +6,7 @@ Skill.Im, Екатерина Нечипоренко | Visual Basic for Applicati
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170962.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170945.jpg" />
 </div>
 
 
@@ -89,7 +60,7 @@ Udemy, Георгий Черняк | Инженер тендерного отд�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170939.jpg" />
 </div>
 
 
@@ -115,7 +86,7 @@ Udemy, Martin Yanev, Plamen Yanev | The Complete Python Network Programming Cour
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170898.jpg" />
 </div>
 
 
@@ -141,7 +112,7 @@ Udemy, Nikita Sergeev | Аналитика в SPSS: от новичка до у�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170893.jpg" />
 </div>
 
 
@@ -168,7 +139,7 @@ JUG Ru Group | Joker 2021. Международная Java-конференци�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170761.jpg" />
 </div>
 
 
@@ -196,7 +167,7 @@ Softwaretesting, Арсений Батыров | Автоматизация те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170726.jpg" />
 </div>
 
 
@@ -223,7 +194,7 @@ Udemy, Anton Golosnichenko | Хуки React на практике [2021] (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170702.jpg" />
 </div>
 
 
@@ -249,7 +220,7 @@ Tocode | Курс по Vue.js 3 Практическое руководство 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170676.jpg" />
 </div>
 
 
@@ -276,7 +247,7 @@ Udemy, Роман Панёв | Kotlin с нуля + разработка при�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170667.jpg" />
 </div>
 
 
@@ -303,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170656.jpg" />
 </div>
 
 
@@ -332,7 +303,7 @@ Udemy, Murtez Alrohani | Модульное тестирование Node.js / N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170482.jpg" />
 </div>
 
 
@@ -360,7 +331,7 @@ JUG Ru Group | Mobius 2021 Moscow. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170209.jpg" />
 </div>
 
 
@@ -388,7 +359,7 @@ JUG Ru Group | DotNext 2021 Moscow. Конференция для .NET-разр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170188.jpg" />
 </div>
 
 
@@ -417,7 +388,7 @@ OTUS, Сурен Хоренян | Python-разработчик. Базовый 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170118.jpg" />
 </div>
 
 
@@ -443,7 +414,7 @@ JUG Ru Group | C++ Russia 2021. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170078.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ JUG Ru Group | SmartData 2021. Конференция по Data Engineering (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170034.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Podlodka Teamlead Crew | Коммуникации в команде и проц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169351.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169247.jpg" />
 </div>
 
 
@@ -553,7 +524,7 @@ Udemy, Alex Marshal | Java для начинающих 2020. С нуля до Ju
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169189.jpg" />
 </div>
 
 
@@ -582,7 +553,7 @@ Udemy, Илья Фофанов | Полное руководство по Python
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169131.jpg" />
 </div>
 
 
@@ -608,7 +579,7 @@ Skillbox, Александр Клейн | SQL-разработчик (2020) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168821.jpg" />
 </div>
 
 
@@ -636,7 +607,7 @@ Udemy, Глеб Михайлов | Data Science с Глебом Михайлов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168574.jpg" />
 </div>
 
 
@@ -663,7 +634,7 @@ Podlodka QA Crew | Сезон 2. Мобильное тестирование и 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168338.jpg" />
 </div>
 
 
@@ -689,7 +660,7 @@ Podlodka QA Crew | Карьерный рост и процессы тестир�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168247.jpg" />
 </div>
 
 
@@ -701,6 +672,32 @@ Podlodka QA Crew | Карьерный рост и процессы тестир�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA544EFFE697C2357E86DEAC5BABB69C3379B8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402924   (168165) от 12.12.2020
+
+OTUS | AWS для разработчиков (Часть 1-3) (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168165.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе сделан основной упор на выполнение практических задач в облачной системе AWS, с которыми может столкнуться программист / технический руководитель, как в малом стартапе, так и в большой компании. Подобные задачи включают в себя весь жизненный цикл становления проекта: от планирования архитектуры и выбора инфраструктуры, и заканчивая вводом системы в промышленную (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 41:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5791C3EBAA08DF5520D9681A1F084B3C8F1BB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

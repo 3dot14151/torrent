@@ -1,30 +1,3 @@
-###  Публикация: 992995   (899091) от 03.03.2016
-
-Федор Раззаков | Пуля для Зои Федоровой, или КГБ снимает кино (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба звезды советского кинематографа Зои Федоровой неординарна и противоречива, а ее убийство до сих пор не раскрыто.
-Арест как пособницы иностранному шпиону, положение дочери «врага народа», попытка самоубийства в лефортовском изоляторе, обвинение в шпионаже в пользу иностранных государств, долгие годы заключения в знаменитой «Владимирке» и блестящая творческая (   Читать дальше...   )Жанр: Биографии и Мемуары, Кино, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F155D9589F2B363929B42F0EBED8E5DC5DFB7140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100855   (897701) от 05.02.2017
 
 Павел Винклер | Всё о холодном оружии (2013) [PDF]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897701.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897397.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896808.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896396.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896392.jpg" />
 </div>
 
 
@@ -165,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895942.jpg" />
 </div>
 
 
@@ -193,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895693.jpg" />
 </div>
 
 
@@ -219,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895422.jpg" />
 </div>
 
 
@@ -245,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894871.jpg" />
 </div>
 
 
@@ -271,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894060.jpg" />
 </div>
 
 
@@ -297,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893665.jpg" />
 </div>
 
 
@@ -323,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893506.jpg" />
 </div>
 
 
@@ -349,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892156.jpg" />
 </div>
 
 
@@ -375,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891676.jpg" />
 </div>
 
 
@@ -402,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891312.jpg" />
 </div>
 
 
@@ -428,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891163.jpg" />
 </div>
 
 
@@ -454,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890920.jpg" />
 </div>
 
 
@@ -480,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890505.jpg" />
 </div>
 
 
@@ -506,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889749.jpg" />
 </div>
 
 
@@ -532,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889234.jpg" />
 </div>
 
 
@@ -560,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889220.jpg" />
 </div>
 
 
@@ -586,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888432.jpg" />
 </div>
 
 
@@ -614,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888230.jpg" />
 </div>
 
 
@@ -640,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888073.jpg" />
 </div>
 
 
@@ -668,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887949.jpg" />
 </div>
 
 
@@ -679,6 +652,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE47921DA7EAD9B1ABEEF177E9EE539F0EAD1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103195   (887464) от 11.02.2017
+
+Андрей Серков | История русского масонства после Второй мировой войны (1999) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателей книга является второй частью исследования по истории русского масонства с середины XIX века по настоящее время. Первая часть, вышедшая ранее, охватывала столетний период этой истории (1845-1945) и завершалась рассказом о возобновлении масонских работ в русских ложах Парижа по окончании Второй мировой войны, здесь же предполагалось (   Читать дальше...   )Жанр: ИсториографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FA4E38A7224D35272A00AF43418265303E539D
 ```
 
 https://mybot314.ru/tekegram_catalog/

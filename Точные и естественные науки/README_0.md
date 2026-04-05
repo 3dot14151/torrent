@@ -1,3 +1,83 @@
+###  Публикация: 1852201   (1055615) от 06.02.2026
+
+Ф.М. Морс, Г. Фешбах | Методы теоретической физики [2 книги] (1958 - 1960) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухтомный курс Ф. Морса и Г. Фешбаха занимает особое место в литературе по математической физике. Он написан физиками для физиков и инженеров и показывает в действии математические методы, наиболее успешно применяемые при изучении различных полей.
+В книге излагается ряд важнейших разделов современной математики в плане их применения к задачам физики и техники. Большим (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BC504AB07997E08DCD0FEDA7D66375C3B4A049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851305   (1055303) от 02.02.2026
+
+P. Grohs, M. Holler, A. Weinmann | Handbook of Variational Methods for Nonlinear Geometric Data (2020) [PDF] [En]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга охватывает различные современные направления исследований в контексте вариационных методов для нелинейных геометрических данных. Каждая глава написана ведущими специалистами в соответствующей дисциплине и содержит введение, обзор и описание современного состояния техник, применяющихся в ней.Жанр: МатематикаИздательство: SpringerФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C5C309378FED9BE253E2FDB2FB629295CD8638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851237   (1055050) от 01.02.2026
+
+В.И. Глебов, С.Я. Криволапов | Практикум по математической статистике. Проверка гипотез с использованием Excel, MatCalc, R и Python (2019) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии приведено около 100 задач, посвященных проверке статистических гипотез. Представлены темы: 1) общие свойства (статистика критерия, мощность критерия, Р-значение); 2) критерии случайности, независимости, однородности; 3) критерии согласия (простые гипотезы); 4) критерии согласия (сложные гипотезы); 5) параметрические гипотезы.
+Разобраны примеры решения задач (   Читать дальше...   )Жанр: Компьютерная литература, МатематикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B710ED35D4380AB1174BA9D4799781C9509DFF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851256   (1055038) от 01.02.2026
 
 Д.З. Гордевский, А.С. Лейбин | Популярное введение в многомерную геометрию (1964) [DJVU]
@@ -6,7 +86,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055038.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ José Luis Cisneros-Molina, Dũng Tráng Lê, José Seade | Handbook of Geometry
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054873.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ M. Hazewinkel (ред.) | Handbook of Algebra [6 книг] (1996 - 2009) [PDF]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054767.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ Alfred Hassner, Irishi Namboothiri, Meir Golan | Organic Syntheses Based on Name
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054633.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054617.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Eleme
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054484.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ Erico Azevedo, Jose Pissolato Filho | Information Fields Theory and Applications
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054483.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ Michael Seeds, Dana Backman, Eric Wegryn | Foundations of Astronomy. 15th Editio
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054482.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054292.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054144.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduc
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054143.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053771.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053551.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053550.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053549.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053548.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052469.jpg" />
 </div>
 
 
@@ -451,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052408.jpg" />
 </div>
 
 
@@ -477,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052354.jpg" />
 </div>
 
 
@@ -503,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052176.jpg" />
 </div>
 
 
@@ -529,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052173.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051949.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051782.jpg" />
 </div>
 
 
@@ -595,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCF80419944A62DF64BCA84AD005A72358FB8D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846464   (1051500) от 08.01.2026
-
-У.В. Ловитт | Линейные интегральные уравнения (1957) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051500.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дано изложение классической общей теории линейных интегральных уравнений и целого ряда ее приложений к дифференциальным уравнениям, вариационному исчислению и некоторым задачам математической физики. В настоящем издании в книгу включено дополнение «О росте собственных значений однородных интегральных уравнений», написанное чл. корр. АН СССР А. О. Гельфондом. (   Читать дальше...   )Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856AE845D407F3B81CA35DD9967B6C032AC16A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846609   (1051414) от 08.01.2026
-
-П.И. Лизоркин | Курс дифференциальных и интегральных уравнений с дополнительными главами анализа (1981) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал в книге излагается с современных позиций, с привлечением идей и методов функционального анализа. С этой целью в нее включены главы, посвященные функциональным пространствам, анализу Фурье, первоначальным сведениям по теории операторов. Книгу можно рассматривать также как введение в круг идей и методов функционального анализа на основе классического аппарата (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6045B4976C09A5C9343C665583F016844A079548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846115   (1051148) от 05.01.2026
-
-С.О. Шатуновский | Введение в анализ (1923) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Появлением в печати лежащей перед читателем книги я обязан моему ученику И. В. Арнольду, взявшему на себя труд обработки для печати курса лекций по Введению в Анализ, читанных мною в Новороссийском Университете, а затем в Одесском Институте Народного Образования. Курс посвящен в значительной своей части установлению понятия о вещественном числе, при чем в основу (   Читать дальше...   )Жанр: МатематикаИздательство: МатезисФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165E772E099D9D5035B2C55123328E5191C2FEF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

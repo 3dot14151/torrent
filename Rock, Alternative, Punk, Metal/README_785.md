@@ -1,3 +1,32 @@
+###  Публикация: 1266724   (269111) от 03.12.2018
+
+Creedence Clearwater Revival Featuring John Fogerty - Chronicle (The 20 Greatest Hits) (1987) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269111.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Susie Q
+2. I Put A Spell On You
+3. Proud Mary
+4. Bad Moon Rising(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D36E46D89DE31F71C5DCE70A9DBD38879D1BADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266812   (269105) от 03.12.2018
 
 VA - The Many Faces Of KISS: A Journey Through The Inner World Of KISS (2017) [MP3|320 kbps] <Hard Rock, Heavy Metal>
@@ -6,7 +35,7 @@ VA - The Many Faces Of KISS: A Journey Through The Inner World Of KISS (2017) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269105.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Deep Purple - Soldier Of Fortune: The Greatest Hits (1994) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269101.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269033.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Snowball - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Rock, Jazz-Funk, Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268987.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Vassafor - Malediction (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268925.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ SunSay - X (2017) [MP3|320 Kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268773.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268655.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Del Shannon-The Complete UK Singles More 1961-1966 (2013) [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268417.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Wolfheart - 4 Albums (2013-2018) 5 CD [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268414.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Empyray - Discography (2007-2009) [FLAC|Lossless] <Hard'n'Heavy, Oriental Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268333.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Crash - Crash (1993) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268218.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ The Church - The Best Of The Church (1999) Compilation [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268214.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Axxis - 30th Anniversary - Best Of EMI-Years (2019) [MP3|320 Kbps] <Melodic Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268204.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Bob Katsionis - 4 альбома Collection (2002-2012) [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268191.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Ozzy Osbourne - Under The Graveyard (2019) Single [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268065.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Polecats - Polecats Are Go! (1981) Reissue CD, 2003, Anagram Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268044.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Belle and Sebastian - How to Solve Our Human Problems (Part 1) (2017) EP [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268038.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ VA - The Hits Album: The Rock Album (2019) Box Set, 4CD [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267981.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Story Of The Year - Wolves (2017) [MP3|320 Kbps] <Alternative Rock, Post-Hardcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267960.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267958.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Mind Key - Pulse For A Graveheart (2009) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267906.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267862.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267721.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Ben Moody - 4 Альбома + B-Sides (2005 - 2011) Дискография [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267532.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Tool - 7 Альбомов (1991 - 2006) [FLAC|Lossless|tracks] <Alternative meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267393.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ Undertow - 1993(   Читать дальше...   )Жанр: Alternative metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B96376868812E3EECA2D4403F478FE3314E54926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337875   (267124) от 18.11.2019
-
-Lover Under Cover - 2 альбома Collection (2012-2014) [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Under Cover - A Fight 04:37
-02. Lover Under Cover - Into The Shadows 04:01
-03. Lover Under Cover - Miracle 03:43
-04. Lover Under Cover - Toy Soldier 04:25(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766C6F5E3E0F6AF1768F8E0CE9BAD8DC3AA248D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,164 +1,3 @@
-###  Публикация: 1681502   (132509) от 03.12.2023
-
-Oswald Campesato | Python for Absolute Beginners (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам освоить базовые аспекты Python 3.x благодаря обширному набору примеров кода, иллюстрирующих его разнообразные возможности. Начните с инструментов и установок Python и постепенно изучайте такие тонкости, как строки, циклы, условная логика и многое другое. Приложения, посвященные NumPy и Pandas, дают представление об эффективных численных операциях, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Mercury Learning and InformatioФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E4158257DD6AD3D4349847606C53885D7F9330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681529   (132504) от 03.12.2023
-
-Vinci J Rufus | Building Micro Frontends with React 18 (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132504.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются два паттерна построения микрофронтендов - паттерн multi-SPA и паттерн micro apps.Вы узнаете, какие паттерны и когда следует использовать, а также рассмотрите нюансы развертывания этих микрофронтендов с использованием облачных нативных технологий, таких как Kubernetes и Firebase. С помощью этой книги вы получите глубокое понимание управления (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07046E6D64A11C0BF1A28A875653F7F036F8172E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681952   (131964) от 05.12.2023
-
-Дж. М. Йодиче  | TinyML. Книга рецептов (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131964.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinyML – технология, призванная расширить использование искусственного интеллекта за счет устройств с малым энергопотреблением, таких как микроконтроллеры. Прочитав эту книгу, вы сможете свободно использовать передовые практики и фреймворки ML в своей работе.
-Среди рассматриваемых тем:
-- принципы программирования микроконтроллеров;
-- основы развертывания приложений (   Читать дальше...   )Жанр: Радиотехника и электроникаПеревод: Ю.В. РевичИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6490AA0D1B85C8E6A01026BA32ED2024458C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595699   (131776) от 29.12.2012
-
-Подборка книг по веб-дизайну, программированию и связанным темам [2001-2012][PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131776.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире постоянного прогресса, постоянного апгрейда и роста электроники, в мире где вскоре все заменит автоматика нормальные библиотеки отойдут в прошлое, наступит мир электронных информационных средств, где пользователь сможет найти всю требуемую информацию за считанные миллисекунды и я надеюсь, что все это вам поможет найти моя Подборка. Успехов в работе и быстроты в поиске информации!Жанр: Программирование, веб-дизайнФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682955   (130802) от 09.12.2023
-
-Ivor Horton, Peter Van Weert | Beginning C++23, 7th ed. Edition (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните свой путь программирования на языке C++ с основ и пошаговых примеров, которые помогут вам стать опытным программистом на C++. В эту книгу включены новые возможности стандарта C++23.
-
-При этом не предполагается наличие предварительных знаний в области программирования. Все понятия языка, которые объясняются в книге, иллюстрируются рабочими примерами программ, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000F0F10BF6EFCB6DE6B08723F1D347085B99E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524874   (130480) от 18.01.2022
-
-В.А. Зеньковский | Применение Excel в экономических и инженерных расчетах (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал книги рассчитан на пользователей различных уровней подготовки и широкого круга специальностей, работающих с электронными таблицами Excel. В систематизированном виде с привлечением большого количества практических примеров изложены методы применения Excel для решения экономических и инженерных задач, для работы с базами данных, для решения задач оптимизации, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2926739ED882585286C2DAF5810602F9EC7407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491146   (130353) от 03.05.2012
 
 А.Шишанов | Дизайн интерьеров в 3ds Max 2012 [2012] [PDF, (+DVD)]
@@ -167,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130353.jpg" />
 </div>
 
 
@@ -196,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130201.jpg" />
 </div>
 
 
@@ -222,7 +61,7 @@ James Gough, Daniel Bryant, Matthew Auburn | Mastering API Architecture (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129989.jpg" />
 </div>
 
 
@@ -248,7 +87,7 @@ Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129955.jpg" />
 </div>
 
 
@@ -275,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129631.jpg" />
 </div>
 
 
@@ -301,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129356.jpg" />
 </div>
 
 
@@ -327,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128664.jpg" />
 </div>
 
 
@@ -355,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128299.jpg" />
 </div>
 
 
@@ -381,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128006.jpg" />
 </div>
 
 
@@ -407,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128003.jpg" />
 </div>
 
 
@@ -433,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127870.jpg" />
 </div>
 
 
@@ -460,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127690.jpg" />
 </div>
 
 
@@ -487,7 +326,7 @@ Deven Joshi | Building Cross-Platform Apps with Flutter and Dart (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127689.jpg" />
 </div>
 
 
@@ -513,7 +352,7 @@ Harsh Bhasin PhD | Python Programming Using Problem Solving (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127664.jpg" />
 </div>
 
 
@@ -539,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127521.jpg" />
 </div>
 
 
@@ -565,7 +404,7 @@ Aditya Iyengar | Build Your Own Web Framework in Elixir (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127499.jpg" />
 </div>
 
 
@@ -591,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127488.jpg" />
 </div>
 
 
@@ -617,7 +456,7 @@ Colleen M. Farrelly, Yae Ulrich Gaba | The Shape of Data (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127457.jpg" />
 </div>
 
 
@@ -645,7 +484,7 @@ Elizabeth Noble | Pro T-SQL 2022, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127449.jpg" />
 </div>
 
 
@@ -671,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127135.jpg" />
 </div>
 
 
@@ -682,6 +521,162 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F25390DEA1E02D3B431441F9266634E7BA045DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686756   (126326) от 24.12.2023
+
+С.В. Глушаков, Т.В. Дуравкина | Программирование на C++ 2-е изд. (2008) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во 2-м издании книги авторы последовательно и системно рассматривают все основные возможности и базовые принципы программирования на C++. Описаны стандартные синтаксические конструкции языка и показана специфика их использования. Большое внимание уделяется работе с классами, шаблонами и пространствами имен, а также генерации и обработке исключений. Исчерпывающие (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF164E2BC881AE1A1FD25F522109F23F2020505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687074   (125985) от 25.12.2023
+
+Элкомсофт | Методическое руководство по извлечению данных из iPhone и других устройств Apple (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125985.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном руководстве систематизирована информация по извлечению данных из iPhone и некоторых других устройств Apple, описаны подходы, стратегии и особенности разных методов, а также типичные ошибки.Жанр: Компьютерная литератураИздательство: ЭлкомсофтФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B764B45190D67FCACD818E904290ED523C64927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687215   (125966) от 25.12.2023
+
+Ю.А. Кравченко, В.В. Курейчик, С.И. Родзин | Интеллектуальные системы: эволюция моделей и методов приобретения, управления и передачи знаний (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125966.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются вопросы, связанные с эволюцией информационных систем, моделей и методов приобретения и управления знаниями. Представлены концепция, базовые принципы и стратегия приобретения и управления знаниями, которые направлены на решение научной проблемы увеличения информационного объема семантически обработанных знаний в глобальном информационном пространстве. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СредаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2634693CE8BBD2689010EFEE55C2BCFCC6CE11BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823631   (125876) от 12.10.2025
+
+Евгений Андреев | Astra Linux. 30 уроков для начинающих (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125876.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге 30 уроков для пользователей, начинающих осваивать популярный отечественный дистрибутив Astra Linux. С позиции пользователя описано решение типичных задач – от установки дистрибутива и настройки графического интерфейса Fly до простейшего администрирования системы. Рассмотрены настольные приложения, такие как офисный пакет LibreOffice, графический редактор (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6F4178293B75D4ECB26622E10CB8BB8D302EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823427   (125762) от 11.10.2025
+
+Аарон Максвелл | Мощный Python (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как стать экспертом в создании сложных и мощных приложений на Python, не тратя время на повторение уже известных основ или перечисление ненужных функций? Аарон Максвелл фокусируется на первопринципах Python, которые действуют подобно катализаторам для всего остального: достаточно получить 5 % знаний в области программирования, чтобы остальные 95 % подтянулись автоматически.Жанр: ПрограммированиеПеревод: С. ЧерниковИздательство: Sprint BookФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1AF8E65C35267F8F2F5E6CF1E584F66B3B42E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676342   (125378) от 28.12.2023
+
+Книжная серия | Компьютер на 100% [28 книг] (2010-2015) [PDF][Обновляемая]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без компьютера невозможно представить себе жизнь современного человека. Вам может показаться, что освоение высоких технологий - трудное дело. Отбросьте сомнения. Серия книг "Компьютер на 100%" поможет сделать так, чтобы компьютер стал вам настоящий помощником и другомЖанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A4607F40D8B8136E48752841EAC9CF47D19146
 ```
 
 https://mybot314.ru/tekegram_catalog/

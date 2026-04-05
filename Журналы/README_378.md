@@ -1,3 +1,134 @@
+###  Публикация: 397841   (404669) от 08.10.2011
+
+Журнал | Desire [October 2011] [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заграничный журнал с красивыми девушками-моделями. Кроме того в журнале представлены новинки рынка аксессуаров, эксклюзивные автомобили и мотоциклы. В журнале много рекламы ночных VIP-клубов и предложений аналогичных услуг (город Тампа, штат Флорида).Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9150A222685BCE0B7564CBCDDD7C05EC523D2444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563269   (404581) от 21.10.2012
+
+Подборка журналов | Наша История. 100 Великих Имен (66/100) + описание коллекции [2010 - 2011] [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская история полна загадок, умолчаний и таинственных совпадений. Знаем ли мы, зачем Павел I хотел завоевать Индию? Действительно ли Александра I похоронили в 1825 году под его именем? Насколько психически здоров был Гоголь, в какой-то момент вообразивший себя спасителем страны? В чем секрет непобедимого Суворова? Новая биографическая серия «DeAgostini» «Наша история. 100 Великих Имен» знакомит читателя с подробностями жизни знаменитых людей России. Политики и философы, полководцы и ученые, гении и авантюристы – все они, так или иначе, определили развитие нашей страны. Достоверные факты, снабженные многочисленными иллюстрациями, позволяют узнать о разных сторонах жизни людей, имена которых на слуху у каждого. Каждый выпуск передает атмосферу определенной эпохи и проливает свет на истинное лицо героя. Читая нашу серию, вы «вживую» познакомитесь с историей России.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB7178A7C456CA0ADD2D517967DAAFC23B4AFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712343   (404253) от 18.10.2013
+
+Журнал | Любимая дача. Спецвыпуск №10 (ноябрь 2013) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов. Они охватывают круг тем, близких разным поколениям дачников, отвечают на животрепещущие вопросы подробно, с практической точки зрения. Каждый специальный выпуск посвящен конкретной теме, касающейся строительства, благоустройства дачи или участка. Материалы (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C56FC43E905540BFC66D1436EB67D9B88E60F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712380   (404242) от 18.10.2013
+
+Подшивка журналов | ShopNotes №131, 132 (сентябрь-декабрь 2013) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал ShopNotes издается для столяров, плотников, как начинающих так и профи и это видно из оформления самого журнала. В каждом номере: много подробной практической информации по деревообработке, а также много проектов, которые прекрасно проиллюстрированы подробными чертежами и схемами, на которых шаг за шагом, показан весь этап изготовления.
+Если вы новичок в деревообработке (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DA0F0C24220E74637EBC74BF3C72186A87B9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712125   (404211) от 18.10.2013
+
+Журнал | Идеи вашего дома [Россия] №10 (177) (октябрь 2013) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеи вашего дома — ежемесячный журнал, посвященный вопросам ремонта и обустройства интерьера. Заинтересует людей, планирующих реконструкцию, ремонт, дизайн интерьера своего жилья. Журнал предлагает большое количество планировочных и оформительских решений, обзоры ремонтно-строительных материалов, мебели, техники и оборудования.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9112C12B65662926ADF54BC59DC7898E6F83257C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169196   (404051) от 26.09.2017
 
 Газета | Подсобное хозяйство. Спецвыпуск Тропический сад в доме (август 2017)  [PDF]
@@ -6,7 +137,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404051.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404018.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404014.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404012.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403996.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403961.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403904.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403901.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403786.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403769.jpg" />
 </div>
 
 
@@ -272,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403539.jpg" />
 </div>
 
 
@@ -298,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403470.jpg" />
 </div>
 
 
@@ -324,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403455.jpg" />
 </div>
 
 
@@ -350,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403182.jpg" />
 </div>
 
 
@@ -376,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403179.jpg" />
 </div>
 
 
@@ -402,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403156.jpg" />
 </div>
 
 
@@ -428,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403143.jpg" />
 </div>
 
 
@@ -455,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402961.jpg" />
 </div>
 
 
@@ -481,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402854.jpg" />
 </div>
 
 
@@ -507,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402753.jpg" />
 </div>
 
 
@@ -534,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402625.jpg" />
 </div>
 
 
@@ -545,136 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE48C954EABC2BCD2B89A8A4E03AD8C0B97EE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713013   (402573) от 20.10.2013
-
-Подшивка журналов | Современная электроника №1-9 (2011) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402573.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Современная электроника» - ведущий журнал для специалистов, менеджеров и руководителей предприятий, занимающихся разработкой и производством электронной техники. Представлена информация об электронных компонентах, узлах, модулях и приборах, системах проектирования и моделирования. Выходит 9 раз в год, в архиве все выпуски издания за 2011 год.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C016F071595E5A9554F19FB1209E936EC4DD4719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712968   (402450) от 20.10.2013
-
-Журнал | Muscle & Fitness №4 (2013) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Muscle & Fitness — самый авторитетный путеводитель в мире фитнеса. За 18 лет издания на российском рынке журнал снискал репутацию безупречного тренера и советчика в вопросах тренинга, здоровья и питания. Издание адресовано посетителям фитнес клубов и всем тем, кто всерьез хочет изменить свою фигуру.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E4CF7DACFDA707EC5FAB10F755B79676190D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564664   (402424) от 24.10.2012
-
-Журнал | Здоровье в доме №42 [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот номер журнала необычен. В нем - череда личных историй, объединенных заголовком "Как я стал врачом". Кто и как идет "во врачи"? Почему один студент-медик становится гинекологом, а другой - гастроэнтерологом? Наверное, дело не только в случае.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09551469F3B218E51444DCA195FB5FB0EE5B5EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564954   (402392) от 24.10.2012
-
-Журнал | The Design Source №6 (India) [октябрь-ноябрь 2012] [PDF] [En]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание - кладезь дизайнерских идей. Мастера делятся своими наработками в сфере дизайна интерьера жилых и нежилых помещений. Подсмотрите новые идеи у известных отелей, избавьтесь от рутины, наполните дом красками, создайте необычный интерьер.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E6024DE7F1A1AD5D732D23A54E0CE6CC7584FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169536   (402344) от 28.09.2017
-
-Журнал | Мир фантастики №10 (октябрь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402344.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мир фантастики» единственное издание в России, посвященное фантастике и фэнтези в самом широком смысле. В фокусе внимания — книги, кинофильмы, игры и все самое интересное в этой области.Жанр: Журнал фантастикиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7274E02D3D6E3115B6C101E371EDE6AAC0CA8FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

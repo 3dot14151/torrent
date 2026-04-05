@@ -1,3 +1,55 @@
+###  Публикация: 1665008   (183821) от 28.09.2023
+
+Enterclass, Сергей Лысый | Солнце за костелом (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер-класс Сергея Лысого открывает путь в мир рисования городских пейзажей. Вечная борьба света и тени — без этого не бывает пейзажа. Хитрое солнце выглядывает из-за старинного костела и, как будто бы, дразнится, смеется над легкой осенней грустью. Такой необычный свет можно встретить в солнечный день в любом маленьком городке и в мегаполисе. Главное увидеть его (   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:35:42Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7739D73271CF9BEB2293E8D81D9A19D0084B08E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426852   (183800) от 27.11.2020
+
+New Masters Academy, Steve Huston | Художественная анатомия для начинающих / Art Anatomy for Beginners (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы знаете, что вам нужно изучить анатомию человека, но вы не знаете, с чего начать, то этот курс для вас. Известный художник Стив Хьюстон дает вам введение в анатомию с точки зрения механики движения и эстетики, что является лучшим первым шагом на вашем пути к изучению тела. Вы узнаете меньше об анатомических деталях и больше о том, как упростить структуру тела (   Читать дальше...   )Производство: New Masters AcademyЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 11:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACED13699628EF87719F4F65A93F3D0A0134B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665016   (183796) от 28.09.2023
 
 CGcircuit, Ciobanu Razvan | Advanced Particles 1: Geometry Based Simulations (2022) WEB-DL [EN]
@@ -6,7 +58,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 1: Geometry Based Simulations (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183796.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Creature Art Teacher, Aaron Blaise | Как рисовать хищных пти
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183794.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 2 : Demon Fire Trails (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183746.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Enterclass, Константин Стерхов | Путешествие в Ки
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183740.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ CGcircuit, Arihant Gupta | Houdini Essentials - Flip Rendering (2021) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183731.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ GeekBrains | Создатель игровой вселенной: геймди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183730.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ Granich.Design, Алиса Брюква | Granich Midjourney (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183559.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ Rebelway, Saber Jlassi | Introduction to Houdini For FX Weeks 1 – 6 (2018) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183523.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ Blender Studio, Simon Thommes | Geometry Nodes from Scratch (2022) PCRec [EN / E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183515.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ FlippedNormals, Ben Erdt | Advanced Character Creation (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183359.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ Udemy, Artem Daysun | Create a 3D Game Asset in Blender & Substance Painter - Vi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183349.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182971.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ VFX Grace | Houdini Tutorial Volcanic Eruption (2021) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182932.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ FlippedNormals, Chunck Trafagander | UV развёртка для игр в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182908.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ CGcircuit, Diogo Guerreiro | The Faroe Islands in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182877.jpg" />
 </div>
 
 
@@ -415,7 +467,7 @@ Gumroad, Emilis Baltrusaitis | Monsoon – Tutorial Large Scale Environment Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182863.jpg" />
 </div>
 
 
@@ -443,7 +495,7 @@ Wingfox, Ors Barczy | Use Arnold for Lighting, Rendering and Compositing (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182845.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ Liveclasses, Дмитрий Ларионов | Fusion в DaVinci Resolve: быс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182745.jpg" />
 </div>
 
 
@@ -496,7 +548,7 @@ Udemy, Кирилл Несмелов | Создание сайта в Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182723.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ Udemy, Кирилл Несмелов | Профессия Ui/Ux веб-диза�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182570.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ Domestika, Gemma Roman | Adobe Photoshop for Illustration (2022) WEB-DL [ES / ES
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182130.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181459.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ lectoroom, Елизавета Залегина | Натюрморт «Завтр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181290.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ Gumroad, FlippedNormals, Tim Bergholz | Полное Руководство По
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181249.jpg" />
 </div>
 
 
@@ -643,64 +695,6 @@ Gumroad, FlippedNormals, Tim Bergholz | Полное Руководство По
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67103C053ECFA5C9AE6A43BFA97EB2CC53F64F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665809   (181125) от 01.10.2023
-
-Stepik, Askarov Workshop | Рисунок карандашом - построение лица шаг за шагом (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чему вы научитесь
-- Как строить голову с разных ракурсов
-- Как строить плоскости головы, чтобы создать трехмерный эффект
-- Понимание правил освещения, чтобы ваш рисунок выглядел реалистично(   Читать дальше...   )Производство: StepikЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:53:06Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E68FDB4C33E6F6C01C688B4A1FBCE94CEBE3F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665824   (181115) от 01.10.2023
-
-Udemy, VFX 3D Pro | PolyModeling in Houdini (2019) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181115.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Добро пожаловать, на этом курсе вы научитесь моделированию в Houdini, Полимоделированию.
-- Обычное моделирование, которое вы могли бы выполнять в 3dsMax, Maya, Blender или Cinema4d.
-- Хорошей новостью является то, что в Houdini вы получите более сильные инструменты и гораздо более интеллектуальный подход, который сэкономит ваше время.
-- Мы позаимствуем возможности (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 02:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28DD983B99E932282A3B799532BFCA99157EEB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

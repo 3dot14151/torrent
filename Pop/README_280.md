@@ -1,177 +1,3 @@
-###  Публикация: 1514149   (219143) от 02.12.2021
-
-Марина Хлебникова - Лучшие Песни (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219143.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чашка кофию
-2. Дожди
-3. Солнышко моё, вставай!
-4. Нева(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F822B009E45DC034067E92E365C447F84A32C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425989   (218878) от 22.11.2020
-
-Camaro's Gang - Decamerone (The Camaro One) (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ali Shuffle  (7:37)
-02. Maskarp-One  (5:30)
-03. Move A Little Closer  (5:39)
-04. Snake Your Money  (6:02)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0F1646DA5FC7138B2B68F024A8DAEF08D1BAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343248   (218747) от 06.12.2019
-
-Die Partymixer - Hit Sommer Mix (1998) [FLAC|Lossless|tracks] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley 1: Coco Jambo, Macarena, Tic Tic Tac, Jo Jo Action, Lovefool, (Un, Dos, Dres) Maria, Samba De Janeiro (12:32)
-
-02. Medley 2: Ymca, Born To Be Alive, A Walk In The Park, Hands Up, Agadou, Espania, Bellissima Sole, Please Don't Go, Vamos A La Playa, Dolce Vita, Lemon Tree (16:27)
-(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0078F49CD7632D773FC5A0510101B651355D16DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343131   (218738) от 06.12.2019
-
-VA - Best of 2019 - Frühlingshits (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218738.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Nico Santos - Unforgettable
-02. Ariana Grande - 7 Rings
-03. Sam Smith & Normani - Dancing With A Stranger(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDEA9E99F608D64FEF59BBDDEBE6183CCDF71AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343207   (218706) от 06.12.2019
-
-New Mexico - New Mexico (1980) LP [MP3|320 Kbps] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It To Your Limit (4:36)
-02. It's Love (4:00)
-03. Skate With Me (3:21)
-04. Get Up And Dance (3:13)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA4F55004E02BB994CB0655E970D04A0DEA0ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343258   (218703) от 06.12.2019
-
-Vision Mastermixers - Reggae Mega Mix (1999) [FLAC|Lossless|image + .cue] <Reggae, Pop, Cover/Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reggae Mix 1 (22:20)
-- No Woman No Cry
-- Stir It Up
-- Starry(   Читать дальше...   )Жанр: Reggae, Pop, Cover/MedleyПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACCEBC7A089A600CE71BA0168FC48E14897CB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343176   (218696) от 06.12.2019
 
 VA - Blow Up Disco Vol 3: Back To Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
@@ -180,7 +6,7 @@ VA - Blow Up Disco Vol 3: Back To Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218696.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ VA - Blow Up Disco Vol 2: Twisted Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218689.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ VA - Blow Up Disco Vol 6 : Nu-Disco & Italodisco Grooves From Blow Up Disco (201
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218685.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ VA - Italo Mania 2 (1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218683.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ VA - MNM Big Hits 2016 Vol. 1 (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218634.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ VA - Blow Up Disco Vol 4: A Taste Of Blow Up Disco & Italo Instrumentals (2019) 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218610.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ VA - Blow Up Disco Vol 1: Club Series Italodisco Grooves (2019) [FLAC|Lossless|W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218591.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ VA - Blow Up Disco Vol 5: Italo Heaven (A Sexy Selection Of Italodisco!) (2019) 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218585.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218573.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ Jennifer Paige - Crush: The Best of Jennifer Paige (2013) Compilation [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218544.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218494.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ Samba Soul - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Sam
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218486.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ VA - Just The Hits 2016 (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218443.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ VA - Megahits 2020 - Die Erste (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218420.jpg" />
 </div>
 
 
@@ -586,7 +412,7 @@ VA - Bravo Hits Zima 2020 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218401.jpg" />
 </div>
 
 
@@ -615,7 +441,7 @@ VA - 538 Hitzone: Best Of 2019 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218391.jpg" />
 </div>
 
 
@@ -644,7 +470,7 @@ Siberian Heat & Elen Cora - Number One (2011) [MP3|160 Kbps] <Disco, Synth-pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218359.jpg" />
 </div>
 
 
@@ -673,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218178.jpg" />
 </div>
 
 
@@ -702,7 +528,7 @@ Matia Bazar - Коллекция (1976-1989) [FLAC|Lossless] <Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218176.jpg" />
 </div>
 
 
@@ -732,7 +558,7 @@ VA - The Greatest Xmas Song (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <J
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218115.jpg" />
 </div>
 
 
@@ -746,6 +572,180 @@ VA - The Greatest Xmas Song (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBDC08F3D2D1FFCCF8524B88DB8CA92F3C13024D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269910   (218109) от 16.12.2018
+
+Pamala Stanley - 2 Albums (1979, 1990) [MP3|320 Kbps] <Electronic, Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Hot (7:48)
+02. Hey, Mister Magic (7:11)
+03. All I Want To Do Is Dance (6:25)
+04. That'll Be The Day (4:59)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRGПродолжительность: 01:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF58EAD80061CB4A494F66A16D949C3F1D672DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585841   (218105) от 25.10.2022
+
+Various - Pure... 80s (2012) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bill Medley & Jennifer Warnes–(I've Had) The Time Of My Life
+02. Starship–We Built This City
+03. Wham!–I'm Your Man
+04. Men At Work–Down Under(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 04:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33982F406A02C00A2D59053EC86ACAE93C93E73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343493   (217713) от 06.12.2019
+
+Modern Talking - Maxi And Singles Collection (2019) Dieter Bohlen Edition, 3CD [MP3|320 Kbps] <Pop, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217713.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. You're My Heart, You're My Soul
+2. Lucky Guy (Special-DJ-Mix)(Ryan Simmons)
+3. You Can Win If You Want (Special Dance Version)(   Читать дальше...   )Жанр: Pop, Euro-DiscoПродолжительность: 04:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EF983553D794001C78E2C9F6E39F97C85FD12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425888   (217685) от 22.11.2020
+
+Peggy March - The Very Best Of Little Peggy March (1997) The Essential Singles Collection 1962-1968 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Me  (2:23)
+02. I Will Follow Him (Chariot)  (2:46)
+03. I Wish I Were A Princess  (2:20)
+04. Hello Heartache, Goodbye Love  (2:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C249F81D145E0410E260264C1F0284B68D05DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586002   (217672) от 25.10.2022
+
+Taylor Swift - Midnights (2022) 3am Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lavender Haze (03:22)
+2. Maroon (03:38)
+3. Anti-Hero (03:20)
+4. Snow On The Beach (feat. Lana Del Rey) (04:16)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A895C4614AC780EFFF5BE5BFAC28D9671556549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269751   (217580) от 16.12.2018
+
+Grivina - Танцую одна (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Want To Dance Now
+2. Мальчик party
+3. Девочку несёт
+4. Твоя ненормальная(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9256DC1256C1C9A4AD24184DCB3152CC7C39490
 ```
 
 https://mybot314.ru/tekegram_catalog/

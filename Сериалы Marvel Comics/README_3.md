@@ -6,7 +6,7 @@
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316417.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309058.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309033.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306768.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296771.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287120.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286949.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249923.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249907.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247220.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247171.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247169.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247119.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236600.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235465.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234376.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234263.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229350.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228253.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228102.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228079.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225870.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225354.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222826.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220405.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218351.jpg" />
 </div>
 
 

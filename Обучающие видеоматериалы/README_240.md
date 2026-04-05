@@ -1,3 +1,32 @@
+###  Публикация: 1427331   (183698) от 27.11.2020
+
+Udemy, Артем Баданов | Изучение C++ с нуля (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение языка программирования С++ с легкостью и простым языком.
+Чему Вы научитесь на курсе?
+Улучшите навыки логического мышления
+Сможете создавать собственные программы(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 03:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D73FD5E44D39E7DEB0AB53AF6093F90F3E3E644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427040   (183679) от 27.11.2020
 
 LinguaTrip, Веня Пак и др. | Интенсив от Intermediate до Advanced (2019) PCRec
@@ -6,7 +35,7 @@ LinguaTrip, Веня Пак и др. | Интенсив от Intermediate до A
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183679.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ LinguaTrip, Веня Пак и др. | Подборка курсов и мате
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183646.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Liveclasses, Виталий Новиков | Клиентский сервис
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183618.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ Granich.Design, Алиса Брюква | Granich Midjourney (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183559.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ Rebelway, Saber Jlassi | Introduction to Houdini For FX Weeks 1 – 6 (2018) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183523.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ Blender Studio, Simon Thommes | Geometry Nodes from Scratch (2022) PCRec [EN / E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183515.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ Domestika, Bruno Imbrizi | Creative Coding 2.0 in JS: Animation, Sound, & Color 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183480.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ FlippedNormals, Ben Erdt | Advanced Character Creation (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183359.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183351.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ Udemy, Artem Daysun | Create a 3D Game Asset in Blender & Substance Painter - Vi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183349.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182971.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ VFX Grace | Houdini Tutorial Volcanic Eruption (2021) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182932.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ FlippedNormals, Chunck Trafagander | UV развёртка для игр в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182908.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Photocollege, Николай Бирюков | The course. Тариф Лайт (2
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182903.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ CGcircuit, Diogo Guerreiro | The Faroe Islands in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182877.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182867.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Gumroad, Emilis Baltrusaitis | Monsoon – Tutorial Large Scale Environment Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182863.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182857.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Wingfox, Ors Barczy | Use Arnold for Lighting, Rendering and Compositing (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182845.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Udemy, Macheronte Courses | Изучите Python и создайте свой �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182795.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182787.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182753.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Liveclasses, Дмитрий Ларионов | Fusion в DaVinci Resolve: быс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182745.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ Udemy, Кирилл Несмелов | Создание сайта в Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182723.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ GeekBrains, Фёдор Гребенников и др. | Создание сай
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182686.jpg" />
 </div>
 
 
@@ -673,33 +702,6 @@ GeekBrains, Фёдор Гребенников и др. | Создание сай
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47184DD5E8E06E63319B929771BB1AD992B50C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427609   (182661) от 28.11.2020
-
-Udemy, Timur Mashnin | SEO: Введение в поисковую оптимизацию (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите понять как основные поисковые системы ранжируют ваш сайт в своих результатах поиска и как привлечь трафик? Научитесь поисковой оптимизации SEO.
-На этом курсе Вы познакомитесь с основными элементами поисковой оптимизации и изучите основные стратегии и тактики SEO для продвижения веб-сайтов, а также тактики, которых следует избегать, чтобы предотвратить наказание (   Читать дальше...   )Производство: UdemyЖанр: SEOПродолжительность: 03:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C86E86103A9B464C1354788EB0E8EE118BED7D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

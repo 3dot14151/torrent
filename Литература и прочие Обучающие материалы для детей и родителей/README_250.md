@@ -1,3 +1,55 @@
+###  Публикация: 931113   (513018) от 25.08.2015
+
+Иаков Глатц | Новые повести в пользу и удовольствие детей (1827) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второе издание весьма популярной в свое время детской книги предваряется предисловием автора: «Второе издание сей книжечки мною исправлено и умножено двумя вновь прибавленными к прежним повестями. Желаю, чтобы и сие издание принято было столь же благосклонно, как и первое». Русский переводчик, не пожелавший указывать своего имени, также приписывает к этому несколько (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A277A391BDAF1C920DA3E4678782CEAA5F59079B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931129   (513014) от 25.08.2015
+
+Разговоры нянюшки с детьми (1840) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание «Разговоры нянюшки с детьми» – типичный пример познавательной литературы для детей второй половины XIX века. Такого рода книги охотно издавала Университетская типография. «Разговоры нянюшки...» – это десять небольших рассказов: «Корова», «Овца», «Петух», «Птица» и др., которые знакомят детей в основном с представителями животного мира, с их повадками и образом (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E7D4A167E83BDF5BC92B79F2BD5482D21828C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931142   (513012) от 25.08.2015
 
 Галерея умных животных, или Собрание новых Анекдотов, любопытных замечаний из лучших авторов об инстинкте, нравах и умственных качествах животных (1850) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513012.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513009.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513008.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513006.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512878.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512877.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512864.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512863.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512803.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512729.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512559.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512263.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512205.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512203.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512199.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512170.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511939.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511937.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511933.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511930.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511887.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511882.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511881.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511880.jpg" />
 </div>
 
 
@@ -624,62 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467611941DC39BAEDECA8D28AE21833D7201A958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315693   (511802) от 21.07.2019
-
-студия Диафильм | Белый пудель (1951) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повести и рассказы о животных. Собаки. Повести и рассказы русских писателей.
-
-Этот день был не особо удачным для бродячих циркачей — дедушки Мартына Лодыжкина (на плече — старая «нездоровая» шарманка), мальчика Сергея (взят дедушкой «напрокат» у забулдыги, который вскоре умер) и пуделя Арто: со многих мисхорских дач их выгоняли, лишь одна барыня дала гривенник, и (   Читать дальше...   )Жанр: Детская прозаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89044E092B2302C9B67A7A605D84D11831C3FAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315694   (511799) от 21.07.2019
-
-студия Диафильм | Два жадных медвежонка (1953) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Венгерские народные сказки. Сказки о животных. Медведи.
-
-Топали они по тропинке, ломились через заросли. День плутали по лесу, другой. А на третий вышли на опушку. Здесь они и нашли большую головку сыра. Решили медвежата поделить сыр поровну. Но как это сделать? Хотели было по очереди откусывать. Но вдруг один больше откусит, чем другой? Жадность одолела медвежат. (   Читать дальше...   )Жанр: Детская прозаПеревод: А. Краснова, В. ВаждаевФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAED487C9584B380AE679CFCA2D2F3D3D0747E58
 ```
 
 https://mybot314.ru/tekegram_catalog/

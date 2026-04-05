@@ -6,7 +6,7 @@ Discovery. Автомир Майка Брюера / Mike Brewer's World of Cars 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020200.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC. Шпион в снегах: Тайны снежных обитателей 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018896.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Экватор с Воздуха / Equator from the Air (2020) HDTV [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018888.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC. Google и всемирный мозг / Google and the World Brain (2013) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017185.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC: Символика церквей / Churches: How to Read Them (2010) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010092.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC: Горизонт. Хаббл. Открытие тайн космоса / Ho
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008925.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007547.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC. Тайные правила современной жизни: Алгори
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006345.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC. Королева Виктория и её девять детей / Queen V
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006059.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC. Связанные: Шесть ступеней отдаления / Connec
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005405.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BBC: Не могу выбросить тебя из головы / Can't Get You
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004518.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC: Винсент Ван Гог. Живопись в словах / Vincent Va
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003935.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC: Глобальное потепление: факты / Climate Change: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003931.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC: Серенгети / Serengeti (2019) WEB-DL [H.264/1080p] (сезон 1, �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002384.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BBC: Серенгети / Serengeti (2019) BDRemux [H.264/1080i] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002139.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BBC: Жизнь / Life (2009) BDRip [H.264/1080p] (серии 10 из 10)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002133.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC: История Шотландии с Нейлом Оливером. Пос�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998883.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ BBC: История Шотландии с Нейлом Оливером. Мол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998507.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ BBC: История хирургии. Обретение лица [4 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998023.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BBC: Сокровища Древней Греции / Treasures of Ancient Greec
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987160.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985649.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976618.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975629.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ BBC: Планеты, похожие на Землю / The Planets: Inner Worlds 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975180.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ BBC: Живой мир: Бегемоты - жизнь в воде / Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968560.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BBC: Планеты. Марс / The Planets: Mars (2019) IPTVRip [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967003.jpg" />
 </div>
 
 

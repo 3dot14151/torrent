@@ -1,3 +1,32 @@
+###  Публикация: 1071545   (358861) от 10.11.2016
+
+Sting - 57TH & 9TH (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stop Thinking About You
+ 02. 50,000 (NEW Version)
+ 03. Down, Down, Down
+ 04. One Fine Day (NEW Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB2F4BA4CEE44BB29AA3F373DEBA43EEE35E516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071542   (358855) от 10.11.2016
 
 Тараканы! - Сила одного (2016) [MP3|320 Kbps] <Punk-Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358855.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Betty Brothers - Hey Kid... (2015) [MP3|320 кб/с]<Progressive, Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358829.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358703.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ A Silent Film - A Silent Film (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358645.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Draconian - Sovran (2015) Limited Edition [FLAC|Lossless]<Gothic/Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358635.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Electric Light Orchestra - On the Third Day (1973) Special Edition /2006, Epic/ 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358463.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Elvis Presley with The Royal Philharmonic Orchestra - If I Can Dream (2015) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358454.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Mysteria Noctis - Vulnera (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358414.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Disturbed - Evolution (2018) Deluxe Edition [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358353.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ron Keel Band - South X South Dakota (2020) [FLAC|Lossless|tracks + .cue] <South
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358266.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Jonah Whale - VI (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358265.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Benediction - Scriptures (2020) 2xCD [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358261.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Skansis - Take Your Chance (2007) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_358216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_358216.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Doro - Fur Immer (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358138.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ VA - Mojo Presents • David Gilmour & Friends (2015) [FLAC|tracks + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358084.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358079.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Simon & Garfunkel - Old Friends: Live On Stage (2004) 2xCD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358065.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357936.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Frank Zappa - Road Tapes (1968, 1973) 4CD /2012, 2013 Vaulternative Records/ [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357838.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Blue Oyster Cult (Blue Öyster Cult) - 2 Album (1994-2020) [FLAC 2.0|44/24|track
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357809.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Michael Learns To Rock - Scandinavia (2012) [FLAC (tracks+cue)|Lossless]<Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357667.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Sir Lord Baltimore - 3 альбома (1970 - 2006) дискография [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357661.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357472.jpg" />
 </div>
 
 
@@ -687,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357271.jpg" />
 </div>
 
 
@@ -722,7 +751,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357175.jpg" />
 </div>
 
 
@@ -736,35 +765,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D89C3689AA2578AD5264EB6083D5DD82AFFE535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577375   (357174) от 18.09.2022
-
-Colour Haze - We Are (2019) remastered version, 2021, Electrohasch [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are (Remastered) [00:03:23]
-02. The Real (Remastered) [00:08:38]
-03. Life (Remastered) [00:08:44]
-04. Material Drive [00:04:31](   Читать дальше...   )Жанр: Heavy Psych, Stoner, Space RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F39C9C07830CBDBC18810AB0D5DAB16969F48DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

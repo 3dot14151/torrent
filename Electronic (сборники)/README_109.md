@@ -1,3 +1,61 @@
+###  Публикация: 1297564   (603031) от 24.04.2019
+
+VA - Club Goes Music Sunday (2019) [MP3|320 Kbps] <Deep House, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rey Vercosa  &  R.Braga  &  Guiga - Na Tua Casa (Feat. Guiga)(Bruno Motta Radio Remix)
+02. Going Deeper & Twoworldsapart - Love You Better(Original Mix)
+03. Gray - Girl (Vitaco Remix)
+04. Morgan Page Ft. Lissie - The Longest Road(Steff Da Campo Extended Remix)(   Читать дальше...   )Жанр: Deep House, Future HouseПродолжительность: 06:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E69D63EAD37361EEB3DD3D12642E2C08ECE7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297892   (602680) от 25.04.2019
+
+VA - Omniversum: Techno Electronics Mix (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602680.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lucifah - Perry
+002. Alexander Dee - Night Trip
+003. Crypsis - Combination Style
+004. Damian Kuklinski - Edge Line(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 10:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA40FDB9BB24A792D658A9DC792B3F98BE15750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297893   (602675) от 25.04.2019
 
 VA - Republic Open Hearts: Sublime Trance (2019) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
@@ -6,7 +64,7 @@ VA - Republic Open Hearts: Sublime Trance (2019) [MP3|320 Kbps] <Trance, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602675.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Trance Collection Vol.76 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602668.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Record Super Chart 583 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602661.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Absolute Chillout (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602657.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Chill Mastercuts Balearic (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602560.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Space Dancing (2017) [MP3|320 Kbps] <Electronic, Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602523.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Beatport Top 100 Downloads June (2017) [MP3|320 Kbps] <Electro, Indie, Nu D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602504.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ DJ AFRO - InterPopHeroes (2018) [MP3|320 Kbps] <TecHouse, Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602389.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Hits of My Soul Vol. 38 (2018) [MP3|320 кб/с]<House, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602234.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ VA - Hardstyle Dance Extra Mixes (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602181.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ VA - Deep House Republic Mix (2019) [MP3|320 Kbps] <Deep, Soft House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602068.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ VA - Drum and Bass Pro V.02 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Drum and
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601899.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ VA - Drum and Bass Pro V.03 (2019) Compiled by GvertO [MP3|320 Kbps] <Drum and b
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601895.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ VA - Record Super Chart 584 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601751.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ VA - Deep In My Soul: Deep House Mix July (2017) [MP3|320 Kbps] <Deep House, Dan
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601100.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ VA - Beatport Top 100 House June (2017) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601030.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ Moby - Best275z (1992-2013) [MP3|320 кб/с]<Electronic, Downtempo, Ambient>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600995.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ VA - Record Super Chart #494 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600976.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ VA - Beatport Chill Electronic: Sound Pack #515 (2022) [MP3|320 Kbps] <Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600140.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ VA - Deep Drum & Bass Compiled by ZeByte (2018)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600050.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ Dosis - Technoir (Part 2) (2016) [MP3|320 Kbps|image+cue] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599691.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ VA - Uplifting Trance Collection Episode Third (2016) [MP3|320 Kbps] <Trance, Up
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599674.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ VA - Dance Fitness Playlist (2016) [MP3|320 Kbps] <House, Progressive, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599666.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ VA - Package Complete Expand Future House (2016) [MP3|320 Kbps] <House, Future H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599662.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ VA - Package Complete Expand Future House (2016) [MP3|320 Kbps] <House, Future H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F5C83CA4E1C806082E7E4A202CB5B6E0577556E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232567   (598369) от 25.06.2018
-
-VA - Record Super Chart 542 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prodigy feat. Vicetone - Omen 3:43
-02. Bolier & Joe Stone - Keep This Fire Burning 4:23
-03. Don Diablo feat. Paije - People Say 3:09
-04. Lucas & Steve - Source 4:22(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18C866276BDD60D78F5153C3EDDB2F8528EC31C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548171   (598357) от 03.05.2022
-
-VA - Beatport Core Dubstep: Sound Pack #516 (2022) [MP3|320 Kbps] <Hardstyle, Core Dance, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришло время оживить свой рабочий процесс, да и просто сменить образ скучной офисной жизни с помощью свежих и отточенных треков 516-й коллекции от Beatport, охватывающей ряд хард-стилей и жанров электронной музыки, от дабстепа до Drum and Bass, Future Garage и Grime.001. DJ Reaction - Kolkata Police
-002. Eazyvibe - Who Am I
-003. Unifire & Robotics - Armageddon
-004. Artriangel - Artria(   Читать дальше...   )Жанр: Hardstyle, Core Dance, DubstepПродолжительность: 08:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FECD3EFAFEFC2071F69DA70DBBC22D50CC2FC51A
 ```
 
 https://mybot314.ru/tekegram_catalog/

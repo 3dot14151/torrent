@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218734.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218488.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ ZZ Top - Live From Texas  (2008)  BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218374.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Katy Perry - The Prismatic World Tour (2015) BDRip[H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217765.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217716.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217664.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217523.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217330.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217232.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216564.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_216540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216540.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216427.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216386.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216123.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216052.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215436.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215086.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214830.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Volbeat: Let's Boogie Live From Telia Parken (2018)  Blu-ray [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214808.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214765.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214707.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214661.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214554.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214309.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214188.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214055.jpg" />
 </div>
 
 

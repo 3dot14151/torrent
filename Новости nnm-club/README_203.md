@@ -1,3 +1,55 @@
+###  Публикация: 843731   (322628) от 23.11.2014
+
+Пряности и страсти / The Hundred-Foot Journey (2014) HDRip [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья индийских эмигрантов, которых судьба забросила в маленький городок в Провансе, решает открыть кафе с восточной кухней... прямо напротив знаменитого на всю округу ресторана «Плакучая ива», бастиона французских кулинарных традиций, хозяйка которого, Мадам Малори, больше всего на свете гордится тем, что её заведение удостоено звезды в каталоге «Мишлен».Производство: Индия, ОАЭ, США | Touchstone Pictures, Harpo Films, Reliance EntertainmentЖанр: Драма, КомедияРежиссер: Лассе ХалльстрёмАктеры: Хелен Миррен, Ом Пури, Маниш Дайал, Шарлотта Ле Бон, Амит Шах, Фарзана Дуа Элахе, Диллон Митра, Ариа Пандья, Мишель Блан, Клеман СибониПеревод: Дублированный (Чистый звук) ОфициальныйСубтитры: ОтсутствуютПродолжительность: 02:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A1477C420B01522D6988BBFC0FED83BDC290E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 263629   (322567) от 28.11.2010
+
+В следующем году Россия начинает работы по созданию космического корабля с ядерной энергетической установкой.
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322567.jpg" />
+</div>
+
+
+###  Подробнее
+
+На прошедшей неделе представители российской космической компании "Энергия" сообщили подробности касательно некоторых планов компании. Согласно этим планам, в следующем году начнутся работы по разработке стандартизованных космических модулей, имеющих на борту двигательную установку на ядерной энергии. Директор компании "Энергия" Виталий Лопота сообщил, что первые запуски экспериментальных модулей с ядерными энергетическими установками мощностью от 150 до 500 КВт должны начаться в 2020 году.(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582067   (322550) от 09.10.2022
 
 Представлен смартфон без сервисов Google
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_322550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_322550.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322536.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Windows 10 Pro VL 1903 18362.418 x64 Rus by OneSmiLe (16.10.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322361.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322354.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322285.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322271.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ ESET Smart Security 6.0.300.4 Final [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_321879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_321879.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_321867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_321867.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321853.jpg" />
 </div>
 
 
@@ -254,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321849.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321553.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321551.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_321539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_321539.jpg" />
 </div>
 
 
@@ -360,7 +412,7 @@ Adobe Acrobat Pro DC 2020.013.20064 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321401.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320679.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320676.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ Adobe Photoshop CC 2015.0.1 (20150722.r.168) RePack by D!akov (22.11.2015) [Mult
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320675.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320667.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320666.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320660.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ Adobe Photoshop CC 2018 (19.0.0.24821) Portable by XpucT (DC) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320603.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320581.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ Adobe Illustrator CC 2018 (22.0.1.249) Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320575.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ Comodo Internet Security Premium 11.0.0.6728 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320452.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ Comodo Internet Security - бесплатное комплексное реше�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBA4A0606F8D51DD164B4AEEA1DB6A4BC0FD895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259327   (320285) от 03.11.2018
-
-Проекты - VideoHive - Summer Kids Album | Family Slideshow - 19467789 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окружите своих детей яркими красками лета и перенесите их в волшебный мир, где
-их встретят дружелюбные представители местной фауны.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B14BC1577A7639009310CF570E3899F2701707C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580635   (320244) от 10.10.2022
-
-Первые тесты в космосе подтвердили работоспособность плазменного двигателя VERA
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_320244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Импульсный плазменный двигатель VERA, разработанный в Национальном исследовательском ядерном университете (НИЯУ) (Московский инженерно-физический институт, МИФИ), был впервые протестирован во время реального космического полета и подтвердил свою работоспособность. Об этом в пятницу сообщили  в Sitronics Group."Прошли первые тесты импульсного плазменного двигателя (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

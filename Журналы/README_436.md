@@ -1,3 +1,135 @@
+###  Публикация: 1079354   (296128) от 03.12.2016
+
+Журнал | Усадьба №4. Ягодное царство (ноябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето радует нас изобилием ягод. Они приносят огромную пользу организму, поэтому все, кто имеет заветные сотки, стремятся побаловать себя и своих близких витаминной продукцией — выращивают малину, клубнику, смородину, крыжовник, голубику и т.д. При этом ягодные культуры хороши тем, что они не только быстро созревают, но и в основном дают большую урожайность. Главное, (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF9ECCF66ADD7B7FDF4577F949A20CDFE665FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731991   (296060) от 08.12.2013
+
+Журнал | Любимая дача. Спецвыпуск №1 (январь 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов. Они охватывают круг тем, близких разным поколениям дачников, отвечают на животрепещущие вопросы подробно, с практической точки зрения. Каждый специальный выпуск посвящен конкретной теме, касающейся строительства, благоустройства дачи или участка. Материалы (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FE8AF34BDFA0D0B117D853DA10AA1F2D0621F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847521   (296002) от 05.12.2014
+
+Подшивка журналов | Vacuum Tube Valley. Issue 1-20 (1995-2002) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vacuum Tube Valley является высококачественным ежеквартальным изданием, посвященом прошлому, настоящему и будущему аудиоэлектроникиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6068E9421D86CDF15AD88998AF4129DF7E56C52B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847405   (295891) от 05.12.2014
+
+Журнал | Любимая дача. Спецвыпуск №11 (ноябрь 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов. Они охватывают круг тем, близких разным поколениям дачников, отвечают на животрепещущие вопросы подробно, с практической точки зрения. Каждый специальный выпуск посвящен конкретной теме, касающейся строительства, благоустройства дачи или участка. Материалы (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5FEFC0C0C90641B6FFA629B544C46B752B8816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079306   (295881) от 03.12.2016
+
+Газета | Кулинарная энциклопедия новогодних блюд №1 (4) (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снова в доме ёлка, мандарины, смех!
+Стол, накрытый щедро - для друзей для всех!
+В газете собраны популярные рецепты новогодних блюд.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6B490725AC8A51A4DD1555BCCD42D9F5BC6910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079298   (295771) от 03.12.2016
 
 Журнал | Дарья. Биография №13 (декабрь 2016) [PDF]
@@ -6,7 +138,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295771.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295736.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295630.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295606.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295605.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295574.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295572.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295456.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295225.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295057.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294875.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294819.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294739.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294726.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294514.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294513.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294460.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294418.jpg" />
 </div>
 
 
@@ -475,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294363.jpg" />
 </div>
 
 
@@ -501,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294286.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294254.jpg" />
 </div>
 
 
@@ -538,138 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A8C08EEDCF74030F92E1F0481EB1C5FE84750D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079808   (294191) от 04.12.2016
-
-Газета | Клуб друзей газеты Скатерть-Самобранка №7 (86) (июль 2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294191.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом номере газеты не только вкусные рецепты присланные читателями, но и полезные советы по кулинарии и домашнему быту, застольные песни, идеи по оформлению блюд для приверед.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E3F777DA923C6101B59508CDF79A328CC9D326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079769   (294160) от 04.12.2016
-
-Газета | Рождественский стол №1 (4) (2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета с рецептами Рождественских блюд.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA94BB4D03154360026185372A35426CE98A1A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079802   (294158) от 04.12.2016
-
-Газета | Новогодний и Рождественский стол. Спецвыпуск Телек №8 (253)/С (2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступает год Огненного Петуха. А огонь может как согреть, так и обжечь.
-Как же порадовать новогоднюю птицу, чтобы следующий год принес нам побольше радости и здоровья? Известно, что застолье в праздничную ночь должно соответствовать вкусам хозяина года...Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A698418FD1ED9EC5D9C6150DCE5A34577A0008F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847753   (293974) от 06.12.2014
-
-Газета | Любимые рецепты читателей. Спецвыпуск №27. Канапе, тарталетки и рулетики к новогоднему столу (ноябрь 2014) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рулет "Смак", тарталетки "хорошо живем", тарталетки "Фуршетные", канапе "На банкет". И еще много рецептов закусок, которые порадуют Вас вкусом и станут украшением праздничного стола - в этом номере.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27B2F08A24AF0B52E38AF794600482B010BF026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847697   (293965) от 06.12.2014
-
-Подшивка журналов | Serwis elektroniki (1996-2003) [PDF] [Pl]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Польский журнал - аналог отечественного "Ремонт & Сервис".
-Журнал посвящен проблемам ремонта и обслуживания электронной техники. В нем рассказывается об устройстве, эксплуатации и ремонте телевизионной, видео- и аудиотехники, телефонной и оргтехнике, автомобильной электронике и др. Даются практические советы и рекомендации опытных ремонтников, различные (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D2A4A62E6A060B967B7492DFF945A755F3DBC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Lostorage Conflated WIXOSS | Беспамятство: Объединение WI
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710994.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Caligula | Калигула [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710973.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sword Art Online Alternative: Gun Gale Online | Мастера меча онла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710746.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mirai no Mirai | Мирай из будущего [2018, Movie] BDrip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710438.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Code Geass Hangyaku no Lelouch | Code Geass - Lelouch of the Rebellion | Код 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709316.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Non Non Biyori Movie: Vacation | Деревенская глубинка: Кан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708965.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Teekyuu 3 | Теннис 3 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707590.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Teekyuu 5 | Теннис 5 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707589.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Teekyuu 6 | Теннис 6 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707587.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Teekyuu 2 | Теннис 2 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707585.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Usakame | Кролик и черепаха [2016, TV, 12 из 12 + 1 SP из 1] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707583.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Teekyuu | Теннис [2012, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707579.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Teekyuu 7 | Теннис 7 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707576.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Fukigen na Mononokean | The Morose Mononokean | Обитель мрачного 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707572.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Teekyuu 8 | Теннис 8 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707533.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Teekyuu 9 | Теннис 9 [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707522.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Project K: Missing Kings | К: Пропавшие короли [2014, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706741.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706394.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Short Peace: Buki yo Saraba | Gambo | Hi no Youjin | Tsukumo [2012-2013, MV, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705829.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress | Кабанери из 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704473.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Hello!! Kin`iro Mosaic | Hello!! Golden Mosaic | Привет!! Золотая �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703837.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Sakura Quest | Квест на фоне сакуры [2017, TV, 25 из 25] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703540.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703100.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702756.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Yama no Susume: Second Season | Encouragement of Climb: Second Season | В го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701942.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Endride | Эндрайд | Скиталец Эндры [2016, TV, 24 из 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701578.jpg" />
 </div>
 
 

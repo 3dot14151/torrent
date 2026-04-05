@@ -1,3 +1,55 @@
+###  Публикация: 1773119   (31061) от 13.01.2025
+
+Д.И. Кочнева | Транспортная логистика (2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31061.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии излагается широкий круг вопросов теории транспортной логистики, учитывающей специфику функционирования транспортной отрасли и особенности логистического подхода к организации транспортировки. Рассмотрены основные понятия и методы транспортной логистики, особенности организации грузовых перевозок, в том числе вопросы документального оформления и (   Читать дальше...   )Жанр: учебное пособие, логистикаИздательство: УрГУПСФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4EE9E0F4010C9DFA514096EDF5679CAAED4F555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773385   (30869) от 15.01.2025
+
+Е.Е. Бизянов | Системное программирование [2 книги] (2018, 2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены теоретические положения и представлены практические примеры системного программирования. Рассмотрены системные ресурсы компьютера. Изложены основы языков системного программирования низкого уровня - Си и Ассемблера. Приведены необходимые справочные сведения и примеры для программирования аппаратных средств компьютера, реализации функций ввода-вывода, а (   Читать дальше...   )Жанр: учебное пособие, программированиеИздательство: Донбасский ГТУ, нфра-ИнженерияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF18EB3AB2859687E5C7DEDC85FDA0D2D6FEB6A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773648   (30751) от 16.01.2025
 
 М.Я. Выгодский | Высшая математика для техникумов (1969) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30751.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30618.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30442.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29794.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29710.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29702.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29686.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29681.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29676.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29675.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29610.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29580.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29569.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29009.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26348.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25977.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25689.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24932.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24695.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23984.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23647.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23620.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23618.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23564.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F63BAA5D112E8AFD04E8B2619FD04FC8FCF8616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787932   (23209) от 28.03.2025
-
-А.А. Ярославцев | Сборник задач и упражнений по аналитической химии (1979) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой сборник систематически подобранных задач и упражнений (около 1500) по основным разделам курса аналитической химии. Каждому разделу предшествует небольшое теоретическое введение и решение типовых задач. Третье издание вышло в 1973 г.Жанр: ХимияИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B0EE250DEE98B2F5AB9A7E8BB7D4180A036377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790291   (22093) от 08.04.2025
-
-Michel Lauricella | MORPHO - Anatomy for Artists - Books 1 - 10 [10 книг] (2018-2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22093.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этих книгах Michel Lauricella представляет как свои художественные, так и систематические методы рисования человеческого тела — с техниками рисования от ecorche (показ мускулатуры под кожей) до набросков моделей в действии. В более чем 1000 иллюстрациях человеческое тело показано с новой точки зрения — от структуры костей до мускулатуры, от анатомических деталей (   Читать дальше...   )Жанр: Учебная литератураЯзык: АнглийскийИздательство: РазличныеФормат: PDFКачество: Изначально электронное (ebook), Обработанный скан, Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F91F7E6B8A270EC4C322D788E786F6E3980604B
 ```
 
 https://mybot314.ru/tekegram_catalog/

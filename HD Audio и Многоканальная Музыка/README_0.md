@@ -1,3 +1,118 @@
+###  Публикация: 1857011   (1059424) от 03.03.2026
+
+Mason - Studio Albums (3 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базирующаяся в Мельбурне, Австралия, трэш-метал группа Mason демонстрирует впечатляющие выступления на национальной и международной метал-сцене. Mason воплощает трэш-звучание 80-х, смешанное с быстрыми темпами и доминирующей ритм-секцией.2013 - Warhead
+2017 - Impervious
+2025 - MartyrЖанр: Thrash/Groove MetalПродолжительность: 02:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F9D454A1C255E3BC48F5A45AF44740BE15F56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856946   (1059237) от 03.03.2026
+
+Peter Katin, London Philharmonic Orchestra, John Pritchard - Tchaikovsky / Litolff – Piano Concerto No.1 / Scherzo (1970) Embassy Master Series [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059237.jpg" />
+</div>
+
+
+###  Подробнее
+
+A  Tchaikovsky: 1st Movement: Allegro Non Troppo E Molto Maestoso
+B1 Tchaikovsky: 2nd Movement: Andantino Semplice
+B2 Tchaikovsky: 3rd Movement: Allegro Con Fuoco
+B3 Litolff: Scherzo From Concerto Symphonique No.4 Op. 102(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C378C4801D717419525AD05AEFA5D9CAC5CC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856798   (1059157) от 02.03.2026
+
+Susperia - Studio Albums (7 releases) (2001-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Susperia - метал-группа из Ромерике, Норвегия, основана в 1998 году.2001 - Predominance
+2002 - Vindication
+2004 - Unlimited
+2007 - Cut from Stone(   Читать дальше...   )Жанр: Melodic Black/Thrash MetalПродолжительность: 05:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F37722BBC0A536C5E3C7C791B0F0AA15540C4B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856260   (1058677) от 27.02.2026
+
+Armageddon (Sweden) - Studio Albums (5 releases) (1997-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Progressive/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armageddon - метал-группа из Хальмстада, Швеция, образована в 1997 году.1997 - Crossing The Rubicon
+2000 - Embrace The Mystery
+2002 - Three
+2015 - Captivity & DevourmentЖанр: Melodic Death Metal, Progressive/Thrash MetalПродолжительность: 03:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEEE6C5B712DE28428F2ABA8FA25119F7596EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856251   (1058676) от 27.02.2026
 
 Abhorrent Decimation - Studio Albums (3 releases) (2013-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
@@ -6,7 +121,7 @@ Abhorrent Decimation - Studio Albums (3 releases) (2013-2017) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058676.jpg" />
 </div>
 
 
@@ -34,7 +149,7 @@ Cleo Laine - The Platinum Collection Of Cleo Laine (1981) Series The Platinum Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058675.jpg" />
 </div>
 
 
@@ -63,7 +178,7 @@ VA - Country Dreams (1983) [FLAC|Lossless|image + .cue] <Folk, Country>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058640.jpg" />
 </div>
 
 
@@ -92,7 +207,7 @@ Cathedral - Studio Albums (15 releases) (1991-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058533.jpg" />
 </div>
 
 
@@ -121,7 +236,7 @@ Ghosts of Jupiter - Studio Albums (4 releases) (2011-2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058190.jpg" />
 </div>
 
 
@@ -150,7 +265,7 @@ Handel, The Academy Of St. Martin-in-the-Fields - Concerto (1979) cond. Neville 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057984.jpg" />
 </div>
 
 
@@ -179,7 +294,7 @@ Rotting Christ (Sakis Tolis; χ ξ ς') - Studio Albums (20 releases) (1991-2026
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057602.jpg" />
 </div>
 
 
@@ -208,7 +323,7 @@ VA - Emotions (1978) Billy Joel, Chris Rea, Andy Williams, Bonnie Tyler and othe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057272.jpg" />
 </div>
 
 
@@ -237,7 +352,7 @@ Callisto - Studio Albums (5 releases) (2002-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057177.jpg" />
 </div>
 
 
@@ -266,7 +381,7 @@ Spiritual Beggars - Studio Albums (9 releases) (1994-2016) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057126.jpg" />
 </div>
 
 
@@ -295,7 +410,7 @@ Music For Pleasure - Hot Hits 9 (1971) Cover versions of chart songs from 1971 [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057125.jpg" />
 </div>
 
 
@@ -324,7 +439,7 @@ Carl Belew - Carl Belew (1960) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057114.jpg" />
 </div>
 
 
@@ -353,7 +468,7 @@ VA - Duets Country Style (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057113.jpg" />
 </div>
 
 
@@ -382,7 +497,7 @@ The Ocean Collective - Studio Albums (12 releases) (2003-2025) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056365.jpg" />
 </div>
 
 
@@ -411,7 +526,7 @@ VOLA - Studio Albums (6 releases) (2008-2024) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056180.jpg" />
 </div>
 
 
@@ -440,7 +555,7 @@ Andy Williams - Andy Williams (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jaz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056179.jpg" />
 </div>
 
 
@@ -469,7 +584,7 @@ Obscurity - Studio Albums (10 releases) (2000-2026) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056114.jpg" />
 </div>
 
 
@@ -498,7 +613,7 @@ Cliff Richard - Silver (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055737.jpg" />
 </div>
 
 
@@ -527,7 +642,7 @@ The Seatbelts - Cowboy Bebop (2020) Original Series Soundtrack [FLAC 2.0|44.1/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055626.jpg" />
 </div>
 
 
@@ -556,7 +671,7 @@ Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055507.jpg" />
 </div>
 
 
@@ -585,7 +700,7 @@ Protector - Studio Albums (10 releases) (1987-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055392.jpg" />
 </div>
 
 
@@ -614,7 +729,7 @@ Cliff Richard - Always Guaranteed (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055280.jpg" />
 </div>
 
 
@@ -628,122 +743,6 @@ A4 Forever(   Читать дальше...   )Жанр: Pop RockПродолжи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A58C67463F6F1E01AB056714C2D4AF97188FC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851280   (1055201) от 01.02.2026
-
-Cliff Richard - Love Songs (1981) Compilation, Remastered, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055201.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Miss You Nights
-A2 Constantly
-A3 Up In The World
-A4 Carrie(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, BalladПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77A8D9A5B131DF7F5CA97E7FD12F303D9F055BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851514   (1055135) от 02.02.2026
-
-Queens of the Stone Age (QotSA) - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Queens of the Stone Age - рок-группа, образованная в 1997 году в Палм-Дезерте, Калифорния, США.1998 - Queens of the Stone Age
-2000 - Rated R
-2002 - Songs for the Deaf
-2005  - Lullabies to ParalyzeЖанр: Hard Rock, Stoner RockПродолжительность: 08:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9808055C37CCF3A1964065AC27EBEA7B489D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851520   (1055134) от 02.02.2026
-
-Cliff Richard - 100th Single (1989) Single, 45RPM, Limited Edition [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055134.jpg" />
-</div>
-
-
-###  Подробнее
-
-A The Best Of Me
-B1 Move It
-B2 Lindsay Jane
-B3 High Class Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5586CFE591AE092C5124B271D1D8043899C3B871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850692   (1054470) от 29.01.2026
-
-Avatarium - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avatarium — шведская рок-группа из Стокгольма, основанная в 2013 году.2013 - Avatarium
-2015 - The Girl With The Raven Mask
-2017 - Hurricanes And Halos
-2019 - The Fire I Long ForЖанр: Doom Metal, Progressive RockПродолжительность: 4:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
 ```
 
 https://mybot314.ru/tekegram_catalog/

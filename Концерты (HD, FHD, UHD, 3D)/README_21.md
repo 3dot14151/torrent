@@ -6,7 +6,7 @@ Bon Jovi: Live at Madison Square Garden (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562836.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Lynyrd Skynyrd - One More For The Fans (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562616.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Rammstein - In Amerika (2015) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561921.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Aerosmith - Rock For The Rising Sun (2011/2013) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561731.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Dragonforce - In The Line Of Fire ... Larger Than Live (2015) BDRip [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560803.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Cliff Richard - Still Reelin' and A-Rockin' (Live at Sydney Opera House) (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560600.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ The Michael Schenker Group - The 30th Anniversary Concert - Live in Tokyo (2010)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558963.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557402.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ The Who - Live At The Isle Of Wight 2004 Festival (2017) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556798.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556270.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555916.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555802.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555800.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555798.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555795.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Queen - We Are The Champions: Final Live In Japan (1985/2019) Blu-ray [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554554.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554427.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553209.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553198.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552618.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Hatebreed - Live Dominance (2008) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551377.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Just Play - Концерт в клубе "Вермель" (2017) WEBRip [H.264/1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549262.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Santana & McLaughlin: Live at Montreux - Invitation to Illumination 2011 (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548168.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547305.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547303.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Kiss. Rocks Vegas 2014 (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545551.jpg" />
 </div>
 
 

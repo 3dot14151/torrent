@@ -1,176 +1,3 @@
-###  Публикация: 1248130   (446511) от 18.09.2018
-
-Drezden - Drezden (2018) [MP3|320 Kbps] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Михалок представляет дебютный альбом DREZDEN!
-Мы очень мотивированы, вдохновлены и пишем второй альбом, не дожидаясь всяких «фидбэков» и реакции публики! Вселенная DREZDEN уже ЕСТЬ! А ЕСТЬ ли Вы? Это еще надо доказать)) Перефразируем, конечно же, наших немецких философов и скажем всем: «Willkommen bei DREZDEN»! – говорит Сергей Михалок.1. Drezden
-2. Айсберг
-3. Самарканд
-4. Ямагути-гуми(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC841BC84E5E802CBA9B8499E6EF22715A2FF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163837   (446353) от 07.09.2017
-
-Robert Montecristo - Jo Superboy (1980) Vinyl 7" [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jo Superboy (4:00)
-02. Gimme Gimme (3:45)Жанр: Electronic, Pop, DiscoПродолжительность: 00:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE88AA5C3F6095D4C3CB4D95A7EFFBE8BBDD691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061890   (446131) от 11.10.2016
-
-Юта - Мои родные (2016) [MP3|320 Kbps] <Pop, Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О нём
-02. Прости меня
-03. Роль
-04. Зимушка(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DA5F3CAD822635A41DFA4D2DF004D872691BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322119   (446034) от 30.08.2019
-
-Lana Del Rey - NFR!: Norman Fucking Rockwell (2019) [FLAC|Lossless|tracks+ .cue] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norman Fucking Rockwell (04:09)
-02. Mariners Apartment Complex (04:07)
-03. Venice Bitch (09:37)
-04. Fuck It, I Love You (03:38)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B884412457E891EDE214A0F66227633017D19111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409427   (445247) от 17.09.2020
-
-Michele Freeman - Michele Freeman (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice And Slow  (7:55)
-02. Find The Fire  (5:12)
-03. Where'd You Get What You Got  (5:43)
-04. Tumble Heat  (6:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE01C7DE0370C5EBA8FECF8AEBE67677E75DB1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570113   (445101) от 16.08.2022
-
-Secret Service - The Lost Box (2012) [OGG|485 Kbps] <Pop Rock, Hi NRG, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellites	3:44
-02. If I Do	3:31
-03. Different	3:32
-04. Eyes Are Talking	4:00(   Читать дальше...   )Жанр: Pop Rock, Hi NRG, Synth-popПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97977C9915093F50BBFD49B511A7DCE29AA1AF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570279   (445096) от 16.08.2022
 
 Haddaway - The Album (1993) Vinyl-rip [OGG|485 Kbps] <Euro House>
@@ -179,7 +6,7 @@ Haddaway - The Album (1993) Vinyl-rip [OGG|485 Kbps] <Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445096.jpg" />
 </div>
 
 
@@ -208,7 +35,7 @@ Michael Bublé - The Essential Michael Bublé (2022) [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445013.jpg" />
 </div>
 
 
@@ -237,7 +64,7 @@ Mike Mareen - Greatest Hits & Remixes (2020) [OGG|485 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445012.jpg" />
 </div>
 
 
@@ -266,7 +93,7 @@ VA - The Best Of Italo-Disco Vol. 7 (1991) Vinyl-rip [OGG|485 Kbps] <Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445011.jpg" />
 </div>
 
 
@@ -295,7 +122,7 @@ Radiorama - Greatest Hits & Remixes Vol. 2 (2021) [OGG|485 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445005.jpg" />
 </div>
 
 
@@ -324,7 +151,7 @@ Ace of Base - Hidden Gems, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eur
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444987.jpg" />
 </div>
 
 
@@ -353,7 +180,7 @@ VA - Лучшие хиты из культовых сериалов и кино�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444834.jpg" />
 </div>
 
 
@@ -382,7 +209,7 @@ VA - One Love (2007) 2CD [FLAC|Lossless|image + .cue] <Pop, Rock, Funk, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444791.jpg" />
 </div>
 
 
@@ -411,7 +238,7 @@ Belinda Carlisle - Runaway Horses (Remastered Deluxe) 2CD (2013) [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444739.jpg" />
 </div>
 
 
@@ -437,7 +264,7 @@ Peter Richard - Frozen Red (1983) [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444698.jpg" />
 </div>
 
 
@@ -466,7 +293,7 @@ VA - Lady In Red - A Collection Of Great Ballads (1995) [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444328.jpg" />
 </div>
 
 
@@ -495,7 +322,7 @@ VA - Lady In Red - A Collection Of Great Ballads Vol.2 (1996) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444311.jpg" />
 </div>
 
 
@@ -524,7 +351,7 @@ Nazia & Zoheb Hassan - 3 Albums (1980-1995) [MP3|320 Kbps] <Electronic, Pop, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444258.jpg" />
 </div>
 
 
@@ -553,7 +380,7 @@ Silent Circle - Chapter 80ies Unreleased (2018) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444136.jpg" />
 </div>
 
 
@@ -582,7 +409,7 @@ A Taste Of Honey - 4 Albums (1978-1982) Reissue CD [MP3|320 Kbps] <Funk, Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444108.jpg" />
 </div>
 
 
@@ -611,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443148.jpg" />
 </div>
 
 
@@ -640,7 +467,7 @@ NK (Настя Каменских) - Ecléctica (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443018.jpg" />
 </div>
 
 
@@ -669,7 +496,7 @@ Julio Iglesias - Mexico (2015) [FLAC|Lossless|WEB-DL]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442936.jpg" />
 </div>
 
 
@@ -698,7 +525,7 @@ The Spotnicks - Never Trust Robots (1978) LP [MP3|320 Kbps] <Electronic, Synth-P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442386.jpg" />
 </div>
 
 
@@ -727,7 +554,7 @@ Raf - Raf (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442226.jpg" />
 </div>
 
 
@@ -741,6 +568,192 @@ Raf - Raf (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5166258A9DB8FE05EFB6950BA8E069B9713020F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164447   (441694) от 09.09.2017
+
+Explorer (by Tony Carey) - Explorer (1982) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enjaw J (3:45)
+02. Transit To Nowhere (3:52)
+03. No. 8 (3:26)
+04. Megawar (4:15)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, ElectroПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E208334E13681119CE631B8AFF02A2533AB5DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164500   (441687) от 09.09.2017
+
+Lady Lily - Get Out Of My Life (1987) [MP3|320 Kbps] <Disco,Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Get Out Of My Life
+02.Blade Runner
+03.I'm A Loser
+04.Cash Machine(   Читать дальше...   )Жанр: Disco,Euro-DiscoПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF58AD8ABEF8B8046E8D0C43B78AC437BF313CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062397   (441591) от 13.10.2016
+
+Cerrone - Afro (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2nd Chance (feat. Tony Allen) (3:37)
+02. Funk Makossa (feat. Manu Dibango) (3:19)
+03. Bodytalk (3:44)
+04. Funk Makossa (Todd Edwards Remix) (feat. Manu Dibango) (6:16)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9650FAEA95F9D41E01C5D61BDAB9309BA04C04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553429   (441089) от 29.09.2012
+
+VA - I Love Disco! (2012) [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Circle - Every Move Every Touch
+02. Nightflyer - Voyage Voyage (Desireless)
+03. Shot - Disco Beat
+04. Vaya Con Dios Feat. Jakie Moore - Nah Neh Nah
+05. Dschinghiz Khan - Moskau
+06. Antibazz Vs Dee Melange - Wonderful Life (Deep Melange Club Mix)
+07. 4 Clubbers - Someday
+08. Snap! - Oops Up (New Version)
+09. Joy - Felicidad
+10. Sandra - Around My Heat (Dj Sveshnikov Remix)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 05:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA433A2BD130BF016D03B72E68026F9EA176B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553452   (440948) от 29.09.2012
+
+VA - 80 Greatest Songs of All Times (2012) [MP3|320 кб/с]<Rock N Roll, Rock. Reggae, Pop & Others>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Michael Jackson - Billie Jean
+ 02 - Blondie - Heart Of Glass
+ 03 - Elvis Presley - Can't Help Falling In Love
+ 04 - Ben E. King - Stand By Me
+ 05 - Chic - Good Times
+ 06 - Chuck Berry - Johnny B. Goode
+ 07 - B.B. King - The Thrill Is Gone
+ 08 - Donna Summer - Hot Stuff
+ 09 - The Beatles - A Day In The Life
+ 10 - Carl Perkins - Blue Suede ShoesЖанр: Rock N Roll, Rock. Reggae, Pop & OthersПродолжительность: 04:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0A99543CE7CF206BCAB1767481423D4B73B9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570612   (440791) от 18.08.2022
+
+Mylène Farmer - Live 2019 (2019) [OGG|485 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming from the Vortex
+02. Interstellaires
+03. Sans logique
+04. Rolling Stone(   Читать дальше...   )Жанр: PopПродолжительность: 01:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE67415C29DE65339F813349B541757916C8E8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

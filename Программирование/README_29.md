@@ -1,81 +1,3 @@
-###  Публикация: 942912   (450668) от 02.10.2015
-
-Н.Б. Культин | Основы программирования в Embarcadero Delphi (2015) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой практическое руководство по программированию в Embarcadero Delphi. В ней представлена технология визуального проектирования и событийного программирования, подробно рассмотрен процесс создания VCL приложений, показано назначение базовых компонентов, рассмотрены вопросы программирования графики, работа с базами данных Microsoft Access. Уделено (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B010F9D43223DF58315A6E72927C8676BB2F9842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942915   (450664) от 02.10.2015
-
-Бен Форта | Освой самостоятельно SQL за 10 минут (2014) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое 4-е издание популярной книги. В книге предлагаются простые и практичные решения для тех, кто хочет быстро получить результат. Проработав все 22 урока, на каждый из которых придется затратить не более 10 минут, вы узнаете обо всем, что необходимо для практического применения SQL. Данная книга поможет вам в кратчайшие сроки освоить SQL — самый популярный язык (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45E00B62F777A60CB239986FF13413E50E31DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321276   (450010) от 28.08.2019
-
-Тони Гэддис | Начинаем программировать на Python, 4-е издание (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены принципы программирования, с помощью которых читатель приобретет навыки алгоритмического решения задач на языке Python, даже не имея опыта программирования. Дано краткое введение в компьютеры и программирование. Рассмотрен ввод, обработка и вывод данных, управляющие структуры и булева логика, структуры с повторением, функции, файлы и исключения, списки и (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C5BEAEC4EE5CF59F00DDA8E5A2CF16B8FC1FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060872   (448496) от 10.10.2016
 
 Дж. Макаллистер | Искусственный интеллект и Пролог на микроЭВМ (1990) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448496.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448019.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447532.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446932.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446930.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444219.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444165.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442335.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440167.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439339.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438762.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438670.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437484.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436482.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435687.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434928.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433091.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433024.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432016.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429014.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ Nicholas Zakas / Николас Закас | Understanding ECMASCRIPT 6 / Пон
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427578.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ Matt Butcher, Matt Farina / Мэтт Батчер, Мэтт Фэрина  | Go i
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427480.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426492.jpg" />
 </div>
 
 
@@ -677,6 +599,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BAA977D438525B98AFC60D8524DFACA5A53660F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324422   (422927) от 10.09.2019
+
+Аллен Б. Дауни | Байесовские модели (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы знаете, как программировать на Python, и немного знаете о теории вероятности, значит, вы готовы освоить байесовскую статистику. Эта книга расскажет вам, как решать статистические задачи с помощью языка Python вместо математических формул и использовать дискретные вероятностные распределения вместо непрерывной математики.
+Байесовские статистические методы (   Читать дальше...   )Жанр: Математика, ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047FA4634B4ED01EE1EC9B473A2407EF855DB9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324610   (422801) от 10.09.2019
+
+Д.Л. Осипов | Технологии проектирования баз данных (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге обсуждаются роль и место баз данных в современных информационных системах, рассматриваются основные функции и архитектура СУБД, организация многопользовательского доступа к данным, обеспечение целостности данных, управление транзакциями, физическое хранение отношений, особенности построения индексов, основные черты коммерчески успешных моделей данных.
+Рассматривается (   Читать дальше...   )Жанр: Программирование, БДФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2402E85EC47E4438FF6C124073745D33CB8996FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324612   (422790) от 10.09.2019
+
+В.М. Лебедев | Программирование на VBA в MS Excel (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются вопросы макропрограммирования в OpenOffice и среде MS Excel, а также возможности языка VBA, что позволяет создавать собственные макросы и приобрести базовое понимание парадигмы, лежащей в основе интегрированной среды разработки приложений в MS Excel и OpenOffice 4.1.1. Данное учебное пособие рассчитано на изучение и практическое освоение основ программирования (   Читать дальше...   )Жанр: Учебное пособие, ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240736556ACE4ACDF23CFFDD26DA6A5D861A8D2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

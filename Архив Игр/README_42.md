@@ -1,3 +1,65 @@
+###  Публикация: 533700   (518808) от 14.08.2012
+
+Orcs Must Die! 2 [Ru] (RePack/1.0.0.264/DLC) 2012 l Fenixx
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы швыряли их в разные стороны, жгли огнем, нарезали ломтиками... Счет шел на тысячи - но теперь требуется удвоить усилия! Во второй части «Стратегической игры 2011 года» по версии AIAS от студии Robot Entertainment вам предстоит прорубаться через несметные полчища орков на пару с другом!
+
+Вновь окунитесь в самую гущу битвы, играя за могущественного боевого мага или хитроумную волшебницу. Защищайте новые крепости и гномьи шахты, истребляйте тысячи орков и прочих чудовищ - в вашем распоряжении самое разнообразное оружие, заклинания, стражники, ловушки и амулеты. Проходите новую кампанию вместе с другом в совместной игре - либо боритесь за выживание в бесконечном режиме!
+
+Открывайте доступ к новым и старым средствам обороны, совершенствуйте их и пускайте в дело - пусть перемалывают полчища орков в сочный зеленый фарш!(   Читать дальше...   )Тип издания: RePackРазработчик: Robot EntertainmentЖанр: Экшен, Стратегии, ИндиЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5365F1D64B0F41959458D8496A57326FF7A4B8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533748   (518741) от 14.08.2012
+
+Men of War: Condemned Heroes / Штрафбат [Ru/En] (RePack/1.00.2) 2012 | R.G. Shift
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра, продолжающая традиции знаменитой серии «В тылу врага 2» и исторической стратегии «Черные бушлаты».
+
+Стратегия в реальном времени «Штрафбат» создана на основе мемуаров фронтовиков и других документальных материалов. В ней раскрыта история отдельного штрафного (офицерского) батальона Центрального, а впоследствии Белорусского, фронта.
+
+Долгое время о них не принято было говорить, да и им самим предписывалось не распространяться о себе и своих действиях во время Великой Отечественной войны. Штрафники поневоле стали героями множества нелицеприятных мифов, сложившихся вокруг приказа Наркома обороны СССР №227 от 27 июля 1942 года, известного еще как приказ Сталина «Ни шагу назад». Запрет на официальную информацию о штрафных батальонах и ротах, а также о заградительных отрядах, который действовал во время войны и в течение многих лет после ее завершения, породил массу слухов и досужих домыслов. Зачаcтую они были основаны лишь на искаженных впечатлениях людей, краем уха слышавших об этих подразделениях.
+
+Настало время узнать правду о мужестве бойцов штрафбата. Они прошли героический путь от Курской дуги до самого Берлина, и чтобы совершить подвиг, им не нужны были пулеметы заградотрядов за спиной.(   Читать дальше...   )Тип издания: RepackЖанр: Strategy (Real-time / Tactical) / 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F675A8A1B3392EF8E5F3516194A53E3B49E2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533797   (518680) от 14.08.2012
 
 Sniper Elite Dilogy / Дилогия Sniper Elite [Ru] (RePack) 2005-2012 | DangeSecond
@@ -6,7 +68,7 @@ Sniper Elite Dilogy / Дилогия Sniper Elite [Ru] (RePack) 2005-2012 | Dang
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518680.jpg" />
 </div>
 
 
@@ -39,7 +101,7 @@ Iron Brigade [En/Multi6] (P/1.0) 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518678.jpg" />
 </div>
 
 
@@ -66,7 +128,7 @@ Darksiders: Wrath of War [Ru/Multi4] (L/Steam-Rip/1.0.0.1) 2010 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518628.jpg" />
 </div>
 
 
@@ -93,7 +155,7 @@ Warsow [En] (L/1.0) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518624.jpg" />
 </div>
 
 
@@ -123,7 +185,7 @@ The Amazing Spider-Man (NoDVD/1.0) 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518623.jpg" />
 </div>
 
 
@@ -149,7 +211,7 @@ Terraria [En] (Steam-Rip/1.1.2) 2011 l R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518584.jpg" />
 </div>
 
 
@@ -176,7 +238,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (Steam-Rip) 2012 l R.G. GameWorks [Бе�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518581.jpg" />
 </div>
 
 
@@ -203,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517769.jpg" />
 </div>
 
 
@@ -229,7 +291,7 @@ Darksiders II Limited Edition (NoDVD/1.0) 2012 | 3DM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517540.jpg" />
 </div>
 
 
@@ -255,7 +317,7 @@ Alan Wake + Alan Wake's American Nightmare [Ru/En] (RePack/v.1.06.17.0155-1.03.1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517476.jpg" />
 </div>
 
 
@@ -281,7 +343,7 @@ Darksiders II Death Lives [En] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517467.jpg" />
 </div>
 
 
@@ -307,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517451.jpg" />
 </div>
 
 
@@ -333,7 +395,7 @@ Trine 3: The Artifact of Power (2015) [Ru/Multi] (1.01) Repack U4enik_77
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517112.jpg" />
 </div>
 
 
@@ -359,7 +421,7 @@ Shadowrun: Hong Kong (2015) [En] License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517014.jpg" />
 </div>
 
 
@@ -385,7 +447,7 @@ Silent Hill: Alchemilla (2015) [Ru/Multi] (1.1) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516909.jpg" />
 </div>
 
 
@@ -411,7 +473,7 @@ ZOMBI (2015) [Ru/Multi] (1.0) Repack R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516905.jpg" />
 </div>
 
 
@@ -439,7 +501,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.01) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516903.jpg" />
 </div>
 
 
@@ -465,7 +527,7 @@ Burnout Paradise: The Ultimate Box [Ru/En] (Repack/1.1.0.0) 2009 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516442.jpg" />
 </div>
 
 
@@ -491,7 +553,7 @@ The Amazing Spider-Man [Ru] (RePack) 2012 l DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515358.jpg" />
 </div>
 
 
@@ -517,7 +579,7 @@ Speed Thief / Угнать за 40 секунд [Ru] (RePack) 2002 | Shmitt
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515337.jpg" />
 </div>
 
 
@@ -543,7 +605,7 @@ Ferrum's Secrets: Where Is Grandpa? (2015) [En] License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515150.jpg" />
 </div>
 
 
@@ -569,7 +631,7 @@ Darksiders II: Death Lives - Limited Edition [En] (Repack/1.0) 2012 | DangeSecon
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514367.jpg" />
 </div>
 
 
@@ -597,7 +659,7 @@ Darksiders II: Death Lives - Limited Edition [Ru/En/Multi5] (RePack) 2012 l VANS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514268.jpg" />
 </div>
 
 
@@ -624,7 +686,7 @@ The Amazing Spider-Man [Ru] (RePack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514261.jpg" />
 </div>
 
 
@@ -636,60 +698,6 @@ The Amazing Spider-Man [Ru] (RePack/1.0) 2012 | R.G. Element Arts
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D382EC02686C5FFCDBCCFF536D0B54A5B7994926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535073   (514230) от 18.08.2012
-
-Darksiders II: Death Lives - Limited Edition [Ru/En/Multi6] (Repack/1.0) 2012 | R.G. Repacker's
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пробужденный концом света, Смерть, самый страшный из легендарных Четырех Всадников, отправляется в путь, чтобы восстановить человечество и очистить имя брата. По пути всадник узнает, что есть вещи похуже земного Апокалипсиса, и что древняя вражда может угрожать всему Созиданию...
-
-События второй части развиваются параллельно событиям первой. Война все еще заточен в тюрьме и теперь нам предстоит узнать историю второго всадника Апокалипсиса - Смерти. Он пытается разобраться в заговоре между адом и раем за право обладания Землей и найти и наказать тех, кто подставил Войну. .(   Читать дальше...   )Тип издания: RepackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Польский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009031418CCA4114D2F49568429721C4FCBCE267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536351   (514188) от 18.08.2012
-
-The Expendables 2 Videogame (2012) [Multi] (1.0) License SKIDROW
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514188.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Expendables 2 или Неудержимые 2 – это игра в жанре совместного экшена для четверых игроков. Сюжет игры весьма схож с одноименном фильмом (конкретней его второй частью). Прежде всего вам предстоит выбрать персонажа – Сильвестра Сталлоне, Дольфа Лунгрена, Чака Норриса, или Арнольда Шварцнегера.Вместе вам предстоит одолеть трудности и поставить на место злодеев (   Читать дальше...   )Тип издания: ЛицензияРазработчик: -/-Жанр: Arcade / 3D / 3rd PersonЯзык озвучки: Английский,Немецкий,Испанский,Итальянский,ФранцузкийЯзык интерфейса: Английский,Немецкий,Испанский,Итальянский,Французкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC49C17EE9000B41A5CD472B5923A32210ACFBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

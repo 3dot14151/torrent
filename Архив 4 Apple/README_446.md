@@ -6,7 +6,7 @@ Vectoraster 7 v7.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316840.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ PrefEdit 4.3 (Build 191018) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316839.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.14.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316838.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ JixiPix Chromatic Edges 1.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316837.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Geekbench 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316836.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ System Monitor 2.6  (build 191015)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316678.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Adguard 2.1.5 (626) nightly (CL - 1.5.84) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316677.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Grids for Instagram 5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316676.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Banktivity 7 v7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316675.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ SecuritySpy 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316674.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ JPEG SILKYPIX Photography 9E v9.2.14
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316673.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Audio Hijack 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316672.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Navicat Premium 12 v12.1.27 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316668.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ UninstallPKG 1.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316667.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ TotalFinder 1.7.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316636.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Coda 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316585.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Audirvana 3.5.24 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316501.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ ON1 Photo RAW 2020 v14.0.0.7955 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316496.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Luminar 3  v3.1.4 (5108) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316476.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Master of Typing - Мастер Печати 3 v3.8.7 (15.8.7) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316467.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Waltr 2 v2.6.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316408.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Downie 2.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316374.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Kiwi for Gmail 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316357.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ NCH VideoPad Pro 7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316266.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Ableton Live Suite 10 v10.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316042.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VirtualBox 6.0.14 for Mac v6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316030.jpg" />
 </div>
 
 

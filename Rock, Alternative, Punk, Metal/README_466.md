@@ -1,3 +1,148 @@
+###  Публикация: 911351   (616324) от 23.06.2015
+
+Tikahiri - Son of Sun (2015) [MP3|320 кб/с]<Hard Rock, Rock-n-Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars
+02. I Will
+03. V8 Car
+04. Chalala to Me(   Читать дальше...   )Жанр: Hard Rock, Rock-n-RollПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997E606EA495CEF6A1D1E6D779C2A01D975CC322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911357   (616319) от 23.06.2015
+
+Estrella - We Will Go On (2015) [MP3|320 кб/с]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Am
+02. Wheels Keep Turning
+03. We Will Go On
+04. This Heaven(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CBAFD8A3154AD4BDA9DD612565D95B75A0CDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911361   (616315) от 23.06.2015
+
+ZamTrip - King's Game (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King's Game
+02. Back Seat Love Song
+03. Break Me
+04. Dead Man's Story(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880AF48298B8D9BD648BB22875714E2E9460B4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911342   (616303) от 23.06.2015
+
+The Prophets Of Addiction - Reunite The Sinners (2015) [MP3|320 кб/с]<Glam Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. As We Fall
+2. Welcome to the Show
+3. Kings and Queens
+4. Razor’s Edge(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC1073A2E58788157529A820D80CF6BB5F6FDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146001   (616205) от 28.06.2017
+
+Elton John - Reg Strikes Back (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Town Of Plenty (3:38)
+02. A Word In Spanish (4:37)
+03. Mona Lisa And Mad Hatters (Part Two) (4:11)
+04. I Don't Wanna Go On With You Like That (4:33)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D663647DE883530B424ADA5C1CAC99C55E626736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911386   (616176) от 23.06.2015
 
 Pianos Become The Teeth - Keep You (2015) Deluxe Edition [MP3|320 кб/с]<Screamo, Post-Rock, Indie>
@@ -6,7 +151,7 @@ Pianos Become The Teeth - Keep You (2015) Deluxe Edition [MP3|320 кб/с]<Screa
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616176.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Kezia - The Dirty Affair (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616053.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Beatles - Хрестоматия (1958-1996) Unofficial Box-Set, 24CD /2003,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616001.jpg" />
 </div>
 
 
@@ -94,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615949.jpg" />
 </div>
 
 
@@ -123,7 +268,7 @@ Far Beyond - Songs Of Hope And Sorrow (2009) EP [FLAC|Lossless|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615751.jpg" />
 </div>
 
 
@@ -152,7 +297,7 @@ Clepsydra - More Grains Of Sand (1994) [FLAC|Lossless|image + .cue]<Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615711.jpg" />
 </div>
 
 
@@ -181,7 +326,7 @@ Jethro Tull - A Passion Play (An Extended Performance) (2014) 2CD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615586.jpg" />
 </div>
 
 
@@ -210,7 +355,7 @@ Znaki - Пазлы (2017) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615525.jpg" />
 </div>
 
 
@@ -239,7 +384,7 @@ The Embodied - The Embodied (2011) [FLAC|Lossless]<Modern Melodic Death/Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_615497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_615497.jpg" />
 </div>
 
 
@@ -265,7 +410,7 @@ Def Leppard - Songs From The Sparkle Lounge (2008) CD+DVD5, Deluxe Edition [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615476.jpg" />
 </div>
 
 
@@ -294,7 +439,7 @@ Voidhammer - The Voidhammer (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615007.jpg" />
 </div>
 
 
@@ -323,7 +468,7 @@ Mano de Mono - Chameleon Tongue (2022) [MP3|320 Kbps] <Stoner Rock, Heavy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615002.jpg" />
 </div>
 
 
@@ -352,7 +497,7 @@ Secret - The End Of The Road (2014) Japanese Edition [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615001.jpg" />
 </div>
 
 
@@ -381,7 +526,7 @@ Cancer Bats - Psychic Jailbreak (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614912.jpg" />
 </div>
 
 
@@ -410,7 +555,7 @@ Ruby the Hatchet - Planetary Space Child (2017) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614911.jpg" />
 </div>
 
 
@@ -439,7 +584,7 @@ Blackjack - Blackjack (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614909.jpg" />
 </div>
 
 
@@ -468,7 +613,7 @@ Die Apokalyptischen Reiter - The Divine Horsemen (2021) [FLAC 2.0|48/24|WEB-DL|t
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614907.jpg" />
 </div>
 
 
@@ -497,7 +642,7 @@ Die Apokalyptischen Reiter - Wilde Kinder (2022) [MP3|320 Kbps] <Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614903.jpg" />
 </div>
 
 
@@ -526,7 +671,7 @@ Dead End Space - Cosmic Comedian (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614902.jpg" />
 </div>
 
 
@@ -555,7 +700,7 @@ The Beach Boys (Brian Wilson) - 57 альбомов (70CD) (1961-2012) [MP3|160-
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614743.jpg" />
 </div>
 
 
@@ -590,7 +735,7 @@ Neil Young And Crazy Horse - Americana (2012) [FLAC|Lossless]<Rock /Country / We
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_614741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_614741.jpg" />
 </div>
 
 
@@ -610,151 +755,6 @@ Neil Young And Crazy Horse - Americana (2012) [FLAC|Lossless]<Rock /Country / We
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146620   (614649) от 29.06.2017
-
-Unleash The Archers - Apex (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening 07:17
-02. Shadow Guide 03:56
-03. The Matriarch 04:02
-04. Cleanse The Bloodlines 05:54(   Читать дальше...   )Жанр: Power Metal, Melodic Death MetalПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B83C3EB6390059B00DD0F01565BC62F5A85B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911814   (614593) от 24.06.2015
-
-Wyvern - The Red Flame of Pain (1990) [FLAC|image+ cue]<Power/Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wyvern
-02. Behind Bars
-03. It's a Waste of Time (instrumental)
-04. Fight For Your Life(   Читать дальше...   )Жанр: Power / Speed MetalПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC765B2815FAD88D660FEBB7B5D6140F5B743F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911753   (614587) от 24.06.2015
-
-District 97 - In Vaults (2015) [FLAC|tracks+.cue]<Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Snow Country [00:06:09]
-02 - Death by a Thousand Cuts [00:05:34]
-03 - Handlebars [00:04:51]
-04 - A Lottery [00:05:42](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B6BA10614140B0BA042F0F993D0C0A73962719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685185   (614529) от 31.07.2013
-
-Настя - Звездная серия. Рок Энциклопедия (2003) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снежные Волки (2:26)
-02. Ариандна (4:50)
-03. Невеста (5:08)
-04. Москва (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA0FC1B9B156BC163EE6143C9BFD7A9C38FFCB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911885   (614490) от 24.06.2015
-
-Aaron Fink - Saint Sylvania (2015) [MP3|320 кб/с]<Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After the Afterglow
-02. Atomic Doves
-03. The Other Side
-04. Nor'easter(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73D9AC75AB61F5393E46C9093C0F3C5FA6D83C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

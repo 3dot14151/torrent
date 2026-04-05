@@ -1,3 +1,29 @@
+###  Публикация: 1457149   (1024276) от 26.03.2021
+
+Windows 7/10 Pro х86-x64 by g0dl1ke 21.03.20 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе оригинальных русских Windows 7/10 Pro x86-x64 с обновлениями и отключением телеметрии по рекомендациям simplix, в соавторстве с systempЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D8B9ABD16EC455CD1F4CA9FCA339A199C4CD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457502   (1024270) от 26.03.2021
 
 Office 2013-2021 C2R Install + Lite 7.1.8 Portable by Ratiborus [Multi/Ru]
@@ -6,7 +32,7 @@ Office 2013-2021 C2R Install + Lite 7.1.8 Portable by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024270.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024103.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023886.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023753.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023706.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Azur Lane: Slow Ahead! | Azur Lane: Bisoku Zenshin! | Лазурный путь:
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023563.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Comodo Internet Security Premium 12.2.2.8012 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023537.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023351.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023349.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023347.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023220.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023180.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.10.8/dlc) Repack Other s [Overclocked
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023177.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023175.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022654.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022653.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Help4d, Андрей Доронин | Базовый курс по Cinema 4D: В
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022489.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022316.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022208.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022160.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022033.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.7.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021975.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021689.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021647.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021644.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:828E0B5633FDC6BB9BF7026D3DA3B1948BDA9388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417623   (1021470) от 11.04.2021
-
-Amnesia: Rebirth (2020) [Ru/Multi] (1.31) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021470.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Amnesia: Rebirth от создателей культовой серии вас ждет новое погружение во тьму. Преодолевая отчаяние и безысходность, вам предстоит проверить на прочность человеческую способность выносить страдания. В Amnesia: Rebirth вы играете за Таси Трианон, которая приходит в себя в недрах алжирской пустыни. Прошло уже много дней. Где вы были? Что делали? Где все остальные? (   Читать дальше...   )Тип издания: RepackРазработчик: Frictional GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76D338355B3EB7EEC6AAE7C43484610D430C836
 ```
 
 https://mybot314.ru/tekegram_catalog/

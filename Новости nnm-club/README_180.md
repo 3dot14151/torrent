@@ -1,3 +1,55 @@
+###  Публикация: 947210   (417412) от 17.10.2015
+
+DriverPack Solution 17.1.0 Final [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417412.jpg" />
+</div>
+
+
+###  Подробнее
+
+DriverPack Solution - это самая популярная программа для автоматической установки, обновления и поиска драйверов. Это универсальный менеджер установки драйверов для всех версий Windows. В отличие от встроенной в Windows 7 функции обновления драйверов, этой программой можно пользоваться даже без наличия Интернета и для поиска/установки драйверов не только на устройства (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD70C07BCBE350812C3CA27DCEF3618DCD6677C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870073   (417409) от 17.10.2015
+
+Starcraft 2. Профессиональная корейская лига (сезон 2015) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417409.jpg" />
+</div>
+
+
+###  Подробнее
+
+трансляции GSL, Proleague, Starleague турниров по StarCraft II на русском языке. Комментирует Евгений Magik  Смирнов. В раздаче сезон 2015 года.Производство: Корея, SpoTV Games HD, GoMTV HDЖанр: Игровое видеоАктеры: Корейские прогеймерыПеревод: Одноголосый закадровый - Евгений  Смирнов (m is for magiK)Продолжительность: 12:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20134A279064A4814B23A98084693813FFB3E27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 248309   (416778) от 21.10.2010
 
 [RIP] Medal Of Honor. Расширенное издание / Medal of Honor. Limited Edition [Ru /En] 2010 | Druid
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_416778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_416778.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Guitar Hero: Warriors of Rock [Wii] [PAL] [Multi 5] (2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_416770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_416770.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416294.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416242.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416239.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Windows 10 (v1903) x64 HSL/PRO by KulHunter v23 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415910.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ MOBILedit! Enterprise Portable by Maverick 8.7.0.20993 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415638.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415286.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Crusader Kings III / Crusader Kings 3 (2020) [Ru/Multi] (1.1.1/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415285.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Tropico 5 (2014) [Ru/Multi] (1.11/dlc) License GOG [Complete Collection]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415283.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415282.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4763.1000 RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415125.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7159.5000
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415123.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4763.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415122.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Parallels Desktop for Mac Business Edition 14.0.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414969.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Opera 11.00 Build 1029 Alpha For NoNaMe Club [Eng/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_414794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_414794.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_414559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_414559.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Movavi Video Suite 22.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413996.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо (2008) [Ru] (1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413887.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Wifi Analyzer v3.11.2 [Multi] / v3.11.1 [Rus/En] Mod by Alex.Strannik, XcrazyS
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413886.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413880.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ ESET NOD32 Antivirus 10.0.369.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413294.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_412938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412938.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Windows XP MiD™ Edition (22.10.2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_412540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412540.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ Windows XP MiD™ Edition (22.10.2010)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168116   (411800) от 22.09.2017
-
-Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (1.0.1) License SKIDROW
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warhammer 40,000: Space Wolf представляет из себя уникальную смесь пошаговой тактической стратегии и карточной игры с ролевыми элементами. Игра включает в себя одиночную кампанию, режим выживания и режим дуэлей.Тип издания: LicenseРазработчик: HerocraftЖанр: Strategy (Turn-based, Tactical), IsometricЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1C843A593BCEB6D3C43DE1D9382B9EB475F0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138126   (411748) от 31.08.2022
-
-Сити-Айленд / City Island (2009) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Риццо обитает на тихом и спокойном островке в Бронксе. Темперамента некоторым членам семьи не занимать, и у каждого свой «скелет в шкафу». А когда тайное станет явным, то последствия будут подобны урагану.Производство: США / CineSon Entertainment, Filmsmith Productions, Lucky Monkey PicturesЖанр: Комедия, Драма, МелодрамаРежиссер: Рэймонд Де ФелиттаАктеры: Алан Аркин, Энди Гарсиа, Стивен Стрейт, Джулианна Маргулис, Эмили Мортимер, Джордж Алой, Шарон Анджела, Вернон Кэмпбелл, Лора Кио, Джозеф Кинтрон, Кёртисс КукПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0265F4F44217D165CD4AFA4E543750625DAC2485
 ```
 
 https://mybot314.ru/tekegram_catalog/

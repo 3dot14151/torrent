@@ -1,3 +1,109 @@
+###  Публикация: 83302   (188126) от 16.09.2023
+
+Индиана Джонс: В поисках утраченного ковчега / Raiders of the Lost Ark (1981) HDTVRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный археолог и специалист по оккультным наукам доктор Джонс получает опасное задание от правительства США. Он должен отправиться на поиски уникальной реликвии - священного Ковчега. Но Индиана и не подозревает, что аналогичный приказ уже получили тайные агенты Адольфа Гитлера...
+Этим потрясающим фильмом продюсер Джордж Лукас и режиссер Стивен Спилберг положили (   Читать дальше...   )Производство: СШАЖанр: Боевик, Триллер, ПриключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Карен Аллен, Пол Фриман, Рональд Лэйси, Джон Рис-Дэвис, Денхолм Эллиотт, Альфред Молина, Энтони ХиггинсПеревод: Многоголосый закадровыйПродолжительность: 01:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6751F37B9B854D26DD0BD7CB6358D29E00A3FECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591008   (187753) от 16.11.2022
+
+Жандарм и инопланетяне / Le gendarme et les extra-terrestres (1978) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все земные враги уже побеждены бесстрашным отрядом жандармов и их сержантом Крюшо. Осталось помериться силами с пришельцами, и они действительно высаживаются в окрестностях Сен-Тропе. Коварные существа принимают вид обычных людей, отличаясь от них только тем, что пьют масло и ржавеют от воды.Производство: Франция, Италия / Société Nouvelle de Cinématographie (SNC)Жанр: комедия, криминал, фантастикаРежиссер: Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Морис Риш, Жан-Пьер Рамбаль, Ги Гроссо, Мишель Модо, Франс Румилли, Жан-Роже Коссимон, Марио Давид, Жак ФрансуаПеревод: Дублированный, многоголосый закадровыйСубтитры: Русские, английские, французскиеПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B2E90FB282A8AE603A84BEDCB98A88371E765F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590810   (187750) от 16.11.2022
+
+Жандарм на отдыхе / Le Gendarme en balade (1970) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всему приходит конец. Начальство сочло наших героев слишком старыми и отправило их на заслуженный отдых. Это трагический момент в жизни такого мужественного офицера как сержант Крюшо.
+Запершись в роскошном замке своей жены, он предается унынию. Приезд бывшего начальника Жербера выводит его из спячки. Они собирают своих подчиненных, надевают любимую жандармскую форму (   Читать дальше...   )Производство: Франция, Италия /  Société Nouvelle de Cinématographie (SNC), Mega FilmЖанр: комедия, приключения, криминалРежиссер: Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Жан Лефевр, Ги Гроссо, Мишель Модо, Николь Вервиль, Франс Румилли, Ив Венсан, Кристиан Марен, Клоди ЖансакПеревод: Многоголосый закадровыйСубтитры: Русские, английские, французскиеПродолжительность: 01:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BED813EF5460F9B9625203B98C2F331C1CC0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591023   (187720) от 16.11.2022
+
+Жандарм и жандарметки / Le Gendarme et les gendarmettes (1982) BDRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187720.jpg" />
+</div>
+
+
+###  Подробнее
+
+К жандармам прислали стажеров — девушек. Жандармы в восторге — проводят учения с новенькими в три смены, 24 часа в сутки. А их жены в шоке — закатывают скандалы и требуют увольнения новых сотрудниц. Через неделю всех девушек похитили: на чёрной машине увезли в неизвестном направлении и даже не потребовали выкупа. Если Крюшо не вернет стажеров завтра к утру, его уволят (   Читать дальше...   )Производство: Франция / Société Nouvelle de Cinématographie (SNC)Жанр: комедия, криминалРежиссер: Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Морис Риш, Жак Франсуа, Ги Гроссо, Мишель Модо, Патрик Прежан, Франс Румилли, Катрин Серр, Никес Жан-ЛуиПеревод: Многоголосый закадровыйСубтитры: Английские, французскиеПродолжительность: 01:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240BCE0E3621E03507CB3EB2E6AB8885283F5D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591264   (187457) от 17.11.2022
 
 Жандарм и жандарметки / Le Gendarme et les gendarmettes (1982) BDRemux [H.264/1080p]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187457.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187050.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187003.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186941.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186928.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186911.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186695.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186372.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185828.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185818.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185632.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185044.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184939.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184858.jpg" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184850.jpg" />
 </div>
 
 
@@ -403,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184705.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184425.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184305.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183753.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183563.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183379.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183126.jpg" />
 </div>
 
 
@@ -571,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F62E5D1008345EFA03E2D7E81297581E496F43DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592730   (183095) от 23.11.2022
-
-Дейзи Миллер / Daisy Miller (1974) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий фильма основан на одноимённой повести Генри Джеймса 1878 года. Красивая, кокетливая, молодая американка, посещает швейцарский спа-салон со своей нервно-робкой, болтливой матерью и избалованным младшим братом Рэндольфом. Там она знакомится с американцем из высшего общества , эмигрантом Фредериком Уинтерборном, которого его вдовствующая тётя миссис Костелло (   Читать дальше...   )Производство: США, Copa del Oro, The Directors CompanyЖанр: драма, мелодрама, комедияРежиссер: Питер БогдановичАктеры: Сибилл Шеперд, Бэрри Браун, Клорис Личмен, Милдред Нэтвик, Айлин Бреннан, Дуилио Дель Прете, Джеймс МакМартри, Николас Джонс, Джордж Морфоген, Жан-Паскаль БонгардПеревод: профессиональный двухголосый (СВ Дубль)Субтитры: английские SDHПродолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C073F2DDF6D0CF3366873AB1451EF1E6E51B2215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427471   (182978) от 28.11.2020
-
-Свяжи меня / Atame! / Tie Me Up! Tie Me Down! (1989) BDRip [H.264/1080p] [Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рики выписывается из психиатрической клиники и начинает преследовать Марину — актрису, порнозвезду и наркоманку, с которой имел случайную связь год назад во время одного из побегов. Герой похищает Марину и держит связанной, пока сам спит или вынужден отлучаться по делам. Постепенно у похищенной развивается стокгольмский синдром, и она влюбляется в Рики.
-Однажды Марине (   Читать дальше...   )Производство: Испания / El Deseo S.AЖанр: Драма, мелодрама, комедия, криминалРежиссер: Педро АльмодоварАктеры: Виктория Абриль, Антонио Бандерас, Лолес Леон, Мария Барранко, Росси де Пальма, Хульета Серрано, Франсиско Рабаль, Лола Кардона, Монтсе Г. Ромеу, Эмильяно РедондоПеревод: Профессиональный (многоголосый, двухголосый закадровый), Авторский (одноголосый, закадровый)Субтитры: Русские (полные 2 вида, на основе R5 и DVO), английскиеПродолжительность: 01:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D02528070E7C091ED3BD516985D03110D459B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571503   (182927) от 28.11.2020
-
-Безумие / Frenzy (1972) [1080p] Blu-ray
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ричард Блени обвиняется в совершении серии убийств женщин, которые найдены задушенными мужскими галстуками. Подозрение падает на него после того, как обнаружены тела его бывшей жены и подружки. Дело кажется настолько очевидным, что полиции не составляет труда получить ордер на арест Блени. Однако после того как Ричарда приговорили к тюремному заключению сроком на (   Читать дальше...   )Жанр: триллер, криминалРежиссер: Альфред ХичкокАктеры: Джон Финч, Алек МакКоуэн, Бэрри Фостер, Билли Уайтлоу, Анна Мэсси, Барбара Ли-Хант, Бернард Криббинс, Вивьен Мерчант, Майкл Бейтс, Жан МаршПеревод: ДублированныйСубтитры: Английский, Датский, Голландский, Финнский, Французский, Немецкий, Итальянский, Японский, Норвежский, Португальский, Русский, Испанский, ШведскийПродолжительность: 01:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0FB5CE0FB1DE451A93F978A5679A0845D4879D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491574   (182917) от 28.11.2020
-
-Бандолеро! / Bandolero! (1968) [1080p] BDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дерзких контрабандистов и отважных бандолеро, мексиканские простолюдины считают лицами поэтическими. Ди - крепкий парень вне закона. Он со своим приятелем решает ограбить банк в маленьком техасском городке. Во время налета в перестрелке один из них убивает богатого владельца местного ранчо. Полиция арестовывает грабителей и приговаривает их к смертной казни через (   Читать дальше...   )Жанр: боевик, драма, мелодрама, криминал, вестернРежиссер: Эндрю В. МакЛагленАктеры: Джеймс Стюарт, Дин Мартин, Рэкел Уэлч, Джордж Кеннеди, Эндрю Прайн, Уилл Гир, Клинт Ричи, Денвер Пайл, Том Хитон, Руди ДиасПеревод: Многоголосый закадровыйСубтитры: Английские, Русские, ФранцузскиеПродолжительность: 01:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B16980B7755D58D185BE7D3DAAABFFCA26BCD26
 ```
 
 https://mybot314.ru/tekegram_catalog/

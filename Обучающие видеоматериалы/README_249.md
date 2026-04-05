@@ -1,3 +1,29 @@
+###  Публикация: 1515101   (170712) от 05.12.2021
+
+Udemy, Камилла Мукатаева | Основная грамматика английского (полный курс для A1 - B2) (2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170712.jpg" />
+</div>
+
+
+###  Подробнее
+
+После прохождения этого курса, ты поймешь всю основную грамматику английского до B2 (Intermediate). Курс сделан так, что бы вы смогли использовать свои знания в реальной жизни, а не только в тестах! За 4 года опыта работы, я поняла, что неуверенность в своём английском и страх говорить кроется в плохо освоенной базе. Поэтому именно в этом я хочу помочь, ведь после (   Читать дальше...   )Производство: UdemyЖанр: Английский языкПродолжительность: 06:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D40511D0467C63489C8812835663C489D33C6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515014   (170709) от 05.12.2021
 
 VideoSmile, Михаил Бычков | Супер 2D моушн-графика (2019) PCRec
@@ -6,7 +32,7 @@ VideoSmile, Михаил Бычков | Супер 2D моушн-графика 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170709.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Udemy, Anton Golosnichenko | Хуки React на практике [2021] (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170702.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170699.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Udemy, Nikolay Naydenov | Head anatomy and sculpting exercises course (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170698.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Udemy, Роман Панёв | Kotlin с нуля + разработка при�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170667.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170656.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Udemy, Murtez Alrohani | Модульное тестирование Node.js / N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170482.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Udemy, Krista King | Станьте Мастером Математическо�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170379.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ Udemy, Darrin Lile | Blender 2.8 UV Mapping (2019) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170223.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ JUG Ru Group | Mobius 2021 Moscow. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170209.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ JUG Ru Group | DotNext 2021 Moscow. Конференция для .NET-разр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170188.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ JUG Ru Group | VideoTech 2021. Конференция по технология�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170136.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ OTUS, Сурен Хоренян | Python-разработчик. Базовый 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170118.jpg" />
 </div>
 
 
@@ -364,7 +390,7 @@ JUG Ru Group | C++ Russia 2021. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170078.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ JUG Ru Group | SmartData 2021. Конференция по Data Engineering (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170034.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169916.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169409.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ Podlodka Teamlead Crew | Коммуникации в команде и проц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169351.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Udemy, Nikita Sergeev | Как создать свой онлайн курс: с
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169280.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169247.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Udemy, Alex Marshal | Java для начинающих 2020. С нуля до Ju
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169189.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Udemy, Илья Фофанов | Полное руководство по Python
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169131.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168873.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Udemy, Глеб Михайлов | Data Science с Глебом Михайлов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168574.jpg" />
 </div>
 
 
@@ -667,7 +693,7 @@ Podlodka QA Crew | Сезон 2. Мобильное тестирование и 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168338.jpg" />
 </div>
 
 
@@ -678,33 +704,6 @@ Podlodka QA Crew | Сезон 2. Мобильное тестирование и 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5F25573FE3DF1BE8311D913BBF0EFB735BFD431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430972   (168247) от 12.12.2020
-
-Podlodka QA Crew | Карьерный рост и процессы тестирования (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поговорим о многообразии компетенций современного QA инженера, о том, почему недостаточно просто «войти в айти», и о том, как строить свое развитие эффективно. Обсудим, какие существуют альтернативы «классическому» разветвлению специалистов в области обеспечения качества – в технари/автоматизаторы или в менеджеры и что для этого нужно знать и уметь.
-Эксперты с опытом (   Читать дальше...   )Производство: Podlodka QA CrewЖанр: QA, тестированиеПродолжительность: 26:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA544EFFE697C2357E86DEAC5BABB69C3379B8D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

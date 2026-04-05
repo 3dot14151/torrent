@@ -1,3 +1,55 @@
+###  Публикация: 1265890   (572147) от 21.05.2019
+
+За шкуру полицейского / Pour la peau d'un flic (1981) BDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив Шукас и его очаровательная секретарша Шарлотта расследуют исчезновение слепой девушки. Поиски выводят их на банду наркоторговцев, тесно связанную с коррумпированными полицейскимиПроизводство: Франция / Adel ProductionsЖанр: Боевик, Триллер, Криминал, МелодрамаРежиссер: Ален ДелонАктеры: Ален Делон, Анн Парийо, Мишель Оклер, Даниэль Секкальди, Жан-Пьер Даррас, Ксавье Депра, Жак Риспаль, Жерар Эрольд, Пьер Бело, Анник Алан, Паскаль Робертс, Жан Барни, Этьен Шико, Уилли Холт, Мишель Беррёр, Филипп Кастелли, Мари МарчакПеревод: Многоголосый Эй Би Видео по заказу Первого канала
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A0A08894672B040C0FDE6EFE0300958568600A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 12640   (572014) от 28.07.2012
+
+Гений дзюдо / Judo Saga / (1965) DVDRip
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перевод: Советский дубляж на к/с им. М. Горького.Формат: XviDПродолжительность: 02:30:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918489   (571677) от 27.07.2015
 
 Шинэндоа / Shenandoah (1965) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571677.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571634.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571428.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571338.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571128.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570615.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570212.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570042.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569750.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569192.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568766.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568737.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568059.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568024.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567977.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567796.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567677.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567100.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566930.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566856.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566603.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566365.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566132.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565151.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBFD58A35B52448022280B5443EA2AF2C64166BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 84836   (564739) от 23.07.2017
-
-Развод по-Итальянски / Divorzio all'italiana (1961) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добропорядочный 40-летний семьянин Фердинандо, страдает в браке с Розалией, глупой, скандальной, одержимой сексом. В мечтах он убивает ее всякими изощренными способами, а наяву терпит ее домогательства, так как развод в Италии невозможен. Неожиданно он влюбляется в свою юную кузину Анджелу и свобода теперь необходима ему как воздух. Пора превратить мечты в реальность, (   Читать дальше...   )Жанр: КомедияРежиссер: Пьетро ДжермиАктеры: Марчелло Мастроянни, Даниела Рокка, Стефания Сандрелли, Леопольдо Триесте, Анжела Кардиле.Перевод: ДублированныйПродолжительность: 01:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3B299965D38127404D2E4F0A9F7AACBCAF995B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919024   (564395) от 31.07.2015
-
-Человек с востока / E poi lo chiamarono il magnifico (1972) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавные приключения молодого чопорного англичанина Томаса на Диком Западе, где он под руководством трёх довольно миролюбивых душегубов постигает простую жизнь без затей. Томас шокирует местных жителей своими манерами, и, влюбившись в дочь богатого фермера, окончательно становится посмешищем. Но не надолго. Его товарищи берутся превратить парня в настоящего лихого (   Читать дальше...   )Производство: Италия, Франция, ЮгославияЖанр: Боевик, комедия, вестернРежиссер: Энцо БарбониАктеры: Теренс Хилл, Грегори Уэлкотт, Янти Соммер, Доминик Барто, Гарри Кэри мл., Дэн Старки, Энзо Фиермонте, Риккардо Пиццути, Жан Луис, Сол Борджезе, Штеффен Захариас, Пупо Де Люка, Франсуа Рене Гербер, Фурио Меникони, Фортунато Арена, Фарбер Бернард, Спартако Конверси, Джон БартаПеревод: Профессиональный двухголосый (НТВ+)Продолжительность: 02:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD3DC6D39AEDDCFC2ECA871DEEF82F4927EEC7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

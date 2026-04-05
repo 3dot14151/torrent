@@ -1,3 +1,119 @@
+###  Публикация: 945014   (437578) от 08.10.2015
+
+Hurts - Surrender (2015) Deluxe Edition [MP3|320 кб/с]<Synthpop, Pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrender
+02. Some Kind of Heaven
+03. Why
+04. Nothing Will Be Bigger Than Us(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35603F44878A987F06053B974EF3A11B16DE029F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063187   (437475) от 15.10.2016
+
+VA - Deep In Ibiza (Dive In A Deep House Journey) (2016) [FLAC|Lossless|WEB-DL|tracks] <House,Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Duo Deep - Special Brothers [06:33]
+02 Jean Aita & The Noox - Can You Do Something (Llobos) [04:42]
+03 Duo Deep - Piano Rode [05:03]
+04 David's Sammarco - A Deep History [04:55](   Читать дальше...   )Жанр: House,Deep HouseПродолжительность: 01:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0BD50E394C81A4BA4EAD463A534D25C1631AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164983   (437391) от 11.09.2017
+
+Fourth Dimension - The Perfect Form (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Equilibria (6:30)
+02.  Filamentation (5:22)
+03.  Ionization (7:36)
+04.  Magnetization (6:32)(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5606FF1770C398F414F11942ED6AE76F75FC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165103   (437384) от 11.09.2017
+
+VA - Study & Relax Vol 1 (Finest Relaxed After Work Music) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gerrit van der Meer - Love Drops 05:47
+02. Luc Forlorn - What Remains 04:52
+03. Artur Bayramgalin - Leaving The Island 02:20
+04. KoolSax - Strange Night 04:44(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B79BFDBDCE461C5706CF648C3802BC15F3D9F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062306   (437270) от 15.10.2016
 
 Alex Skolnick's Planetary Coalition - Planetary Coalition (2014) [MP3|320 Kbps] <World Music>
@@ -6,7 +122,7 @@ Alex Skolnick's Planetary Coalition - Planetary Coalition (2014) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437270.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Luxury Tunes: Dubai (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437232.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Balance 022 (mixed by Funk D'Void) (2012) [MP3|~245 кб/с (V0)]<House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436951.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ Bryan Ferry - Shameless (2011) [FLAC|Lossless|tracks] <Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436949.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ VA - Uplifting Trance Essentials Vol 3 (2020) [MP3|320 Kbps] <Trance, UpliftingT
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436161.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ VA - Dance Hits The 00s (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436073.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ Kim & Buran - Orbita (2016) Limited Edition, 2022 Reissue, Maschina Records [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436056.jpg" />
 </div>
 
 
@@ -216,7 +332,7 @@ Dance Hits 2014, Dj Trance Vibes - Chillout Side of the Club (2019) [MP3|320 Kbp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435947.jpg" />
 </div>
 
 
@@ -245,7 +361,7 @@ The Sunset Lounge Orchestra - 2 albums (2008, 2010) [MP3|320 Kbps] <Lounge, Easy
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435855.jpg" />
 </div>
 
 
@@ -274,7 +390,7 @@ VA - Milk & Sugar Present Beach Sessions (2018) [MP3|320 Kbps] <House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435716.jpg" />
 </div>
 
 
@@ -303,7 +419,7 @@ David Dando-Moore (Detritus, A Wake A Week) - Discography 14 Releases (2002-2019
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435662.jpg" />
 </div>
 
 
@@ -332,7 +448,7 @@ VA - Coffee Tunes: Brasil (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435442.jpg" />
 </div>
 
 
@@ -361,7 +477,7 @@ VA - Night Tunes: Shanghai (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435439.jpg" />
 </div>
 
 
@@ -390,7 +506,7 @@ VA - Amsterdam Trance Sessions Vol.12 (2017) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435229.jpg" />
 </div>
 
 
@@ -419,7 +535,7 @@ VA - DJ Viper-Garage Sound System_Mix001 (2006) [FLAC|Lossless|image + .cue] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435164.jpg" />
 </div>
 
 
@@ -448,7 +564,7 @@ Mesh - Runway (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Coldwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434689.jpg" />
 </div>
 
 
@@ -477,7 +593,7 @@ Odesza - A Moment Apart (2017) [MP3|320 Kbps] <Chillout, Downtempo, Future Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434426.jpg" />
 </div>
 
 
@@ -506,7 +622,7 @@ VA - Club Traxx - Progressive House 21 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434315.jpg" />
 </div>
 
 
@@ -535,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434226.jpg" />
 </div>
 
 
@@ -564,7 +680,7 @@ VA - Personal Space Nikolay Mikryukov (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434064.jpg" />
 </div>
 
 
@@ -593,7 +709,7 @@ Contracult Collective - A Cult Of Opposition (2020) EP [MP3|320 Kbps] <Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433964.jpg" />
 </div>
 
 
@@ -622,7 +738,7 @@ VA - Nine Years Of Techno: Selected by Rafa Ortega (2019) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433891.jpg" />
 </div>
 
 
@@ -636,122 +752,6 @@ VA - Nine Years Of Techno: Selected by Rafa Ortega (2019) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3A7A7DF15F15596B1D92693E5C4B387F3A0783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323643   (433890) от 05.09.2019
-
-Soultek - Dreaming Under A Starlit Sky (2014) echospace [detroit] [FLAC|Lossless|tracks+.cue] <Techno, Ambient, Dub Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Control (06:12)
- 02. Never Letting Go (06:15)
- 03. The Dub Star (06:00)
- 04. Tints And Shades (06:02)(   Читать дальше...   )Тип издания: CDЖанр: Techno, Ambient, Dub Techno, Electro •Продолжительность: 01:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C54E85669C0A2A8C7886F64BE8A1D684057F7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323707   (433886) от 05.09.2019
-
-DJ Ensamble - Trancing Queen (2005) [MP3|320 Kbps] <Trance, Eurodance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Night City (4:36)
-02. The Winner Takes It All (4:23)
-03. Dancing Queen (feat. Paivi Lepisto) (3:25)
-04. Lay All Your Love On Me (4:40)(   Читать дальше...   )Жанр: Trance, EurodanceПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45377F7ECA7494DA22F933C7D935A9CD6CB69F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410580   (433869) от 22.09.2020
-
-VA - Morning Coffee Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Liege - Morning Coffee (Original Mix)
-02. Marga Sol - French Kiss (Original Mix)
-03. Evandro Reis - Sunny Beach
-04. Michael E - One Love Bossa Nova (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCCEC986544B3059335A415A7EA5B437BD17C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323732   (433799) от 05.09.2019
-
-DJ Ensamble - Trancing Queen (2005) [FLAC|Lossless|tracks + .cue] <Trance, Eurodance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Night City (4:36)
-02. The Winner Takes It All (4:23)
-03. Dancing Queen (feat. Paivi Lepisto) (3:25)
-04. Lay All Your Love On Me (4:40)(   Читать дальше...   )Жанр: Trance, EurodanceПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47042B16C15301121D94C2DD46D72670F66B24A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

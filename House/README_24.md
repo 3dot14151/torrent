@@ -1,3 +1,61 @@
+###  Публикация: 1015092   (775077) от 10.05.2016
+
+VA - Maximum House Expressions Vol.1 (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serg - Drums (Club Edit) (feat. Mikel Romero) 5:34
+02. DJ Miller - Virgin's Back (Radio Version) 3:51
+03. DJ Crazy-I-Li - Want the Summer Back (Extended Mix) (feat. Theodora) 5:09
+04. Solidshark - Dirty Talk (Radio Edit) 3:04(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 03:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E2089C845AB0A556B7C486945D6AD7EF5896B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277953   (774311) от 23.01.2019
+
+VA - Ibiza Winter Island 2019 (2018) The Deep-House Edition [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Progression-Rome (5th Avenue Mix)
+02. Ernst Bentley-Get It Now (Original Mix)
+03. Club Elite-Fujinami (Red Motel Deep Mix)
+04. One Light Project-Fashion Show (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D414E6E94A7DCCFD4DA4F4AF8BDD43CF60EE2075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015327   (774280) от 11.05.2016
 
 VA - We Love House Music Vol. 1 (40 Sexy Tunes) (2016) [MP3|320 кб/с] <Dance, House, Electro House>
@@ -6,7 +64,7 @@ VA - We Love House Music Vol. 1 (40 Sexy Tunes) (2016) [MP3|320 кб/с] <Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774280.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Top 100 Of Fitness Music June 2020 Get Things Started [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772966.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Holi Festival (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771740.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Enhanced Ibiza 2016 (unmixed tracks) (2016) [MP3|320 кб/с] <House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771730.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - EDM 2016 Ibiza Opening Party (2016) [MP3|320 кб/с] <House, Electro House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771590.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Matura Party Mallorca (2016) [MP3|320 кб/с] <Club, House, Funky, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770540.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Ultimate Ibiza House 2016 Progressive Edition (2016) [MP3|320 кб/с] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770537.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Gate To Ibiza (The Opening Party 2016) (2016) [MP3|320 кб/с] <Dance, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770531.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Sexy Latin House - Hot Tribal Club Trax With a Blend of Latin Vibes (2016) 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770450.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Workout Massive Music 2020 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769840.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Ultimate Dub Style Techno, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769696.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Deep House Babes (2016) [MP3|320 кб/с] <House, Tech House, Deep House, E
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769687.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Work Body Extreme Top Selection (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769236.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Tales From Another World Vol.1 - South America (2019) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768536.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - High Class Fitness Session (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768193.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Funky Disco House Grooves Vol.09 (2018) [MP3|320 Kbps] <House, Indie-Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768186.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Wake Your Mind Sessions 003 (Mixed by Cosmic Gate) (2018) [MP3|320 Kbps] <P
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768183.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768103.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768068.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - 80s Comeback Hits Remixed & Reloaded (2017) [MP3|320 Kbps] <Funky, Club Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767928.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767689.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Balkan Connection Summer 2020 (2020) [MP3|320 Kbps] <Progressive-House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767646.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Running Beats Vol.16 - Musik Zum Laufen (Inkl. 5 KM & 10 KM Mix) (2018) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767360.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Powerwalk 2020 [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766945.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Powerwalk 2020 [MP3|320 Kbps] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:986E6B3C6D4F5E109B3AD7817E47BCCB8FEBE4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125946   (766393) от 17.04.2017
-
-VA - Transmission Express Vol.2 - Electro House (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  George Morillo - Bass Boobing  7:26
-02.  Cass & Mangan - Bible Belt (Cass & Mangan Play Early)  7:24
-03.  Daniel Forbes & DJ Mogwai - Underground Technology (Quinten de Rozario Tek Remix)  7:06
-04.  Adrian Davis - Burning Boy (Ztarbuc Remix)  6:54(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52F298DA4CA4BE5600F0CA9EBE4C99221DCC1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126248   (766383) от 17.04.2017
-
-VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Express - Freedom (feat Sabrina Johnston - Midnight Express Dream mix) 05:46
-02. Robbie Act - I Want You 03:53
-03. Niko Deejay - Black Queen Black Machine (feat Janet Gray - Funky version - Piano Chic) 06:11
-04. Blade/Masquenada Family - Private Life (feat Noel McCalla - Frank Dancers Demosphere remix) 05:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD22F335462A39A5E18921EF1BDF20B0CBC49FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Golden Ballads 2003 (2003) Compilation, Unofficial Release [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28463.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Falco - Ultimate Hits - A New Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28376.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Gold Italia 2024 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italian 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28358.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Best 80s Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27119.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - All Stars 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27001.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25452.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lady Gaga - Mayhem (2025) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25313.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Secret Service - When The Night Closes In (1985) 1st Scandinavian Press [APE|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24042.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Chris Norman - Junction 55 (2024) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23715.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23537.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Best 80s Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22719.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - 20s Soft Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21259.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Relaxing Chill Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21117.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ V.A. - Iconic 80s Pop Rock (2025) [FLAC|Lossless|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20291.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Patricia Kaas - 1987 - 2025 Une vie (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20286.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - 90s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19681.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19490.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Suzanne Vega - Flying with Angels (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Fol
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19447.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Like, Omigod! The '80s Pop Culture Box (Totally) (2002) 7 x CD, Compilation
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19164.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ V.A. - 00s Love Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18606.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Britney Spears - Oops!... I Did It Again (2000) 25th Anniversary Edition, 2025, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17989.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - 50s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17970.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ V.A. - Pop Summer Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17675.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Dance Pop Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17098.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Craig David - Commitment (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16540.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ V.A. - 80's Best Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15595.jpg" />
 </div>
 
 

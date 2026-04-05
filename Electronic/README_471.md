@@ -1,3 +1,119 @@
+###  Публикация: 1700774   (116706) от 19.02.2024
+
+VA - Milk & Sugar Winter Sessions 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Tension (Chromeo Remix) [4:07]
+02. Lorenz Rhode - Back (Purple Disco Machine Remix) [6:33]
+03. Mattei & Omich - Wrong Is Right (Milk & Sugar Extended Edit) [5:16]
+04. Lenny Kravitz - Low (David Guetta Extended Remix) [4:41](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F778370704DD6342034B06C907BA9C256E1DDD1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700888   (116491) от 20.02.2024
+
+Smash Palace - Smash Palace (1985) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Power Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living on the Borderline (04:33)
+02. Count the Days (04:08)
+03. Love Will Find a Way (03:21)
+04. Never Say No Again (04:16)(   Читать дальше...   )Жанр: New Wave, Power PopПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636431F82C71EB3A14A2BD7BFE720B40F86A7C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701298   (116393) от 21.02.2024
+
+Red Zone Planet - Asteria (2023) [MP3|320 Kbps] <Synthwave, Space Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116393.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Silverine
+2. Asteria
+3. Cosmic Lady
+4. Lonely Robot(   Читать дальше...   )Жанр: Synthwave, Space RockПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2153F3D599FF08DD9AD01FA09D0F6F0A4007FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701308   (116386) от 21.02.2024
+
+VA - Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiff Lacey & Raz Nitzan - Take Me Back To Winter (Original Mix) [3:52]
+02. Maria Nayler & Stargazers - My One Foundation (Original Mix) [3:49]
+03. Artena & Elara - Walked Through The Pain (Original Mix) [4:21]
+04. George Jema & Katty Heath - Make You Believe (Original Mix) [3:52](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B62E6664277D1AE95FA7FAD580B24561A615D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701469   (116370) от 21.02.2024
 
 VA - Gaming Music Chill After Hours (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -6,7 +122,7 @@ VA - Gaming Music Chill After Hours (2024) [MP3|320 Kbps] <Dance, Club, House, E
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116370.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Murdock - X-Ray (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116364.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ Eight Seconds - Big Houses (1990) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Progr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116352.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ VA - Tranceparent Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116351.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ Eight Seconds - Almacantar (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116345.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ VA - Trance Winter 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116013.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ VA - Ancient Egypt Seasons - Peret (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116012.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ VA - Ancient Egypt Seasons - Akhet (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115979.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ Jean Michel Jarre - Versailles 400 Live (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115910.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Industrial Destruction - Indifference (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115875.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ Nutronic - Futures / Futures (Instrumentals) (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115871.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ Allie X - 2 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Canadian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115870.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115859.jpg" />
 </div>
 
 
@@ -387,7 +503,7 @@ Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115858.jpg" />
 </div>
 
 
@@ -414,7 +530,7 @@ Max Cruise - Heatwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115856.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ VA - Pure Dreams, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115846.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ Weber & Weber - World In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115830.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ VA - Armin van Buuren - A State Of Trance 1161 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115824.jpg" />
 </div>
 
 
@@ -530,7 +646,7 @@ Max Cruise - Night Cruise (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115821.jpg" />
 </div>
 
 
@@ -559,7 +675,7 @@ Missing Persons - Hollywood Lie (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115820.jpg" />
 </div>
 
 
@@ -588,7 +704,7 @@ FM-84 - Atlas (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115714.jpg" />
 </div>
 
 
@@ -617,7 +733,7 @@ VA - Calm Reflections: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115712.jpg" />
 </div>
 
 
@@ -631,122 +747,6 @@ VA - Calm Reflections: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E45BDA5B2C052DCF8B534D97487C7ED4B6C0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702551   (115711) от 25.02.2024
-
-VA - Sea Melodies: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Leading Me On (4:00)
-02. Velvet Dreamer - Eternal Beauty (Original Mix) (5:07)
-03. Lemongrass - Deep River (Original Mix) (6:28)
-04. Incognita Alma - Sentiment (6:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4667A55EFADE3D380D7813270FB5C38A4EF4CA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702448   (115707) от 25.02.2024
-
-VA - Pure Dreams, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keisuke Sakai - Mizu Sumu (Original Mix) (4:40)
-02. Gushi, Raffunk - The Way to You (Intro) (Original Mix) (1:48)
-03. L.M.F. - Raghupati (Traditional Song) (Original Mix) (4:13)
-04. Shortlab - Passionate Motivation (Extended Mix) (6:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63C49A7681C00BC782655692077AE2DDCA88FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702430   (115706) от 25.02.2024
-
-Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Synthwave, Saxophone>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nights at Sunset Beach (04:55)
-02. Risky Business (04:45)
-03. Midnight Glow (04:35)
-04. La Contessa (02:35)(   Читать дальше...   )Жанр: Smooth Jazz, Synthwave, SaxophoneПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98BC94DECC0E0DC7750898F8DFEC1696F06D77D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702566   (115702) от 25.02.2024
-
-ShockOne - Organism Algorithm (2024) [FLAC|Lossless|WEB-DL|tracks] <drum 'n' bass, dubstep, drumstep, electro house>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alone [00:04:45]
-02 - Open Your Mind [00:04:06]
-03 - Ready To Go (feat. Bright Sparks) [00:03:32]
-04 - Organism Algorithm [00:04:41](   Читать дальше...   )Жанр: drum 'n' bass, dubstep, drumstep, electro houseПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E9F94CC5D875D0513DB3828A0429E7996463E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

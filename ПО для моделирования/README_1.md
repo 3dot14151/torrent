@@ -1,3 +1,82 @@
+###  Публикация: 1480413   (1008943) от 28.06.2021
+
+ArchvizTools - Picture Frame Generator 1.2 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генератор рамок изображения - это скрипт, который автоматически создает 3D-модель рамки изображения в 3dsMax. Имеет много стилей рамок с гибкой возможностью настройки под необходимый размер стены.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D757B5F04C541C3EA90994E47799F4F498C9EC1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480419   (1008927) от 28.06.2021
+
+ArchvizTools - Sliding & Stacking Door Generator 2.0 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин для генерации пластиковых раздвижный дверей. В своём арсенале имеет много популярных форм-факторов, с возможностью настройки ширины и высоты.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81180AE76D6ACC57FF0D92DA079CA903F9084AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351763   (1001517) от 12.01.2020
+
+RayFire 1.84 for 3ds max 2020 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный в своем роде плагин для 3DS Max, позволяющий симулировать разрушение объектов от столкновений и выстрелов.
+Фрагментируйте предметы, уничтожайте, разрушайте, крушите, ломайте, сейте хаос, взрывайте, устраивайте цепную детонацию и многие другие спецэффекты, которые вы всегда мечтали сделать в «Максе», с новой версией известного плагина Rayfire, теперь для (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB11F1DE6491661D1BCFC3309417ABAC81EF350A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972119   (982631) от 05.01.2016
 
 MakeHuman 1.0.2 [Multi/Ru]
@@ -6,7 +85,7 @@ MakeHuman 1.0.2 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982631.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Aviz Studio ATiles Pro 2.62 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963948.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Planetside Terragen 3.3.03.0 Pro Plus Animation [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958098.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ V-RayMtl Converter 3 3.97 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945058.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ Quick Stitch v1.0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888131.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ Soulburn scripts pack v.112 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884202.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ V-ray 5.10.22 Cinema 4D R20-R24 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883731.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ FD UVToolkit 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876424.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ Noise Scape v.2 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874096.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ Motion Drop 1.5 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868536.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ WTools3D LWCAD v2018.31 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868525.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ City Rig 2.13 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868523.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ Aurora 3D Animation Maker 16.01070843 Portable by PortableAppС [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862069.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ Aurora 3D Animation Maker 16.03230029 RePack & Portable (x86) by FoXtrot [Multi/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860407.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ Vertex Normal Tool v1.04 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858356.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ NextLimit RealFlow 3.1.1.0026 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844121.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ X-Particles 2.1 Build 08 Pro [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818701.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ IKMAX v1.0b for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816932.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ HDR Light Studio 5.4.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812559.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ Autodesk Entertainment Creation Suite Ultimate 2016 (x64) [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812501.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ Simulation Lab Software SimLab Composer 8 8.2.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811441.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ Folding Title GENERATOR 1-0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808653.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ Vectric Aspire 8.517 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799969.jpg" />
 </div>
 
 
@@ -595,84 +674,6 @@ Vectric Aspire - программное обеспечение построен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9BC51A9C61D80FDFA52F07E71F374AD6ACC7548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385319   (797737) от 24.05.2020
-
-Toporizer 1.0 For Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагина Toporizer 1.0 который может создать простую уникальную топографическую геометрию на основе более сложной исходной геометрии.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4E9235231F8DF136A7BA968C7F77EA9D9D2366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201389   (792603) от 24.01.2018
-
-Quixel Suite 2.3.2 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quixel Suite - собрание таких плагинов как Quixel NDO Painter, Quixel DDO Painter и Quixel 3DO Baker в едином решении. Данные плагины для Adobe Photoshop позволяют создавать и редактировать карты нормалей, редактировать и создавать текстуры 3d-обьектов, а также просматривать готовый результат сразу на 3d-моделях. Имеет большой набор готовых физически корректных "умных" (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D556F1A144E2109B10FD17234AEAC8ED514E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065875   (786900) от 19.01.2019
-
-UVlayout Professional 2.09.04 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786900.jpg" />
-</div>
-
-
-###  Подробнее
-
-UVLayout - это самостоятельное приложение для создания и редактирования UV-координат треxмерных объектов. Приложение используется многими профессионалами (например Gnomon) в индустрии игр и визуальных эффектов. Уникальный подход и инструменты UVLayout - позволяют создавать высококачественные развертки с минимальными искажениями в значительно меньшие сроки, чем при (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4D043BBA04A43E8865253D1B902D55C8E82B98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1197856   (812019) от 09.01.2018
+
+VA - Magic Of Trance (Mixed by Dr.Gri) (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dan Smooth & Elena T  -  Follow You (Original Mix)  7:12
+02.  M.PRAVDA & HollyMy  -  Internal Voice (Original Mix)  7:12
+03.  Independent Art  -  Sonus (Original Mix)  5:34
+04.  Nytigen  -  Renessance (Original Mix)  8:52(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D77DDC99FD6CB1A025D48CE37598E10A50EECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198531   (804503) от 13.01.2018
+
+VA - A State Of Trance Top 20: January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Above & Beyond  -  Northern Soul (feat. Richard Bedford) (Extended Mix)  7:16
+02.  Super8 & Tab  -  Pressure (Extended Mix)  4:07
+03.  ARTY  -  Twilight Tonight (Steve Brian Extended Mix)  5:30
+04.  Sultan + Shepard  -  Almost Home (feat. Nadia Ali & IRO) (Mark Sixma Extended Remix)  5:48(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88A984FB33BF1E879AA2824D3699C7809BF7966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198634   (804407) от 13.01.2018
 
 VA - Best Of LW Trance II (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Best Of LW Trance II (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804407.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Black Hole Trance Music 01-18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802949.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - EDM Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802830.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Redux Miami Selection (Mixed By Guy Alexander) (2017) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802122.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Trance Winter Essentials Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801689.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Embedded Audio EA presents: Best Of 2017 (Mixed by Sebastian Montano) (2018
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801143.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Atragun - Younity (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801139.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Silk Music Pres. Trance Treasures 09 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801137.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Ferry Corsten presents:Corstenas Countdown March (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800651.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance In Space 5 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800644.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Dawid Jurzyk - Mysterious Forest (2017)Single [MP3|320 Kbps] <Progressive Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800488.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Suanda Music Year Mix 2018 (Mixed by Roman Messer) (2018) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799894.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - The Best Of Suanda Base 2018: Mixed by Michael Milov (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799404.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Trance Spring Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799259.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Global DJ Broadcast Top 20 April (2016) [MP3|320 кб/с] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797665.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Infrasonic Progressive Selection Volume 6 (2018) [MP3|320 Kbps] <Trance,Pro
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797537.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797534.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - We Are Trance - January (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797532.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - AVA Seasons Selected By Somna - Winter (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797007.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Tech-Trance Essentials Vol. 1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797003.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Amsterdam Trance Sessions Vol.14 (2018) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796998.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796993.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ The Digital Blonde - N3ON (2021) [MP3|320 Kbps] <Trance, Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796860.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Special Sport Songs 11 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796450.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Special Sport Songs 11 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D9501989F56E4BBEAEF70384D866B97814C2F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200249   (796410) от 20.01.2018
-
-VA - Your Running Music 11 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sl4tch feat. Doris Stadler - In a Game 02:37
-02. The Boogeyman - Be Free (Radio Edit) 03:03
-03. Mr. Groove - Mouraria (Radio Edit) 03:20
-04. Dr. Beat - How About You (Radio Edit) 03:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3800EB9FCABDCBFBA77AE66167B7A7481A222E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011822   (796357) от 28.04.2016
-
-Markus Schulz - Watch The World (2016) [MP3|320 кб/с] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Code 10-66 (02:41)
-02. Markus Schulz feat. Brooke Tomlinson - In The Night (03:53)
-03. Markus Schulz feat. Ethan Thompson - Love Me Like You Never Did (04:23)
-04. Markus Schulz feat. Delacey - Destiny (03:48)(   Читать дальше...   )Производство: Black Hole RecordingsЖанр: Trance, Progressive HouseПродолжительность: 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66412A880D40C21B7D0CCAF87D0DE54AFB97F39
 ```
 
 https://mybot314.ru/tekegram_catalog/

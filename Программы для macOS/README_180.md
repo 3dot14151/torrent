@@ -1,3 +1,58 @@
+###  Публикация: 1704224   (114471) от 03.03.2024
+
+ServerCat for Mac 1.8.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114471.jpg" />
+</div>
+
+
+###  Подробнее
+
+ServerCat — это приложение Docker Management и SSH Terminal.
+ServerCat позволяет легко отслеживать состояние вашего сервера на вашем мобильном телефоне. Он показывает подробное состояние работы ваших серверов и докер-контейнеров.
+Требуется только учетная запись SSH без каких-либо других зависимостей. Он не будет устанавливать какие-либо инструменты в вашу систему.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2024Разработчик: © 2024 BayeПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Упрощенный китайский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD7B15882B65CFBFBF735E736B03B38714D0459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704201   (114469) от 03.03.2024
+
+iShowU Studio 2 v.2.3.14 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
+iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени. iShowU (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: shinywhitebox ltdПоддерживаемая ОС: macOS 10.14.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0F1818516272527F2B6EA253A3103C246FAC50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704446   (114428) от 04.03.2024
 
 Tenorshare 4uKey - Password Manager 1.6.3 [Multi/Ru]
@@ -6,7 +61,7 @@ Tenorshare 4uKey - Password Manager 1.6.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114428.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Paste 4 for Mac 4.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114421.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Aiseesoft Audio Converter for Mac 9.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114349.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Dropover Pro for Mac 4.13.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114341.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ djay - DJ App & AI Mixer 5.1.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114337.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ Reader for Mac 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114331.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ Data Extractor 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114330.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ TunesKit AceMovi Video Editor 4.9.23 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114325.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ MetaRename for Mac 1.0.10 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114313.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ SnapMotion Unlimited for Mac 5.2.1. [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114303.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ GroupsPro 5.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114284.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ Easy Data Transform for Mac 1.46.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114181.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ MarginNote 3 Pro v.3.7.25 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114161.jpg" />
 </div>
 
 
@@ -351,7 +406,7 @@ iReal Pro 2024.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114157.jpg" />
 </div>
 
 
@@ -377,7 +432,7 @@ DxO FilmPack 7 for Mac v.7.5.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114150.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ Menuwhere 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114138.jpg" />
 </div>
 
 
@@ -429,7 +484,7 @@ AList Desktop for Mac ARM 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114135.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ DxO ViewPoint 4 for Mac v.4.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114122.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ AList Desktop for Mac iNTEL 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114117.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114066.jpg" />
 </div>
 
 
@@ -536,7 +591,7 @@ DxO PhotoLab 6 ELITE Edition 6.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114043.jpg" />
 </div>
 
 
@@ -563,7 +618,7 @@ Boinx FotoMagico Pro 6 v.6.5.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114025.jpg" />
 </div>
 
 
@@ -590,7 +645,7 @@ A Better Finder Attributes 7 v.7.31 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114005.jpg" />
 </div>
 
 
@@ -616,7 +671,7 @@ Nova 11.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113996.jpg" />
 </div>
 
 
@@ -628,59 +683,6 @@ Nova поддерживает отдельные задачи сборки, за
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:001D24A29730880253EE8C0FB8B7B1FE73E27AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705148   (113991) от 07.03.2024
-
-SimpleMind − Mind Mapping 2.3.3 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуальная фиксация и организация идей, мыслей, информации и их взаимосвязей при помощи ментальных карт. С этой программой сразу же можно заняться именно построением ментальных карт, простота и удобство, плюс приятный дизайн и синхронизация с Dropbox.
-SimpleMind - это инструмент для построения интеллект-карт, который превращает ваш Мас в устройство для мозгового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2009-2023, ModelMaker Tools - SimpleAppsПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3186CE22F1A9FAC51CA22C26CD2085568E983573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705224   (113986) от 07.03.2024
-
-Navicat for SQL Server on Mac 16.3.7 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для SQL Server предоставляет вам полностью графический подход к управлению и разработке баз данных. Быстро и легко создавайте, редактируйте и удаляйте все объекты базы данных или выполняйте SQL-запросы и сценарии. Подключайтесь к любому локальному или удаленному SQL-серверу и совместимо с облачными базами данных, такими как Amazon RDS и Microsoft Azure.Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57617B01C8C8EBDF88A892CFC862E48BB456038D
 ```
 
 https://mybot314.ru/tekegram_catalog/

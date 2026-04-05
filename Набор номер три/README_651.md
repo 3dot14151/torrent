@@ -1,3 +1,215 @@
+###  Публикация: 1675661   (59884) от 13.04.2024
+
+Слово пацана. Кровь на асфальте (2023) WEBRip [H.264/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перестройка уже шагнула с кремлевских трибун на улицы больших и малых городов. Советский Союз умирает на глазах, и вместе с предчувствием перемен, свободой слова, музыки и цен появляется и свобода от совести, граничащая с беспределом. Пока родители борются за выживание, брошенные всеми дети сбиваются в уличные стаи и «бьются за асфальт». Бьются в буквальном смысле, (   Читать дальше...   )Производство: Россия / TOOMUCH Production, НМГ Студия, ИРИЖанр: драма, криминалРежиссер: Жора КрыжовниковАктеры: Иван Янковский, Елизавета Базыкина, Ольга Лапшина, Никита Кологривый, Лев Зулькарнаев, Рузиль Минекаев, Юлия Александрова, Антон Васильев, Сергей Бурунов, Иван МакаревичСубтитры: русские (SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51364001895BCEF0F5160497784875F3EE120E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715379   (59867) от 13.04.2024
+
+С Днём космонавтики!
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59867.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 апреля 1961 года состоялся первый полет человека в космос, который совершил Юрий Гагарин — советский гражданин. Это историческое событие открыло путь для исследования космического пространства на благо всего человечества. С праздником!
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 271133   (59789) от 14.04.2024
+
+Майк и Молли / Mike and Molly (2010) HDTVRip (сезон 1, серии 1-24 из 24) Кураж-Бамбей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер Майк Биггс – полицейский с добрым сердцем, который искренне желает сбросить вес. Напарник Майка, офицер Карл Макмиллан, худой и болтливый всезнайка, который, несмотря на поддразнивания, поддерживает Майка на его пути к стройности и любви.
+Во время одного из собраний Майк встретил Молли Флинн, милую учительницу четвертого класса, которая относится к своим пышным (   Читать дальше...   )Производство: США / Bonanza Productions, Chuck Lorre Productions, Warner Bros. TelevisionЖанр: мелодрама, комедияРежиссер: Джеймс Берроуз, Фил Льюис, Майкл МакДональдАктеры: Билли Гарделл, Мелисса Маккарти, Рено Уилсон, Кэти Миксон, Свузи Кёрц, Ньямби Ньямби, Луис Мустилльо, Ронди Рид, Клео Кинг, Suzie QПеревод: Одноголосый профессиональный (Кураж-Бамбей)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682B5E39F3FA28DDBBE452AFA2B53F1685FCA59C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716136   (59781) от 14.04.2024
+
+Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 04.2024 by OVGorskiy
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59781.jpg" />
+</div>
+
+
+###  Подробнее
+
+обновленные оригинальные русские образы ОС “Windows® 11™” от Microsoft наиболее востребованных редакций, объединенных в 1 образ (x64) стандартными средствами от Microsoft ADK (DISM). Включает в себя обновлённые "чистые", почти не модифицированные образы редакций ОС Windows 11 Pro, Home и Enterprise x64. В системе присутствуют финальные, оригинальные обновления (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76148B9BDA66C00D47018428D857AE68F5E0799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714401   (59780) от 14.04.2024
+
+Дюна: Часть вторая / Dune: Part Two (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потеряв все, Пол Атрейдес ищет поддержки у населения Арракиса - фрименов. Ему нужно познать их обычаи и понять, как выживать на планете-пустыне, населенной огромными червями и сырьем под названием «спайс». Только так он может положить конец правлению Харконненов и преобразить Дюну. Но в своих видениях Пол видит лишь страшное будущее: за победой над Великим Домом (   Читать дальше...   )Производство: США, Канада, ОАЭ, Венгрия, Италия, Новая Зеландия, Иордания, Гамбия / Legendary Pictures, Villeneuve Films, Warner Bros., Warner Bros. EntertainmentЖанр: фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Зендея, Ребекка Фергюсон, Хавьер Бардем, Джош Бролин, Остин Батлер, Флоренс Пью, Дэйв Батиста, Кристофер Уокен, Леа СейдуПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (hardsub на туземную речь, Full, SDH)Продолжительность: 02:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76348166026A0E76A396FCC76DFBB32441EF142D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 395501   (59779) от 14.04.2024
+
+Ария - Феникс (2011) [FLAC|Lossless]<Heavy Metal>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрный квадрат (5:20)
+02. Равновесие сил (4:14)
+03. История одного убийцы (6:23)
+04. Чёрная легенда (8:03)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1AFF8197FAD81A80ECED3393B129D6FD65E435C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714642   (59759) от 14.04.2024
+
+Советский ответ Стенли Кубрику: пять причин пересмотреть фильм «Москва – Кассиопея»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовое кино, ставшее революционным для своего времени. Первая советская фантастика для детей и хрестоматийный образец, включенный в программу киновузов. Всесоюзный хит и шедевр, получивший высокую оценку за рубежом. Приключенческая лента Ричарда Викторова вышла в прокат в 1974 году и сразу же собрала у экранов всех подростков страны. Пожалуй, это было самое громкое (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714615   (59687) от 15.04.2024
+
+В топ-20 сериалов в России сразу пять аниме
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59687.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году японская анимация вызывает у российских зрителей больше интереса, чем отечественные премьеры. Это данные «Индекса Кинопоиск Pro», который анализирует популярность сериалов у зрителей на основе аналитики «Яндекса» и Google.В топ-20 самых популярных проектов первого квартала прослеживается явный азиатский тренд. В списке лидеров сразу пять аниме, дорама (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702989   (59675) от 15.04.2024
 
 Сёгун / Shogun (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-8 из 10) Red Head Sound, LostFilm, HDrezka, Jaskier, TVShows, NewComers (обновляемая)
@@ -6,7 +218,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59675.jpg" />
 </div>
 
 
@@ -32,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59658.jpg" />
 </div>
 
 
@@ -58,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59584.jpg" />
 </div>
 
 
@@ -84,7 +296,7 @@ The Chronicles of Myrtana: Archolos / Хроники Миртаны: Архол�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59570.jpg" />
 </div>
 
 
@@ -110,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59460.jpg" />
 </div>
 
 
@@ -136,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59446.jpg" />
 </div>
 
 
@@ -162,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59371.jpg" />
 </div>
 
 
@@ -188,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59271.jpg" />
 </div>
 
 
@@ -214,7 +426,7 @@ Autodesk AutoCAD 2025 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59255.jpg" />
 </div>
 
 
@@ -240,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>19
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59254.jpg" />
 </div>
 
 
@@ -266,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59246.jpg" />
 </div>
 
 
@@ -292,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59157.jpg" />
 </div>
 
 
@@ -319,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59149.jpg" />
 </div>
 
 
@@ -345,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59057.jpg" />
 </div>
 
 
@@ -372,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59047.jpg" />
 </div>
 
 
@@ -398,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59046.jpg" />
 </div>
 
 
@@ -424,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59044.jpg" />
 </div>
 
 
@@ -450,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58953.jpg" />
 </div>
 
 
@@ -461,217 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717639   (58943) от 22.04.2024
-
-Мятежная Луна, часть 2: Оставляющая шрамы / Rebel Moon - Part Two: The Scargiver (2024) WEBRip [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись на Велдт, Кора с отрядом наёмников и местными крестьянами готовится дать бой превосходящим силам агрессоров под предводительством адмирала Нобла.Производство: США / Grand Electric, The Stone QuarryЖанр: фантастика, боевик, драмаРежиссер: Зак СнайдерАктеры: София Бутелла, Эд Скрейн, Михил Хёйсман, Джимон Хонсу, Пэ Ду-на, Стаз Нэйр, Джена Мэлоун, Стюарт Мартин, Энтони Хопкинс, Кэри ЭлвесПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 02:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C62CAEFC940639341D15BEEB3DC2EB3A6281ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900010   (58941) от 22.04.2024
-
-FarCry по-русски (2015) [Ru] (1.1) Mod
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58941.jpg" />
-</div>
-
-
-###  Подробнее
-
-FarCry по-русски это мод, сделанный на движке cryengine от компании CryTek, на котором был сделан первый FarCry. Мод не является прямым продолжением оригинальной игры, но основывается на происходивших в ней событиях.Тип издания: ModРазработчик: CryTekЖанр: ActionЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF4456616A23B768689A3A5A8164CCD422AFF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571470   (58940) от 22.04.2024
-
-Ленфильм: коллекция фильмов (1924-2016) WEBRip [H.264, H.264/720p, H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия коллекции «Ленфильм» с удалённого YouTube канала LenfilmVideo / LFV / КиноЛента / UCv6pNpCfp3CBTlcZuBIRA-g
-Остальные фильмы добавлены из разных источников, найденных в сети.Производство: СССР, ЛенфильмЖанр: Отечественная КлассикаПродолжительность: 1424:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0937EE4F1E2BC8C0C2F9A8DBF99D793044D51891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998067   (58939) от 22.04.2024
-
-Vampire - The Masquerade: Bloodlines (2004) [Ru/En] (1.0-11.5/dlc) Repack Psycho-A
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vampire - The Masquerade: Bloodlines - компьютерная игра в жанре Action/RPG с элементами survival horror и стелс-экшена, разработанная компанией Troika Games и выпущенная компанией Activision в 2004 году. Игра основана на настольной ролевой игре «Vampire: The Masquerade», выпускаемой издательством White Wolf Publishing, и её действие происходит в той же вселенной (   Читать дальше...   )Тип издания: RepackРазработчик: Troika GamesЖанр: Action (FPS, TPS), RPG, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968DB5BEB195B1C71E224AC54B56ADC837FDFFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717317   (58933) от 22.04.2024
-
-Представлены первые наушники с аппаратным улучшайзером настроения
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская компания Neiry совместно с НМИЦ ПН им. В. М. Бехтерева представила свою новую разработку - прототип наушников Neiry Buds. Как отмечают в пресс-службе, это первые в России наушники-вкладыши со стимуляцией блуждающего нерва внутри ушного канала.В компании объясняют:
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717884   (58847) от 23.04.2024
-
-Я скучаю по механикам из старых игр
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58847.jpg" />
-</div>
-
-
-###  Подробнее
-
-За время существования индустрии разработки игр формул разных механик, способных развлечь нас, придумали не одну сотню. Что-то умерло засветившись в паре игр, что-то ушло со временем, какие-то существуют до сих пор. Есть и такие, которые не просто выжили, но стали мейнстримом, хотя только портят нервы игрокам.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717934   (58815) от 23.04.2024
-
-Роскомнадзор хочет обязать операторов связи проверять звонки в мессенджерах
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58815.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение пяти лет система «Антифрод» Роскомнадзора, используемая для борьбы с подменой трафика во время голосовых вызовов, должна начать выявлять «инциденты» в мессенджерах, в том числе в Telegram и Viber. Об этом пишет «Коммерсантъ» со ссылкой на предварительную версию паспорта федерального проекта «Информационная безопасность», входящего в нацпроект «Экономика (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274486   (58624) от 25.04.2024
-
-Kenshi (2018) [Ru/Multi] (1.0.68f) License GOG (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kenshi – ролевая песочница, действие разворачивается в открытом мире; вы окажетесь в суровой пустоши, где царит закон клинка. Игровой процесс нелинейный, так что вы можете быть поселенцем, торговцем, вором, повстанцем, искателем приключений, фермером, рабом... или просто пищей для каннибалов. Ваша главная цель – выжить. Обучайте своих бойцов, чтобы они из жалких (   Читать дальше...   )Тип издания: LicenseРазработчик: Lo-Fi GamesЖанр: Ролевая игра, Стратегия, Open WorldЯзык озвучки: Английский, Португальский, ЯпонскийЯзык субтитров: Русский, Английский, Португальский, Японский и другиеЯзык интерфейса: Русский, Английский, Португальский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43F059B688CF687A8B95BA1AE258C3A15A062B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1838465   (260894) от 23.11.2025
+
+МИФ.Курсы, Дмитрий Утробин, Анна Устинова, Елена Пичугина и др. | Книжный иллюстратор (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы уверены, что ИЛЛЮСТРАТОРЫ— не кто иные, как СОЗДАТЕЛИ МИРОВ. Благодаря им книга выглядит возвышенно, трогательно, хулигански — так, как хочется. Сделали курс-погружение в мир книгоиздания — с экспертами МИФа (арт-директора, дизайнеры, редакторы и даже совладелец Дмитрий Утробин) и иллюстраторами, которые с нами работают. Вы поймёте, как превратить книгу в АРТ-ОБЪЕКТ. (   Читать дальше...   )Производство: МИФ.КурсыЖанр: Обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 44:52:49Реклама: наложение на видео (плашка спонсора, QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D7A3029F4023C618C901CE669595498092FEB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838573   (260636) от 23.11.2025
+
+Nikolietta calligraphy, Варвара Пантелеева | Курс по каллиграфии Copperplate (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Copperplate», на котором вы освоите искусство каллиграфии, научитесь писать тонким пером и создадите великолепное портфолио. Курс состоит из 8 уроков.Производство: Nikolietta calligraphyЖанр: видеокурс, обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 05:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D278B973C5E947DC377901987112DB91487B4015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838595   (260606) от 23.11.2025
 
 Nikolietta calligraphy, Варвара Пантелеева | Курс по каллиграфии Spencerian Script (2021) WEB-DL [AD] [RU]
@@ -6,7 +58,7 @@ Nikolietta calligraphy, Варвара Пантелеева | Курс по ка
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260606.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Udemy, Vlad Sateev | Master Viral 3D Short Form Content in Blender (2025) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256836.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ FluidCourse, Владислав Хафизов | Печать на 3D принт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256703.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Udemy, Rick Davidson, Grant Abbitt | Blender Environment Artist: Create 3D World
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255568.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Udemy, Stephen Pearson | Soft Body Physics Simulation Guide in Blender 2.9 (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255536.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255391.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ CGMA, Louis Manjarres | Houdini Production Studio: Destruction FX (2022) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255290.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Ben Marriott | Master Motion Design (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255284.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ Thinknetica, Артем Нистратов | Event-Driven Architecture (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255212.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ Gumroad, FlyCat | Avatar Character Modeling in Blender (2023) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255115.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ Motion Design School | 2D Character Design Magician (2022) WEB-DL [AD] [EN / EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255014.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254792.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254666.jpg" />
 </div>
 
 
@@ -363,7 +415,7 @@ Udemy, Nafay Sheikh | Realistic Natural Environments in Unreal Engine 5 (2023) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254664.jpg" />
 </div>
 
 
@@ -390,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254526.jpg" />
 </div>
 
 
@@ -419,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254512.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254510.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254506.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ kontentica, Сергей Беляк | Нейросети. Старт (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254468.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254447.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254429.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Udemy, Rob Tuytel | Creating 3D Environments in Blender 3.2 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254410.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254401.jpg" />
 </div>
 
 
@@ -641,7 +693,7 @@ Sculpt Art, Александр Спиридонов, Сергей Носолюк
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252339.jpg" />
 </div>
 
 
@@ -655,63 +707,6 @@ Sculpt Art, Александр Спиридонов, Сергей Носолюк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98C17543D3D9310DA95EE01DC5363638CB614037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626696   (252243) от 15.05.2023
-
-Gumroad, Fxforfun | SideFX – FFF Houdini Subject 071 (2022) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот учебник предоставляет огромное количество информации для художника Houdini.
-
-Нас ждет увлекательная прогулка по множеству различных задач, начнем с процедурного моделирования статических и динамических объектов. Затем мы перейдем к полностью процедурной геометрии и симуляциям, поиграем с полигонами, кривыми и волюметрикой. Большая часть этого урока будет посвящена (   Читать дальше...   )Производство: Gumroad, FxforfunЖанр: 3D ГрафикаЯзык озвучки: Английский, Русский (Отдельным файлом, перевод: Яндекс)Продолжительность: 37:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76005114988FD77961C496813986D3B000E2D7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633722   (252217) от 16.05.2023
-
-Timesavervfx, Юлия Корчагина| Моушн-графика в Davinci Resolve (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробный курс по 2D моушн-графике в Davinci Resolve!
-
-На этом курсе вас ждет:
-- Создание реального видеопродукта(   Читать дальше...   )Производство: TimesavervfxЖанр: 2D ДизайнЯзык озвучки: РусскийПродолжительность: 12:28:11Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9B6E7C44D6BB2E842C8E2B86385F9D5F49111A
 ```
 
 https://mybot314.ru/tekegram_catalog/

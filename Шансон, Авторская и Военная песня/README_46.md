@@ -1,3 +1,32 @@
+###  Публикация: 239067   (168466) от 12.12.2019
+
+Тимур Шаов - О чем молчал Герасим (2010) [MP3|320 kbps]<Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пара слов о кризисе
+02. Случай в Кремле
+03. Рыбалка
+04. Мусорная куча(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 1:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CCD54C3431A43470D3334B466B5CBDD38B7765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342689   (168440) от 12.12.2020
 
 Жанна Бичевская - 9 Альбомов (1994 - 2007) [FLAC|Lossless|tracks + .cue]<Авторская песня>
@@ -6,7 +35,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168440.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168356.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168226.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167935.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167887.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Самые новые песни о любви 10 (2025) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167414.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Самые новые песни о любви 11 (2025) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167396.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167210.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166023.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Emil Davor -  Une nuit a Moscou (1961) [FLAC|Lossless|WEB-DL|tracks] <Шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165956.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Калина красная 20•Песни, спетые сердцем (2
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165189.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Чёрный тюльпан 6 (2005) [FLAC|Lossless|tracks + .cue]<Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165132.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164507.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Новые хитовые песни 2025, Часть 10 (2025) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162210.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Автоклуб шансона. Хиты в дорогу. 100 (2025) [FLAC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162207.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Новогодняя шансонная-20...06 (2005) [FLAC|Lossless|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162054.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161967.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - 25 лет радио шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Ш�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161919.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - 50 песен радио шансон, Часть 7 (2025) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161891.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161649.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161645.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160238.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159268.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159180.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157413.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C44250AD08C34915E7189FCAE32ED202CA8A3E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270389   (157004) от 19.12.2018
-
-Salvatore Adamo - Si j’osais (2018) [FLAC|Lossless|tracks + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Si j’osais
-02. Rosina
-03. Poor Fool
-04. Perche(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5F735458587AFC7D71F4B955FC67F82E960360
 ```
 
 https://mybot314.ru/tekegram_catalog/

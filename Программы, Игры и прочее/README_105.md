@@ -1,3 +1,110 @@
+###  Публикация: 1659515   (189970) от 11.09.2023
+
+Picture Mushroom - Mushroom ID v2.9.20 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Picture Mushroom — распознавайте грибы мгновенно. Просто сфотографируйте или загрузите фото гриба, и уже через пару секунд приложение Picture Mushroom подскажет вам, что это за гриб.
+Основные функции:
+- Быстрое и точное распознавание многочисленных видов грибов
+- Обширная база данных с большим количеством информации обо всех видах грибов(   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.09.2023Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F1CA5839FFAC869D3E767CB3B41A8B5B3C8665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659509   (189956) от 11.09.2023
+
+Garmin: City Navigator Europe NTU 2024.20 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествуйте по улицам Европы с уверенностью. Этот продукт предоставляет подробные карты дорог и достопримечательностей для вашего совместимого устройства, поэтому вы можете точно и пошагово проложить маршрут до любого адреса или перекрестка. Маршрут к ресторанам, заправочным станциям, жилью, достопримечательностям и многому другому.Тип издания: РазблокированоРелиз состоялся: июль 2023Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144160F1F8FF729CA156AC8F5A69B9574A0F500B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589673   (189882) от 10.11.2022
+
+Word: Поиск Слова Кроссворд v7.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающая игра-кроссворд на Android! Просто проведите пальцем и соедините буквы, чтобы найти нужные скрытые слова. Более 3000 уровней ждут вас, чтобы бросить вызов. Геймплей прост, но сложен в освоении. Загрузите его, свяжите письмо, найдите кроссворды, чтобы тренировать свой мозг и расширить свой словарный запас!Тип издания: ModРелиз состоялся: 05.11.2022Разработчик: Diao Da LLCПоддерживаемая ОС: Android 4.4+Жанр: игра-кроссвордЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5901EA2C1C7F967D8B60DA40D7DDC322A25C2700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589644   (189862) от 10.11.2022
+
+VPN Thailand: VPN в Тайланде 1.85 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и бесплатный Vpn Тайланд позволяет в один клик получить таиландский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения OpenVPN с OpenSSL ключом 2048 бит.Тип издания: ProРелиз состоялся: 4 нояб. 2022 г.Разработчик: AltAppsПоддерживаемая ОС: Android 4.4 и выше / arm64Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553A6E39A34E471889079364D3A5064AACD07655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660267   (189752) от 12.09.2023
 
 Moon+ Reader Pro 8.4 (804001) Mod by Lucky Las [Ru/Multi]
@@ -6,7 +113,7 @@ Moon+ Reader Pro 8.4 (804001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189752.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ VPN Monster - Secure VPN Proxy 2.0.1.5 Mod by RBMods [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189592.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Turbo VPN - Secure VPN Proxy / безопасный ВПН 3.9.7.5 Mod by Brown 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189552.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189233.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189054.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189045.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ AccuBattery Pro 2.1.2 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188768.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188214.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188200.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ CarBit ELM327 OBD2 v3.5.2 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188186.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ OSM Travel - Map West Russia for Garmin (Март 2022 года)
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188146.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ Vanced Tube v5.5.80.115 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188093.jpg" />
 </div>
 
 
@@ -326,7 +433,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188091.jpg" />
 </div>
 
 
@@ -352,7 +459,7 @@ WiFi Analyzer v6.6 (b104) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188090.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ Persona: Бьюти-камера v1.6.52 Mod by Alien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187976.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ GPS АнтиРадар v38.0 Mod by Dymonyxx [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187972.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ Sample VPN - Fast and Safe VPN 1.0.2 b5 Mod by AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187659.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187468.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ vRGB LED IR Remote Control v4.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187463.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ Ocean Aquarium v1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187442.jpg" />
 </div>
 
 
@@ -536,7 +643,7 @@ Universal Copy v6.3.5 Мод by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187433.jpg" />
 </div>
 
 
@@ -562,7 +669,7 @@ English-Russian Dictionary v3.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187412.jpg" />
 </div>
 
 
@@ -574,114 +681,6 @@ English-Russian Dictionary v3.4.1 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DC67E49C139C7A101D1EBCBE1F6B6C0840DB72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591189   (187387) от 17.11.2022
-
-Camera ZOOM FX Premium v6.3.8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь с полным ручным управлением! Присоединяйтесь к миллионам людей, которые используют Camera ZOOM FX. Здесь вы можете сделать столь многое: съемка движения, стабильная съемка, фотофильтры, коллажи, фотокомпозиция и многое другое:
-  - Полностью ручное управление с использованием Camera API2!
-  - Съемка в RAW (на поддерживаемых устройствах)
-  - Настройка ISO, фокусного (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.10.2022Разработчик: androidslideПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1634BFBF980230C0EAEA26225190E1448175415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591241   (187375) от 17.11.2022
-
-Лупа + фонарик (Magnifier) v2.1.5 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая, удобная лупа на App Store – фонарик (светодиод), цифровая лупа и средство для чтения меню в ресторане и этикеток на лекарствах – все в одном. Вы попадали в неудобное положение, когда в ресторане не удается прочесть мелкий шрифт меню? Теперь различить мелкий шрифт вам поможет лучшая лупа с фонариком (светодиодом)! Просто включите лупу и наблюдайте, как она (   Читать дальше...   )Тип издания: ModРелиз состоялся: 11.11.2022Разработчик: RV AppStudiosПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29A98B9077263DF8BD6CAEF948203B8B82E3C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582140   (187319) от 19.09.2023
-
-PDF Utils v15.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое приложение для работы с pdf. Слияние. Разделение. Добавление водяного знака. Сжатие. Позволяет работать с парольной защитой. Поддерживает ивлечение изображений. Способно сохранять web-страницы в .pdf.Тип издания: PremiumРелиз состоялся: 10.09.2023Разработчик: shash9989Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BBDFE8DBF51C9CCBFEBC016DAF7CA1B647C792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591394   (187156) от 18.11.2022
-
-Shopping List SoftList v2.6.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и удобный список покупок для вашего устройства с множеством полезных дополнительных функций: поддержка нескольких списков покупок, управление изображениями продуктов, распознавание штрихкодов, возможность делиться сформированными списками, синхронизация, хранение истории покупок, формирование отчётов для слежения за ценами.
-Скорость и удобство. Создайте свой (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.10.2022Разработчик: Martins SoftwaresПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D58F722C3D391CC8BFE5594B5D9726AA775085
 ```
 
 https://mybot314.ru/tekegram_catalog/

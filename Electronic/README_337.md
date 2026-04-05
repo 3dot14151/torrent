@@ -1,3 +1,119 @@
+###  Публикация: 1417263   (360579) от 19.10.2020
+
+Scuta Scalamanta - Synthwave (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electro>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scuta Scalamanta & Nicholas Croft - Ocean Wave (3:11)
+02. Scuta Scalamanta, Damon Baxter & Peter Diggens - Droid Hunter (3:17)
+03. Scuta Scalamanta, Damon Baxter & Peter Diggens - Yakuza (2:40)
+04. Scuta Scalamanta - Power Kid (3:08)(   Читать дальше...   )Жанр: Synthwave, ElectroПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DFD23D0F717CE7DEA8341304755735B1782D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177099   (360503) от 26.10.2017
+
+ScAnDroid Experiment's - Strange Thoughts (2017) Авторская раздача [MP3|320 Kbps] <Drum & Bass, Dubstep, Trap>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambient Just Think
+02. Voices
+03. Filling 1
+04. When the Head Grey Autumn(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, TrapapПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F398F11068CC0B2A3F7D527C0B2E9D11BF58FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178006   (360495) от 26.10.2017
+
+Blutengel - Black (2017) [MP3|320 Kbps] <Darkwave, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black
+02. Komm zu mir!
+03. There's No Place
+04. Seele(   Читать дальше...   )Жанр: Darkwave, Synth-popПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37560B0AFD99C26FDD33FA7760BC226E5DA104BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577126   (359617) от 17.09.2022
+
+VA - Vocal Melodic House (2022) [MP3|320 Kbps] <Euro Dance, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin & Note U - Brash (Original Mix) (8:03)
+02. MsE - Cage (Original Mix) (2:59)
+03. TREZZ - Without You (Original Mix) (2:41)
+04. Azophi - Break My Heart (Original Mix) (2:23)(   Читать дальше...   )Жанр: Euro Dance, Vocal HouseПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EB15E39866D4F97B72B9D68F13CA4B0EB28144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071438   (359454) от 10.11.2016
 
 Wildlight - The Tide (Acoustic) (2016) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -6,7 +122,7 @@ Wildlight - The Tide (Acoustic) (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359454.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Greg Downey - Live @ Avalon Hollywood Los Angeles, United States 2019-08-31 [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359384.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ John O'Callaghan - Live @ 1015 San Francisco, Satellite Series, Dreamstate, Unit
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359271.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Brickman - Collection 6 Releases (2010-2017) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359270.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Nothing But... Amsterdam Dance Essentials 2018 Big Room (2018) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359139.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Greatest Dance Hits (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359135.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359062.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ VA - Black Hole Trance Music 10-18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359039.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Dirty Vegas - Photograph (2015) D:vision Records [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359032.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Electric Youth - Innerworld (2014) [FLAC|Lossless|tracks + .cue] <Synthpop, New 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359025.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ VA - Beautiful Vocal Trance - Chapter 3 (2019) [MP3|320 Kbps] <Trance, VocalTran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358925.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ VA - Epic Emotional Uplifting Trance (2019) [MP3|320 Kbps] <Trance, VocalTrance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358913.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ VA - Goa 2018, Vol. 3 (2018) [MP3|320 Kbps] <Psychedelic, Progressive, Full On>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358751.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Major Lazer - Major Lazer Essentials (2018) [MP3|320 Kbps] <Electronic,Dance,Pop
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358742.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Easy Summer Top 30 Summer - Spring (2012) [MP3|320 кб/с]<Lounge, ChillOu
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358717.jpg" />
 </div>
 
 
@@ -445,7 +561,7 @@ Near The Parenthesis - Be Still (2006) Duotone Records [FLAC|Lossless|tracks+.cu
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358267.jpg" />
 </div>
 
 
@@ -474,7 +590,7 @@ Muffler - Stone Cold (2015) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358097.jpg" />
 </div>
 
 
@@ -503,7 +619,7 @@ Ulro - The Land Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358066.jpg" />
 </div>
 
 
@@ -532,7 +648,7 @@ Royalston - People On the Ground LP (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357952.jpg" />
 </div>
 
 
@@ -561,7 +677,7 @@ Hugo Kant - Far From Home (2020) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Trip-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357699.jpg" />
 </div>
 
 
@@ -590,7 +706,7 @@ Grenzwellen - Label-Pack 7 Releases (2017-2020) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357683.jpg" />
 </div>
 
 
@@ -619,7 +735,7 @@ Omar Santana, Dre Hectik - Universal Sound (2оо9) [FLAC|Lossless|WEB-DL]<Broke
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357592.jpg" />
 </div>
 
 
@@ -633,122 +749,6 @@ Omar Santana, Dre Hectik - Universal Sound (2оо9) [FLAC|Lossless|WEB-DL]<Broke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17738B5F3CB22377EFBB416558CABA7C827D334D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071696   (357363) от 11.11.2016
-
-VA - Soul House Deluxe - Luxury Melodies (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mazelo Nostra - Boogie Nights 05:03
-02. Stargazer - La Vie Est Belle 04:05
-03. Fuminori Kagajo - Angel (Feat. Selina Campbell) 07:28
-04. Mazelo Nostra - Jazz Cantina 04:16(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24977B1669147A79C40AEB0EAD9168B3B61EA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071735   (357354) от 11.11.2016
-
-VA - Uplifting Trance 2017 (2016) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Morris Ft. Jess Morgan - Made Of Light (Original Mix) 06:52
-02. Amir Hussain & Cathy Burton - Loving You Just The Same (Original Mix) 07:50
-03. Chris Metcalfe & Sue Mclaren - Stardust (Original Mix) 06:26
-04. Arnoud Van Der Werf & F.G. Noise - Nostalgia (Original Mix) 07:32(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A698FC045296EFE6137659F3EA7842862B33266F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071758   (357216) от 11.11.2016
-
-Dino Sabatini - Discography 17 Releases (2008-2016) Prologue, Outis Music [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Minimal, Tribal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes Back (Touched By Howie B) (06:16)
- 02. If (Dino Sabatini Variation) (feat. Antonello Salis) (05:19)
- 03. The Unexpected (ASC's Grey Area Remix) (07:17)
- 04. And It All Ends Here (Salis & Sabatini Variation) (04:05)Жанр: Techno, Ambient, Minimal, Tribal •Продолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42BD417CD5AA6C7164B8B309BD4ECBB5A57E818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256437   (357047) от 21.10.2018
-
-Camille Jones - Difficult Guys (2008) [FLAC|Lossless|tracks + .cue] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Difficult Guys (Radio Edit) (3:55)
-02. Difficult Guys (Beatchuggers & Sidelmann Radio) (3:21)
-03. Difficult Guys (Extended Mix) (6:24)
-04. Difficult Guys (Beatchuggers & Sidelmann Club Mix) (6:41)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BBB9094067F397A73D6B15ABCC6E1C8D7FA8D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

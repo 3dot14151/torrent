@@ -1,84 +1,3 @@
-###  Публикация: 1638520   (197315) от 08.06.2023
-
-Solomon Eseme | Architecting Vue.js 3 Enterprise-Ready Web Applications (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из этой книги вы узнаете, как настроить и установить Vue.js 3 и API композиции и использовать его для создания реальных приложений. Вы приобретете навыки создания многократно используемых компонентов и масштабирования производительности в приложениях Vue.js 3. По мере продвижения книга поможет вам масштабировать производительность с помощью асинхронной ленивой загрузки, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03D36DE6C986CD60D8797A011ED1A02F74A1588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638424   (197277) от 08.06.2023
-
-Л. Йольан и др. | Трехмерное глубокое обучение на Python (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197277.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом руководстве исследуется современное трехмерное глубокое обучение:
-приводятся пошаговые объяснения базовых понятий и концепций, а также
-практические примеры, на основе которых вы сможете создавать собственные
-модели. Вы научитесь обрабатывать 3D-данные с использованием облаков точек,(   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. В. ЛогуноваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44C6928A549172721083A87E6E1EC8EB2C20666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641160   (196801) от 21.06.2023
-
-Ицик Бен-Ган | Оконные функции в T-SQL: По ту сторону анализа данных (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге на конкретных примерах рассматриваются все типы оконных функций: агрегатные, ранжирующие, статистические, а также функции смещения и функции упорядоченного набора. Вы узнаете, как использовать оконные функции для повышения эффективности запросов, которые раньше писали с применением предикатов; освоить концепцию работы с окнами в SQL и строить запросы (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FBBB405C74F713D52B6353DD1F733F15B4036A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643099   (196322) от 30.06.2023
 
 Стейнхарт Джонатан | Тайная жизнь программ. Как создать код, который понравится вашему компьютеру (2023) [PDF]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196322.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196159.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196002.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ Ben Shaw, Saurabh Badhwar, Chris Guest и др. | Web Development with Django (2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195832.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195705.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195605.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195359.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ Daniel Sipos | Drupal 10 Module Development (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195152.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195125.jpg" />
 </div>
 
 
@@ -324,7 +243,7 @@ Ben Weidig | A Functional Approach to Java (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195123.jpg" />
 </div>
 
 
@@ -350,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194982.jpg" />
 </div>
 
 
@@ -376,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194976.jpg" />
 </div>
 
 
@@ -405,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194919.jpg" />
 </div>
 
 
@@ -431,7 +350,7 @@ Eric Smith | Game Development with Rust and WebAssembly (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194891.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ Michael Dinder | Becoming an Enterprise Django Developer (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194839.jpg" />
 </div>
 
 
@@ -485,7 +404,7 @@ Addy Osmani | Learning JavaScript Design Patterns (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194643.jpg" />
 </div>
 
 
@@ -513,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194635.jpg" />
 </div>
 
 
@@ -539,7 +458,7 @@ Michael Kaufmann, Andreas Meier | SQL and NoSQL Databases, 2nd Edition (2023) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194611.jpg" />
 </div>
 
 
@@ -567,7 +486,7 @@ Brian Okken | Python Testing with pytest, 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194609.jpg" />
 </div>
 
 
@@ -593,7 +512,7 @@ Asjad Athick | Getting Started with Elastic Stack 8.0 (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194540.jpg" />
 </div>
 
 
@@ -621,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194537.jpg" />
 </div>
 
 
@@ -648,7 +567,7 @@ John P. Doran | Unity 2022 Mobile Game Development, 3rd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194505.jpg" />
 </div>
 
 
@@ -676,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194483.jpg" />
 </div>
 
 
@@ -687,6 +606,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C949850BB68614F199E82CEB58214D689DE3CCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652528   (194417) от 11.08.2023
+
+Кэти Танимура | SQL для анализа данных (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказывается о возможностях SQL применительно к анализу данных. Сравниваются различные типы баз данных, описаны методы подготовки данных для анализа. Рассказано о типах данных, структуре SQL-запросов, профилировнии, структурировании и очистке данных. Описаны методы анализа временных рядов, трендов, приведены примеры анализа данных с учетом сезонности. Отдельные (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Игорь ДонченкоИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78974150451FA1CA71D00A68FD13927D9FE8D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654155   (194138) от 19.08.2023
+
+Gregory Walters | Python GUI Programming with PAGE (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта всеобъемлющая книга - ваш путеводитель от установки дизайнера PAGE до освоения создания сложных графических интерфейсов.
+
+В книге рассматривается широкий спектр вопросов, начиная от создания внешних интерфейсов для баз данных SQLite (и других баз данных) и заканчивая использованием виджета Canvas для рисования фигур и текста. В книге рассматриваются различные (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F84DF5354D4A642935390EFCA2A041C4E9DF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653910   (194110) от 18.08.2023
+
+Леонард Апельцин | Data Science в действии (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194110.jpg" />
+</div>
+
+
+###  Подробнее
+
+В проектах обработки и анализа данных много движущихся частей, и требуются практика и знания, чтобы создать гармоничную комбинацию кода, алгоритмов, наборов данных, форматов и визуальных представлений. Эта уникальная книга содержит описание пяти практических проектов, включая отслеживание вспышек заболеваний по заголовкам новостей, анализ социальных сетей и поиск (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4652149268276289817EDA2E162DECEC8E13F852
 ```
 
 https://mybot314.ru/tekegram_catalog/

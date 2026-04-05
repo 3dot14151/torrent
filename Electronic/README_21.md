@@ -1,3 +1,61 @@
+###  Публикация: 1616017   (1036715) от 01.03.2023
+
+Caspro - Dimensions (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Synth Rock, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimensions [00:04:37]
+02. Lost in Translation (feat. The Present Sound) [00:03:17]
+03. A.I. and Me [00:03:41]
+04. Station20 [00:03:30](   Читать дальше...   )Жанр: Synthwave, Retrosynth, Synth Rock, New WaveПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B854A5DB087172BED8EDC970314D79DB7BE0260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616284   (1036675) от 01.03.2023
+
+Технология - Всё, Что Ты Хочешь (1991) Reissue, Remastered, 2003, JAM Group International [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Нажми на кнопку
+03. Всё, что ты хочешь
+04. Странные танцы(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF0D6637A3AC865D3AFD0ABAF806907F6095014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442653   (1036667) от 25.01.2021
 
 Gacha Bakradze - Western Arrogance (2020) Die Orakel [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Breaks, Acid, Techno>
@@ -6,7 +64,7 @@ Gacha Bakradze - Western Arrogance (2020) Die Orakel [FLAC|Lossless|WEB-DL|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036667.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Various Artists - Caffeine Rush 2 (High Tea Music Presents) (2020) [FLAC|Lossles
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036663.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Various Artists - High Tea Music: Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036660.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Various Artists - Chai (High Tea Music Presents) (2020) [FLAC|Lossless|WEB-DL|tr
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036658.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Various Artists - Fast Soul Music 2 (2018) [FLAC|Lossless|tracks + .cue] <Drum &
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036633.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Technimatic, A Little Sound - Lakota (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036632.jpg" />
 </div>
 
 
@@ -174,7 +232,7 @@ Various Artists - Rooibos (High Tea Music Presents) (2020) [FLAC|Lossless|WEB-DL
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036628.jpg" />
 </div>
 
 
@@ -203,7 +261,7 @@ Various Artists - Sick Music 2020 (2020) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Drum 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036621.jpg" />
 </div>
 
 
@@ -232,7 +290,7 @@ ZHU, Tame Impala - My Life (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036618.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ Bob Moses, ZHU - Desire (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036609.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ Imperative Reaction - Mirror (2021) [MP3|320 Kbps] <EBM, Electro, Industrial, Sy
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036594.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ VA - Uplifting Trance (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036591.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ Lazer Station - Time Blazer (2021) [MP3|320 Kbps] <Darksynth, Cyberpunk, Synthwa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036580.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Kelly Dean x Kwizma - Therapy EP (2017) SMOG Records [FLAC|Lossless|WEB-DL|track
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036576.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ The Human Voice - Silent Heart (2016) Cyclic Law [FLAC 2.0|48/24|tracks|WEB-DL] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036557.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Abul Mogard - Discography 15 Releases (2012-2021) VCO Records, Ecstatic, Houndst
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036549.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ S1gns Of L1fe - Discography 4 Releases (2013-2021) Arecibo Records, Synphaera [F
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036532.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Sabled Sun (aka Krusseldorf) - Discography 11 Releases (2012-2021) Cryo Chamber 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036481.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ VA - Miami House Week 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036443.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Ultimate Trance Weekender: Amsterdam (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036432.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Dahlia's Tear - Tales from a Feeble Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036410.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ VA - Found Sound 2 (2020) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Elec
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036358.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - Kirill Matveev pres. 25 MixCult Dancefloor Booms (2020) MixCult Records [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036348.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - Synthwave Dreams, Vol. 6 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036337.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ VA - Synthwave Dreams, Vol. 6 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8F57628A35E1A3CC99D5548D10732F250DC0E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442710   (1036334) от 26.01.2021
-
-VA - Synthwave Dreams, Vol. 8 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurolab - Close Your Eyes (6:43)
-02. NINJACAT - Nowhere (4:03)
-03. MOTA - Follow Me (5:33)
-04. Ruslan Mustafin - Wormhole (7:58)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE93C4B67D3867035D18A51FAF384396C556757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442709   (1036331) от 26.01.2021
-
-VA - Synthwave Dreams, Vol. 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurolab - Anna (5:49)
-02. Ruslan Mustafin - Space Carousel (5:10)
-03. TELEGIMNASTIKA - Fury (6:06)
-04. Levitati.On - Arcade Love (Aurolab Remix) (4:32)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D061E5CDBD419513BD43B1594DC001655A52EC7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

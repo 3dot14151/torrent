@@ -1,3 +1,55 @@
+###  Публикация: 1808870   (10180) от 27.07.2025
+
+Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собирайте и продавайте товары из дальних земель, чтобы восстановить разрушенные города и вернуть свет в тёмный мир. Вместе с огненным спутником ловите рыбу, добывайте и собирайте природные ресурсы в Ауртерисе, чтобы объединить жителей этого странного и фантастического мира. В своём путешествии вы исследуете мир, который одновременно красив и таинственен. Освещайте (   Читать дальше...   )Тип издания: RepackРазработчик: KiwickЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Испанский, Шведский и другиеЯзык интерфейса: Русский, Английский, Испанский, Шведский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF69FC9C662D55DAD670F79F837CB2B97243861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808915   (10170) от 27.07.2025
+
+Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abiotic Factor - это научный экшен с видом от первого лица, предложит захватывающую и интригующую историю, полную приключений, опасностей и загадок. Загадки, истории, генетический код, сверхразум - все это лишь часть того, с чем вы столкнетесь в этой увлекательной игре. Вам предстоит сражаться с различными существами из других измерений, которые оказались вместе (   Читать дальше...   )Тип издания: RepackРазработчик: Deep Field GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAAB88F76419FF72049001DE29034BFAC164D261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809076   (10110) от 28.07.2025
 
 M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
@@ -6,7 +58,7 @@ M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10110.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10018.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2.s.de/dlc) Repack Let'sРlay [Complete
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9895.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178111/dlc) Repack seleZen [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9886.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack Wanterlude [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9707.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Let'sРlay [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9599.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9560.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9511.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Sur
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9505.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9458.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250731/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9375.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9275.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9265.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Captain Bones: A Pirates Journey / Пиратское Путешествие (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9250.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.229/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9186.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9165.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.1f/dlc) Repack Let'sРlay [Early Access
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9147.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9080.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Starfield (2023) [Ru/Multi] (1.15.222.0/dlc) Repack seleZen [Digital Premium Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8974.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8881.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Koboo: The Tree Spirit (2024) [En] (1.02) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8809.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8728.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ The RPG (2025) [Ru/Multi] (1.001/1.004) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8726.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8720.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE3336668A1E97B1F7D33F910FEDE251DF5E9477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815121   (8592) от 30.09.2025
-
-Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8592.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателя X-COM, Джулиана Голлопа (Julian Gollop), приходит Chip ‘n Clawz vs. The Brainioids - уникальное сочетание экшена от третьего лица и стратегии в реальном времени. Строй базу, командуй ботами, победи Brains-in-Jars! Играй за Chip или Clawz один или в кооперативе. Осторожно: мозги врагов можно раздавить!Тип издания: RepackРазработчик: Snapshot Games Inc.Жанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09314050D2321E7A468C944ACF782D6F461232D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799857   (8334) от 12.08.2025
-
-Elden Ring Nightreign (2025) [Ru/Multi] (1.02.1/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8334.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Elden Ring Nightreign, игроки переносятся в параллельную версию мира, известную как Лимвельд, где история Elden Ring пошла другим путем после Раскола - войны, которая разрушила баланс сил в этом мрачном фэнтезийном мире. Игра не связана напрямую с основной сюжетной линией Elden Ring, но сохраняет тот же уровень глубины и сложности, который сделал серию так популярной.Тип издания: RepackРазработчик: FromSoftwareЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D861DF7630967B5293D70B3ED3B968309ED1622
 ```
 
 https://mybot314.ru/tekegram_catalog/

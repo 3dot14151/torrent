@@ -6,7 +6,7 @@ Sweet - Reincarnation 1 (2022) Remastered [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684307.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sweet - Reincarnation 2 (2022) Remastered [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684219.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Russ Diapper - No Cure For Curiosity (2011) [MP3|320 кб/с]<Rock, Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683954.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Elephant Plaza - Momentum (2016) [MP3|320 кб/с] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682633.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Titanic - Sea Wolf (1971) Remastered, 2000, Repertoire Records [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681185.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Foreigner - 40 (2017) 2CD [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680803.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Aura - Observations (2016) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678456.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Bryan Adams - So Happy It Hurts (2022) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678388.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Absolute Rock (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_677184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677184.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ The Deep - Psychedelic Moods (1966) Reissue, 2004, Radioactive [MP3|320 Kbps] <G
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677160.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Titanic - Eagle Rock (1973) Reissue, 2000, Repertoire Records [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677158.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ T. Rex - Cosmic Dancer Vol. 1 & Vol. 2 (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676577.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Jeff Liberman - Songwriter / Musician (2016) [MP3|320 Kbps] <Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676526.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Frank Zappa - Discography 85 albums (1966-2010) [MP3|320 кб/с]<Progressive ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676224.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Del Shannon - 13 Albums + 3 Compilation + Singles, Alternative Versions & Bootle
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675159.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Absolute 70's (2007) 3CD [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675098.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ HeadCat - Walk The Walk... Talk The Talk (2011) [MP3|320 Kbps] <Rock & Roll, Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675058.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ The Rolling Stones - Discography (1964-2008) [MP3|320 kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674939.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674775.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Doom Machine - Somewhere, Between, the Truth and the Void (2022) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672895.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671526.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Dreamboats & Petticoats - The Diamond Edition (2017) 4CD [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671518.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Rock Reel (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669233.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Curly Curve - Curly Curve (1973) Reissue, 1998, Repertoire Records [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668894.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Nick Johnston - Atomic Mind (2014) [MP3|320 Kbps] <Instrumental Guitar Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668504.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ Bias (feat. Rick Lambe) - Ships In The Night (1978-1981) Remastered, 2014, WEB [
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668178.jpg" />
 </div>
 
 

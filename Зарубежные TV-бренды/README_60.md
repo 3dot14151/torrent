@@ -6,7 +6,7 @@ Discovery. Гигантские хабы / Giant Hubs (2018) HDTVRip (серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606000.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605671.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605595.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605552.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC: История хирургии. Кровоточащие сердца [2 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605430.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ History Channel: Вселенная. Верхом на комете / The Univer
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605323.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ DV: Невероятное вокруг нас. Супер-глаза [9 из 28
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605218.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NGW: Невероятная Африка. Закума / Extraordinary Africa. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605169.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NGW: Невероятная Африка. Разноцветный контин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605162.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Discovery. Дома на деревьях / Treehouse Masters (2014-2015) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604857.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Animal Planet. Загадочные животные острова Джао / T
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604787.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ History Channel. Подлинная история / What Really Happened (2008)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604642.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ History Channel. Подлинная история / What Really Happened (2008)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604637.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery: Невероятные бассейны / Insane Pools Off the Deep E
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604236.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ NGW: Удивительные селфи животных / Amazing Animal Selfi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604129.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603842.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery. Чудо на Гудзоне / Miracle of the Hudson Plane Crash (200
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603413.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery. Москиты / Mosquito (2017) HDTVRip [H.264/720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603403.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BBC: Восхождение женщины / The Ascent of Woman (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603177.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG: Амазония: наизловещий ритуал / Search for the Amazo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603152.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603071.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Discovery: Вся жизнь - завод / Factory city (2011) HDTV [H.264/1080
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602875.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BBC: Век природы / The Age of Nature (2020) HDTVRip [H.264/720p] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602868.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602637.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Animal Planet: Живой или вымерший. В поисках сумча�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602625.jpg" />
 </div>
 
 

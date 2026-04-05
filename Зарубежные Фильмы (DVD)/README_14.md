@@ -1,29 +1,3 @@
-###  Публикация: 316572   (811711) от 01.04.2011
-
-Чудаки 3D / Jackass 3D (2010) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скандальная, саркастическая, грубая и абсолютно сумасбродная команда Джонни Ноксвила опять готова шокировать, смешить и срывать крышу, и в этот раз они удивят еще больше. Теперь каждый может стать почти соучастником событий, поскольку наблюдать за выходками чудаков можно будет в формате 3D. Фильм состоит из ряда экстремальных трюков, нерядовых шуток и безумных экспериментов, (   Читать дальше...   )Производство: Dickhouse Productions / MTV Films / Paradise F.X. Corp. (США, Румыния)Жанр: документальный / комедияРежиссер: Джефф ТреймейнАктеры: Джонни Ноксвил, Бэм Марджера, Райан Данн, Стив-О, Джейсон Акуна, Престон Лэси, Крис Понтиус, Эрен МакГехи, Дэйв Инглэнд, Лумис Фолл и др.Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: русские / английские / украинскиеПродолжительность: 01:30:10 (Театральная версия) + 01:35:40 (Режиссёрская версия)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 316760   (811249) от 01.04.2011
 
 Чудаки 3D / Jackass 3D (2010) DVD5
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811249.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811112.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809055.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807124.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806604.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805887.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804014.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802877.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801551.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800869.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799817.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798954.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798937.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798609.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798257.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798242.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798238.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797276.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795898.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795110.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794193.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792888.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791932.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790254.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790193.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:591F3167D783DC071BAAC5515868606E59FDCA3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388169   (789989) от 04.06.2020
+
+Джуманджи: Новый уровень / Jumanji: The Next Level (2019) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пытаясь спасти Спенсера, снова попавшего в игру, туда же отправляются и остальные. К их удивлению, правила Джуманджи изменились, и более того — на этот раз в игру затянуло дедулю Спенсера и его престарелого друга Майло. Чтобы выполнить задания и вернуться домой, друзьям предстоит отправиться в путешествие по ранее неизведанным и таинственным уголкам Джуманджи — от (   Читать дальше...   )Производство: США / Sony, 7 Bucks Productions, Matt Tolmach ProductionsЖанр: Фэнтези, боевик, комедия, приключенияРежиссер: Джейк КэзданАктеры: Дуэйн Джонсон, Джек Блэк, Кевин Харт, Карен Гиллан, Ник Джонас, Аквафина, Риз Дэрби, Дэнни ДеВито, Дэнни Гловер, Морган ТернерПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, эстонские, финские, латышские, литовские, норвежские, испанские, шведские, украинскиеПродолжительность: 01:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE6F5ED308DE3D8713229E7BD6BF5CFB91086A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

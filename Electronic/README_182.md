@@ -1,3 +1,61 @@
+###  Публикация: 1283933   (731046) от 19.02.2019
+
+VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arkham Knights - First Light (World Premiere)
+02. Marcus Santoro - Give it All
+03. Above & Beyond - Distorted Truth
+04. Emme & Rodrigo Deem - Black Mamba(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA425E48326BC1544913739A7034D767408C60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127693   (731042) от 22.04.2017
+
+Sуntec - Тhе Веginning (2016) [FLAC|Lossless|image + .cue] <SynthPop, ElectroPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The Beginning
+02. Catch My Fall (feat. Blind Passenger)
+03. Devil In Heaven
+04. I Don't Want To Lie Anymore(   Читать дальше...   )Жанр: SynthPop, ElectroPopПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED25FA6CA1AAE20A5EFA1C11C46C623EB51C499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283891   (731032) от 19.02.2019
 
 Tourist - Everyday (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Chillwave>
@@ -6,7 +64,7 @@ Tourist - Everyday (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Chillwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731032.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Mario Più - Back From Hell (2019) [MP3|320 Kbps] <Trance, Techno>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731027.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Abora Chillout: Best Of 2018 (Mixed by Johannes Fischer & Ori Uplift) (2019
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731025.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Deep Vibes - Ibiza (2016) [MP3|320 кб/с] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730987.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - Nothing But... Pure Progressive House Vol.02 (2017) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730600.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ VA - Nothing But... Pure Progressive House Vol.01 (2017) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730443.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Progressive Trance Vol.6 (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730098.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - The Journey: The Best Remixes Vol.01 (2019) [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730094.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - Trance Mission (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730093.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ VA - Colorful Downbeats Vol . 2 (2019) [MP3|320 Kbps] <Chillout, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730087.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ VA - Big House Beats - Audio Luxury Remixes (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730077.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Feral - Court Of Light (2019) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730057.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Chillout Night (Orange Juice Records) (2019) [MP3|320 Kbps] <Downtempo, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730053.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Luxury Lounge Vol.1 (Special Selected Anthems) (2019) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730049.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Traveling All Time: Downtempo Chill Out (2019) [MP3|320 Kbps] <Downtempo, C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730048.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Blue Sailing: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729914.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Moomin - A Minor Thought (2016) [MP3|320 кб/с] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729888.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Telegraph - Beyond Good & Evil (2016) [MP3|320 кб/с] <Electronic>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729869.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Armin van Buuren - A State of Trance 751 - 765 (2016) [MP3|320 кб/с] <House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729173.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ MORTEN - DJ Mag Italy Radioshow (2022-02-02) [MP3|~245 Kbps (V0)] <Electro House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729022.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Ben Nicky - Live @ Hellfire, Victoria Warehouse Manchester, United Kingdom (2022
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728993.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [FLAC|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728985.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Distant Places Lounge Vol.1: Chillout Your Mind (2022) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728980.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Ko Tao Dreams Vol.2 (2019) [MP3|320 Kbps] <House, DeepHouse, Downtempo>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728965.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Ko Tao Dreams Vol.2 (2019) [MP3|320 Kbps] <House, DeepHouse, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E8316375390E934321F95D64EFE99E1AAA9CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284530   (728964) от 21.02.2019
-
-VA - Believe In Deep Vol.2 (2019) The Groove Edition [MP3|320 Kbps] <House, DeepHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jay Cee Morgan - En Deux Heures (Sunrise Mix) 3:32
-02. Beach & Marine Star - Love Investigation (Original Mix) 2:53
-03. Jonas Layne - I Wait For You (Original Mix) 3:15
-04. Isaac Bradley - Shooting Star (Original Mix) 2:59(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDC03A6082B33268E7FC0059273C599E8D11C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284534   (728962) от 21.02.2019
-
-VA - Workout House Bangers (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uniting Nations - Out of Touch (Extended Mix) 6:19
-02. David Morales & The Face feat. Juliet Roberts - Needin' U (Original Mistake Mix) 7:55
-03. Jeremy Sylvester - Whine Ya Bumper (Club Mix) 6:52
-04. Indo - R U Sleeping (Bump 'N' Flex Remix) 5:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6435E0B92FBDAD853E135EC2EDB9DED39F9A72F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1049526   (543496) от 05.09.2016
+
+Hunted: One Step Too Far (2016) [En] (1.2) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы любите геокэшинг? Это - хороший способ избежать повседневной жизни. Вам нравится заниматься поисками одному и ночью? Действительно, это даст огромный прилив адреналина. Но, что Вы будете делать, когда Вы узнаете, что Вы не одни?Тип издания: RepackРазработчик: DK ProductionsЖанр: Adventure, 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9124DA587D14FF8BBF0064582EBA0BC66886E347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924880   (542258) от 05.08.2015
+
+Game of Thrones - A Telltale Games Series (2014) [Ru/En] (1.0.0.1) Repack R.G. Catalyst [Episode 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры развернется во временном промежутке между финалом третьего и началом пятого сезона телевизионного сериала. Дом Форрестер - одна из влиятельных семей, чья резиденция расположена на севере Вестероса. Они являются вассалами Старков, сильнейшего дома Севера. Главными героями игры станут пять героев, так или иначе связанных с домом Форрестер. По словам разработчиков, (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734A3FBCD8DBF13162799F8DEE0A625348926DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924861   (542238) от 05.08.2015
+
+Submerged (2015) [Ru/Multi] License RELOADED
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Submerged на движке Unreal Engine 4 от бывших разработчиков игр серии Bioshock. Не боевая приключенческая игра от третьего лица, в которой вы исследуете таинственный затопленный город. Вы играете от лица Мику, молодой девушки, которая на маленькой рыбацкой лодке привезла своего раненого брата в этот город.Тип издания: ЛицензияРазработчик: Uppercut Games Pty LtdЖанр: Action, Adventure, 3D, 3rd Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Multi13Язык интерфейса: Русский, Английский, Multi13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DFCBF951333BF967790CA139BF291B0536EA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922503   (542218) от 05.08.2015
 
 Blues & Bullets: Episode 1 (2015) [Ru/En] License CODEX
@@ -6,7 +84,7 @@ Blues & Bullets: Episode 1 (2015) [Ru/En] License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542218.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Dream (2015) [Ru/Multi] (1.0.8767.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539772.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Draugen (2019) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539423.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.2.100) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539419.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Dungeons of Edera (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537046.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Don't Play With Dolls (2018) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534758.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Jotun (2015) [Ru/Multi] (1.0/upd3) Repack Other s [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534152.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ The Initiate (2017) [En] (1.05) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533218.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Tacoma (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533043.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532188.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Broken Age - The Complete Adventure (2014) [Ru/Multi] (2.4.800398) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531977.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531205.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Tacoma (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530974.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Memoria (2013) [Ru/Multi] (1.1.4.0336) SteamRip R.G. Игроманы
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529910.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528954.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ Repentant (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528464.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ Distorted Reality (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528365.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ STASIS (2015) [Ru/Multi] (1.09.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527885.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ Pathologic 2 (2019) [Ru/En] (1.4.25127) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527877.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ The Vanishing of Ethan Carter Redux (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527515.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ Legacy: Dark Shadows / Наследие: Тени Прошлого (2004) [Ru] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526296.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ Forgotten Faces (2017) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525809.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0.0.1/upd13) Repack =nemos= [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525075.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0.0.1/upd13) Repack =nemos= [E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4632536EE743D5CEB94645292A903B13E90490B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304060   (523434) от 09.07.2019
-
-Irony Curtain: From Matryoshka with Love (2019) [Multi] (1.0.5) License GOG [Revolutionary Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше великое государство Матрешка пригласило представителя западных СМИ собственными глазами увидеть величие и блеск коммунизма. Журналист-счастливчик станет первым, кому выпадет честь погреться в лучах великолепия нашего милосердного Вождя, воплощения всего лучшего, что есть в мире. А кроме того, у него невиданные усы.Тип издания: LicenseРазработчик: Artifex MundiЖанр: Приключение, Квест, КомедияЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ПольскийЯзык интерфейса: Английский, Немецкий, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44637285130C58F7A3B1D1CDEC637EC36EAC0160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313720   (522713) от 10.07.2019
-
-Monsters of Little Haven (2019) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522713.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе интерактивной новеллы «Monsters of Little Haven» — история из небольшой деревни Литл Хейвен. В центре событий оказывается двенадцатилетний Кеннет и его младшая сестра Эсма — дети семейства Мёрфи, которые чередой запутанных событий нападают на след таинственного монстра. Нелинейность истории позволит узнать самые разные тайны, окружающие семейство Мёрфи, (   Читать дальше...   )Тип издания: RepackРазработчик: Nikita Kaf ProductionsЖанр: Adventure (Novel), 2DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B47CD6135F00781BFDABBD12A64F434E8AFCA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313727   (522706) от 10.07.2019
-
-Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0001/dlc) License HOODLUM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522706.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ваш родной город напали орки и вы находите себе компанию из троих таких же героев. Вы прячетесь в неизвестном лесу. Вдруг перед вами появляется колдунья, показывает дом неподалеку и утверждает, будто может дать вам еду, воду и кров. Однако, когда вы оказываетесь внутри, она исчезает. Перед входом вы замечаете, что на самом деле это пещера. Затем вы узнаете, что (   Читать дальше...   )Тип издания: LicenseРазработчик: HexGameStudioЖанр: Adventure, RPG, Strategy, 3DЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260B0626BCBA692ABE303E6DC4D5B8CAAD4C42BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

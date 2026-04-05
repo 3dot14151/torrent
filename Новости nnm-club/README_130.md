@@ -1,3 +1,64 @@
+###  Публикация: 854235   (610694) от 01.07.2017
+
+Office HD: TextMaker, PlanMaker и Presentations v2016.767.0623 Patched [Ru/Multi] - мощный офисный пакет для планшетов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный офисный пакет для планшетов, а не для смартфонов. Самый серьезный офис для андроид - немцы максимально скопировали MS Office. Одни инструкции на textmaker и planmaker - по 500 и 700 страниц. Planmaker имеет даже некоторые функции, которых нет в Excel, разве что макросы не поддерживаются.Тип издания: Пиратка / ВзломанаРелиз состоялся: 27.06.2017Разработчик: SoftMaker Software GmbHПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911D7F16925ECA0D1B67D72EBB483EDD2CE232AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524796   (610637) от 19.07.2012
+
+VA - Музыка к фильму Брат, Брат2 (3CD) (2012) [MP3|320 кб/с]<Саундтрек, rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Смысловые Галлюцинации — Розовые очки
+ 02. Океан Ельзи — Кавачай
+ 03. Сплин — Молоко и мед
+ 04. Воплi Вiдоплясова — День народження
+ 05. Павел Кузьмин & Жанна — Верю я
+ 06. Настя — Ветер
+ 07. Би-2 — Свадебная
+ 08. Телевизор — Ты на пути в чикаго
+ 09. Танкi — Возьми меня силой
+ 10. Сергей Савин — С тобой(   Читать дальше...   )Жанр: Саундтрек, rockПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E91065C8666F4E72B3B8E71375A84D4307292A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524528   (610635) от 19.07.2012
 
 [PS3] Hard Corps: Uprising [PAL/Eng] (2011)
@@ -6,7 +67,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610635.jpg" />
 </div>
 
 
@@ -32,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_610631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610631.jpg" />
 </div>
 
 
@@ -67,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_610548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610548.jpg" />
 </div>
 
 
@@ -93,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610215.jpg" />
 </div>
 
 
@@ -120,7 +181,7 @@ State of Decay 2 (2018) [Ru/Multi] (1.3160.34.2/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610204.jpg" />
 </div>
 
 
@@ -146,7 +207,7 @@ CrossOver Linux 17.5.0 [x86-x64] (deb, rpm, bin)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610189.jpg" />
 </div>
 
 
@@ -173,7 +234,7 @@ APUS Launcher 1.8.9 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610181.jpg" />
 </div>
 
 
@@ -201,7 +262,7 @@ CCleaner 5.07.5261 Free | Professional | Business | Technician Edition RePack (&
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610173.jpg" />
 </div>
 
 
@@ -227,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610169.jpg" />
 </div>
 
 
@@ -253,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610165.jpg" />
 </div>
 
 
@@ -279,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610162.jpg" />
 </div>
 
 
@@ -305,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610003.jpg" />
 </div>
 
 
@@ -333,7 +394,7 @@ Alpha Polaris / Alpha Polaris: Ужас во льдах [Ru] (L) 2011 | R.G. Ori
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610001.jpg" />
 </div>
 
 
@@ -359,7 +420,7 @@ CorelDRAW Graphics Suite 2019 21.1.0.628 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609793.jpg" />
 </div>
 
 
@@ -385,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_609763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_609763.jpg" />
 </div>
 
 
@@ -411,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609553.jpg" />
 </div>
 
 
@@ -437,7 +498,7 @@ Avira Phantom VPN Pro 2.8.4.30090 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608972.jpg" />
 </div>
 
 
@@ -463,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_608858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_608858.jpg" />
 </div>
 
 
@@ -489,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_608577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_608577.jpg" />
 </div>
 
 
@@ -515,7 +576,7 @@ Linux Deepin 15.6 [x64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608311.jpg" />
 </div>
 
 
@@ -541,7 +602,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 14.06.18 [Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608299.jpg" />
 </div>
 
 
@@ -568,7 +629,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 15.06.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608295.jpg" />
 </div>
 
 
@@ -596,7 +657,7 @@ Adobe Muse CC 2015 Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608179.jpg" />
 </div>
 
 
@@ -622,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608175.jpg" />
 </div>
 
 
@@ -633,58 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A43C4763B509494D83BE27D56E0EE598F5319565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296701   (608057) от 19.04.2019
-
-РКС представляет перспективные разработки и технологии в области микроэлектроники
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_608057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холдинг «Российские космические системы» (РКС, входит в Госкорпорацию «РОСКОСМОС») провел в ходе 22-й Международной выставки электронных компонентов ExpoElectronica презентацию новых разработок и технологий производства в области микроэлектроники. Выставка прошла 15–17 апреля в Москве в Международном выставочном центра «Крокус Экспо».РКС представил гостям и участникам (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278278   (607890) от 19.04.2019
-
-Звёздный путь: Дискавери / Star Trek: Discovery (2019) WEBRip [H.265/1080p-LQ] (сезон 2, серии 1-14 из 14) SDI Media
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие второй главы развернется за десять лет до событий оригинального «Звездного пути» и заполнит пробелы между знаменитой пилотной серией под названием "Клетка", которая стилистически отличается от шоу, и всеми любимым сериалом. Возможно, аудитория увидит, как Спок трансформируется из более человечного и расслабленного персонажа в рассудительного и (   Читать дальше...   )Производство: США / CBS Television Studios, Living Dead Guy Productions, Roddenberry EntertainmentЖанр: фантастика, боевик, драма, приключенияРежиссер: Олатунде Осунсанми, Дуглас Арниокоски, Джонатан ФрейксАктеры: Сонекуа Мартин-Грин, Даг Джонс, Энтони Рэпп, Мэри Вайсман, Шазад Латиф, Эмили Куттс, Джейсон Айзекс, Энсон Маунт, Джулианна Гроссман и др.Перевод: Многоголосый закадровый, профессиональный - SDI MediaСубтитры: русские, английскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAD1ADE26FC5675D8E1DC99E0F720FA6C063DA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

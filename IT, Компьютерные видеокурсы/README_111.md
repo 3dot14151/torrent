@@ -1,29 +1,3 @@
-###  Публикация: 1770565   (32246) от 02.01.2025
-
-Udemy, Bogdan Stashchuk | MongoDB - Полный Курс по MongoDB (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приветствуем вас на курсе «Полное обучение MongoDB», который предоставляет все необходимые знания и навыки для успешного использования одной из ведущих NoSQL баз данных. MongoDB является мощным и гибким инструментом для эффективного управления большими объемами информации. В процессе курса вы освоите развертывание кластеров MongoDB, научитесь работать с документами (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B82C8AD4939DBB7B79260D78BDA028690B76C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771053   (32070) от 04.01.2025
 
 Дмитрий Лаврик | Nuxt - интенсивный базовый курс (2024) WEB-DL [RU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32070.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32068.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Slurm (Слёрм) | Data-инженер (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32058.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31977.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Основы Go
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31963.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ PurpleSchool, Антон Ларичев | Продвинутый Golang (2024) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31962.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Udemy, Vassilyi Gudomarov | JavaScript с нуля: Уверенный стар�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31871.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ Techworld with Nana, Nana Janashia | DevSecOps Bootcamp (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31866.jpg" />
 </div>
 
 
@@ -248,7 +222,7 @@ Surf | Flutter-разработчик - практический онлайн-к
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31766.jpg" />
 </div>
 
 
@@ -276,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31556.jpg" />
 </div>
 
 
@@ -302,7 +276,7 @@ Product University, Виталий Капранов, Егор Котельник
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31442.jpg" />
 </div>
 
 
@@ -329,7 +303,7 @@ Deworker Pro, Елисеев Дмитрий | Практики разделен�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31339.jpg" />
 </div>
 
 
@@ -357,7 +331,7 @@ Boosty, Влад Тен | Алгоритмы с нуля (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30177.jpg" />
 </div>
 
 
@@ -383,7 +357,7 @@ CyberYozh Academy | Убойный Андроид + Мультиаккаунти
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30174.jpg" />
 </div>
 
 
@@ -410,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30082.jpg" />
 </div>
 
 
@@ -438,7 +412,7 @@ CyberYozh, VektorT13, Qanon, Mik1st, Михаил Васильев | Взлом 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29867.jpg" />
 </div>
 
 
@@ -467,7 +441,7 @@ Skillbox, Максим Клочков, Анастасия Полякова | П�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29865.jpg" />
 </div>
 
 
@@ -493,7 +467,7 @@ liveclasses, Михаил Кашкин | Какой язык программи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29776.jpg" />
 </div>
 
 
@@ -520,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29775.jpg" />
 </div>
 
 
@@ -546,7 +520,7 @@ AreaWeb, Михаил Протасевич, Ярослав Мурашкин | PH
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29773.jpg" />
 </div>
 
 
@@ -575,7 +549,7 @@ FrontendConf | FrontendConf 2023 - Профессиональная конфер
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29748.jpg" />
 </div>
 
 
@@ -603,7 +577,7 @@ CyberYozh Academy, Евгений Ивченков, Алексей Гришин 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29555.jpg" />
 </div>
 
 
@@ -629,7 +603,7 @@ JUG Ru Group | HolyJS 2024 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29526.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29453.jpg" />
 </div>
 
 
@@ -683,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29355.jpg" />
 </div>
 
 
@@ -694,6 +668,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B52C6171EDA02E88556740D5401C96C94F303442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860030   (29344) от 30.01.2025
+
+Digium | Обучение основам Asterisk / Asterisk Essentials Training (2011) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеокурс основы Asterisk -  16 глав, включающие в себя в общей сложности около 60 видеороликов, в среднем от 5 до 6 минут каждый.Жанр: VoIPСубтитры: АнглийскийЯзык: АнглийскийПродолжительность: 06:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF09B27377F944BAC113A06C0F4399A089BE031
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316607.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project PAPO | Проект ПАПО [2006, OVA, 2 эп.] BDrip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316600.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rain Town | Город дождя [2011, ONA, 1 эп.] BDrip 818p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316597.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hi no Tori: Houou Hen | Phoenix: Karma Chapter | Жар-птица: Глава �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316482.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316469.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последне�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316404.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fullmetal Panic! Invisible Victory | Full Metal Panic! Invisible Victory | Ст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316399.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316308.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Hi no Tori 2772: Ai no CosmoZone | Phoenix 2772: Cosmos Zone of Love | Жар-п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316269.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316022.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Kidou Keisatsu Patlabor Reboot / Mobile Police Patlabor: Reboot / Полиция
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315662.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Choujikuu Seiki Orguss | Super Dimension Century Orguss | Оргусс [1983, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315294.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Choujikuu Seiki Orguss 02 | Super Dimension Century Orguss Two: Orguss 02 | Ор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315228.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Rinne no Lagrange: Kamogawa Days / Сердца твоего цветы [OVA][20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315166.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tales of Vesperia: The First Strike / Сказания Весперии: Пер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315060.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Scryed / Скрайд [2001, TV,  26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314918.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ RahXephon TV / Ра-Зефон [ТВ] [2002, TV 26 эп. ] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314916.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Phantom ~Requiem for the Phantom~ / Фантом: Реквием по Призр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314802.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Shiki / Corpse Demon / Усопшие [2010, TV, 22 +2сп эпизода] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314798.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Noragami / Бездомный бог [2014, TV, 12 + 2 OAD] BDrip 1080p Hi10p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314795.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Minori Scramble! | Переполох Минори! [2012, OVA] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314362.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Joshi Kausei | Беспечные старшеклассницы [2019, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314238.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313986.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Two Car: Racing Sidecar | Две машины [2017, TV, 12 эп.] BDRip 1080 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313984.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Strike the Blood II | Удар крови [OVA-2] [2016, OVA, 8 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313663.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313079.jpg" />
 </div>
 
 

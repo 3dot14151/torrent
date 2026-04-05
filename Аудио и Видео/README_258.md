@@ -6,7 +6,7 @@ Tool - Undertow (1993) [AAC|~327 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169512.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - 50 Chart Hits of 2021.2: The Workout Motivation Album (2021) [AAC|~331 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169510.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - No Ballads: Hard Rock (2021) [AAC|~335 Kbps] <Rock, Hard Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169502.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tool - Ænima (AEnima) (1996) [AAC|~311 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169499.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - A Tribe Called Kotori 7 (2021) [AAC|~330 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169495.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Best of Chill Jazz 4 (2020) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169487.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Psychedelic Goa Trance 2022 (2021) [AAC|~330 Kbps] <Psy Trance, Goa Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169479.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 50 Chart Hits of 2021.3: The Workout Motivation Album (2021) [AAC|~331 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169465.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - 50 Chart Hits of 2021.1: The Workout Motivation Album (2021) [AAC|~333 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169463.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 40 Top Workout Mixes 2021: Motivation Training Music (2021) [AAC|~321 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169453.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tool - Lateralus (2001) [AAC|~302 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169396.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tool - Fear Inoculum (2019) [AAC|~293 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169379.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168998.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168984.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168949.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168885.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168840.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Casa of House, Vol. 1 (2021) [AAC|~335 Kbps] <Progressive House, Electro Ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168797.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Sacred Journey, Vol. 4 (2021) [AAC|~303 Kbps] <Electronic, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168789.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Nightflight Berlin – 22 Premium Downbeat & Lounge Trax (2014) [AAC|~330 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168787.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Pier-O - Dreams (2021) [AAC|~329 Kbps] <Chill Out, Downtempo, Soulful House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168781.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Life Is Better with Lounge (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168777.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Jazzy Weekend, Vol. 1 (2021) [AAC|~318 Kbps] <Chill Out, Lounge, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168773.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - The World Series of Chill Out, Vol. 2 (2021) [AAC|~305 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168768.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - The World Series of Chill Out, Vol. 1 (2021) [AAC|~310 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168763.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Schwarz & Funk - Back to the Beach (2019) [AAC|~306 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168759.jpg" />
 </div>
 
 

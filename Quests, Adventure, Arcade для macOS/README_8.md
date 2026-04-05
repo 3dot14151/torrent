@@ -6,7 +6,7 @@ Leisure Suit Larry - Wet Dreams Don't Dry (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268678.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ APE OUT (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265326.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Machinarium v.4041 (2009) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255322.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sneaky Sasquatch 2.1.4 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250546.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Spiritfarer v35321a (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245470.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Broken Age v.3a (2014) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244602.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ TUNIC v.1.0.t1483.b37 (2022) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244585.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Return of the Obra Dinn v.1.2.120 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233306.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Jenny LeClue - Detectivu v2.1.1 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226789.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Book of Unwritten Tales: The Critter Chronicles [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222476.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ GRIS (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220646.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Blacksad: Under the Skin (2019) [Multi/Ru] [macOS Native port]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219628.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Shantae and the Seven Sirens v2.4.0 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215270.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Slime Rancher v1.4.4 (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214755.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ The Gardens Between (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214280.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Graveyard Keeper v1.405 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210356.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Papetura (2021) v.1.1b2 [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200842.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Gibbon: Beyond the Trees v.1.8.1 (2022) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200816.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Stanley Parable: Ultra Deluxe v.1.07 (2022) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200659.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Tacoma v.2023.1 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200620.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ CupHead v.1.3.4 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199717.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ DYSMANTLE v.1.2.1.9 (2021) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198218.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Terraria v.1.4.4.9 v3 (2011) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184784.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Angry Birds Reloaded v.2.4 (2021) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175592.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Beyond a Steel Sky v.1.5.29150 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173562.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ The Medium v.1.1.22 (2021) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173311.jpg" />
 </div>
 
 

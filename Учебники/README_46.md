@@ -1,3 +1,57 @@
+###  Публикация: 1145641   (619704) от 26.06.2017
+
+А.В. Росляков | Зарубежные и отечественные платформы сетей NGN (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены принципы построения, применения и проектирования оборудования зарубежных и отечественных коммуникационных платформ, используемых для построения сетей связи следующего поколения NGN. Обобщена и систематизирована информация о мультисервисных платформах NGN на базе гибких коммутаторов (softswitch).
+Материал по каждой платформе NGN представлен по однотипной (   Читать дальше...   )Жанр: Сетевые технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429FE7F0361BBC67CA69A740EE998E3D9D5723CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910800   (619697) от 21.06.2015
+
+Е.И. Гольдштейн, П.Ф. Коробко | Теория решения изобретательских задач (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619697.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены основные вопросы курса "Теория решения изобретательских задач". Отличительной чертой пособия является его практическая направленность - приводится большое количество конкретных примеров защиты различных видов интеллектуальной собственности: патентов на изобретение, на полезную модель и др.
+Предназначено для студентов ВУЗов. (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E083B7147B2A9A0A840C544D1E682EEECB04C67A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036321   (619088) от 21.07.2016
 
 В.А. Гусев | Основы твердотельной электроники (2004) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619088.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618998.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618698.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618601.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618289.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618136.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618132.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618109.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617985.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617984.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617818.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617304.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616832.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616235.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ Tektronix | Руководство по проведению измерений 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616169.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615413.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615270.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615202.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615069.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615063.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615054.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614797.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613439.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612852.jpg" />
 </div>
 
 
@@ -625,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD298CBD2021A1A7E7FCBEAC1091A0AE7A7CE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911175   (612573) от 25.06.2015
-
-А. К. Синицын и др. | Основы проектирования предприятий автомобильного транспорта (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие написано в соответствии с программой курса «Основы проектирования предприятий автомобильного транспорта». В учебном пособии изложены принципы технологического проектирования автотранспортных предприятий, в особенности проектов реконструкции и модернизации существующих предприятий автомобильного транспорта, а также особенности организации и технологического (   Читать дальше...   )Жанр: Учебники и учебные пособия для ВУЗов, Транспортные средстваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED39F5E4D3A8579B390026D29F9F1EF635AE8AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911422   (612426) от 25.06.2015
-
-В. М. Кожухар | Инновационный менеджмент (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612426.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены основополагающие понятия инновационного менеджмента.
-Для студентов и магистрантов технических и экономических вузов, а также специалистов по управлению инновациями и руководителей предприятий и организаций инновационной сферы.Жанр: Учебное пособие, Экономика, Управление, Бизнес, МенеджментФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A416138BEE5ACA84BEC826DCDF21C5546A75FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1587948   (192061) от 02.11.2022
+
+Невиновная / Gyeolbaek / Innocence (2020) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192061.jpg" />
+</div>
+
+
+###  Подробнее
+
+На поминках в Тэчхоне происходит массовое отравление со смертельным исходом, пострадал даже мэр. Главная подозреваемая — вдова покойного. Её дочь Чон-ин, преуспевающая сеульская адвокатесса, возвращается в родной город и берётся защищать мать, хотя та страдает деменцией и даже не узнаёт её. Многое в этом деле кажется подозрительным, расследование было проведено с (   Читать дальше...   )Производство: Южная Корея / Idio Plan, Kidari EntЖанр: криминал, детектив, триллер, драмаРежиссер: Пак Сан-хёнАктеры: Щин Хе-сон, Пэ Джон-ок, Хо Джун-хо, Хон Гён, Тхэ Хан-хо, Ко Чхан-сок, Пак Чхоль-мин, Чха Сун-бэ, Чон Ин-гём, Чхве Хон-ильПеревод: Дублированный (Zone Vision)Язык озвучки: русский, корейскийСубтитры: английские, корейскиеПродолжительность: 01:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73191F0DB0D87DBFBB984B31C0D9AB840A23564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649992   (191647) от 06.09.2023
+
+Круче некуда / Hidden Strike (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191647.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем битвы за нефть захватили весь мир. Когда команда международных преступников захватывает заложников, чтобы провернуть крупнейшее ограбление, только два человека оказываются в силах остановить их. Это два наемника по разные стороны конфликта, их план совершенно безумен, но они должны прорваться через град пуль и песчаные бури. Даже если терпеть друг друга (   Читать дальше...   )Производство: Китай, США, Чанчуньская киностудия, Epitome, Flame Pictures Company, Huaxia Film Distribution, Talent International Media, XYZ FilmsЖанр: боевик, комедияРежиссер: Скотт ВоАктеры: Джеки Чан, Джон Сина, Пилу Асбек, Ван Чжэньвэй, Рэйчел Холовэй, Макс Хуан, Амадеус Серафини, Хоу Минхао, Рима Цзэйдань, Ма ЧуньжуйПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (forced (HDRezka)), английскиеПродолжительность: 01:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0A95265808337C6673D44B29C5BFE4AE0EA785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587924   (191468) от 04.11.2022
+
+Чрезвычайная ситуация / Bisangseoneon / Emergency Declaration (2021) WEB-DLRip [H.264/1080p] [МVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191468.jpg" />
+</div>
+
+
+###  Подробнее
+
+На борту забитого до отказа авиалайнера, совершающего рейс на Гавайи, таинственно погибает один из пассажиров. Вскоре воздушное судно охватывает хаос: все больше людей поражено неизвестной болезнью. Оперативный штаб пытается добиться посадки, но аэропорты не принимают зараженный рейс. Горючее на исходе, и теперь обреченный самолет может спасти лишь чудо.Производство: Южная Корея / C-JeS Entertainment, Magnum9, Showbox EntertainmentЖанр: триллер, драмаРежиссер: Хан Джэ-римАктеры: Ли Бён-хон, Сон Кан-хо, Чон До-ён, Ким Нам-гиль, Им Щи-ван, Ким Со-джин, Ким Бо-мин, Пак Хэ-джун, Хён Бон-щик, У Ми-хваПеревод: Многоголосый любительский (STEPonee), авторский (Юрий Сербин)Язык озвучки: русский, корейскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B73DFD718E5D3F072C7DCC71817896BDECAF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658238   (191368) от 07.09.2023
+
+Проходимцы / Apkkujeong / Men of Plastic (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сеул, 2007 год. Все в Апкуджоне знают Кан Дэ-гука. Он, вроде бы, ничем особенным не занят, но обладает харизмой, деловым чутьём, а также полезными связями и может решить любую проблему. Однажды судьба сводит его с талантливым пластическим хирургом Пак Чи-у, который из-за подлости делового партнёра лишился бизнеса, лицензии врача и погряз в долгах. Увидев в нём потенциал, (   Читать дальше...   )Производство: Корея Южная / B.A. Entertainment, Big Punch Pictures, Hong Film, Showbox/MediaplexЖанр: Комедия, криминалРежиссер: Лим Джин-сунАктеры: Ма Дон-сок, Чон Гён-хо, О На-ра, Чхве Бён-мо, О Ён-со, Рю Сын-су, Лим Хён-джун, На Гван-хун, Киль Хэ-ён, Чха У-джинПеревод: Дублированный (Кипарис)Язык озвучки: Русский, корейскийСубтитры: АнглийскиеПродолжительность: 01:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4117C1EA5617D3EEA922461613831D9CF101B291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658257   (191367) от 07.09.2023
+
+Во сне / In deurim (2022) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участвовавшая в клинических исследованиях сна женщина внезапно обнаруживает, что может контролировать чужие сновидения. Однажды она оказывается в сне подруги и встречает там серийного убийцу с такой же способностью.Производство: Корея ЮжнаяЖанр: Триллер, фантастика, криминалРежиссер: Щин Джэ-хоАктеры: Со Хё-рим, О Джи-хо, Ким Сын-су, Ли Соль-гу ...Перевод: Многоголосый любительский (Head Pack Films)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD869EE915E08BC944D5619D15A4BE7776FB222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588620   (191360) от 05.11.2022
+
+Женщина рождается дважды / Onna wa nido umareru / Women Are Born Twice (1961) BDRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители Томоко погибли во время войны. Судьба привела её в дом гейш, где она получила имя Коэн. Нередко ей приходится развлекать клиентов не только беседой, но и торговать своим телом. По совету подруги Томоко оставляет ремесло гейши и устраивается работать в бар, где встречает бывшего клиента по имени Цуцуи и вскоре становится его содержанкой. По роману "Дневник (   Читать дальше...   )Производство: Япония / Daiei StudiosЖанр: драмаРежиссер: Юдзо КавасимаАктеры: Аяко Вакао, Со Ямамура, Дзюн Фудзимаки, Фуранки Сакаи, Кю Садзанка, Хисано Ямаока, Кунъиити Таками, Маюми Курата, Кадзуко Яманака, Сатико МэгуроПеревод: Двуголосый любительский (Head Pack Films)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC9DA30AE11782AA63921763686099233CFEE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588702   (191237) от 05.11.2022
 
 Эксперимент «Ведьма» / Ведьма 2 / Manyeo 2 / The Witch 2: The Other One (2022) BDRip [H.264/720p]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191237.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191194.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190835.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190817.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190377.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190229.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190040.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189963.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189614.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189596.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189505.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189300.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189218.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189131.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189111.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188939.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188733.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188685.jpg" />
 </div>
 
 
@@ -476,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188442.jpg" />
 </div>
 
 
@@ -502,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188327.jpg" />
 </div>
 
 
@@ -513,163 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6225CAF35A7DD06FA144E6C8D2AA1ABC24E7D709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661841   (188190) от 16.09.2023
-
-Битва богов / Sri Asih (2022) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нани Виджая работает следователем и пытается прижать международную преступную группировку, а для этого ей приходится использовать волшебный боевой шарф и свою супергеройскую личность Шри Асих, способную призывать духов.Производство: Индонезия / Screenplay Bumilangit, SK Global, Legacy PicturesЖанр: фэнтези, боевик, драмаРежиссер: Упи АвиантоАктеры: Певита Пирс, Арио Баю, Кристин Хаким, Джефри Никол, Суря Сапутра, Reza Rahadian, Джорди Пратана, Dimas Anggara, Миан Тиара, Canti TachrilПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBB1997070A4112839463217F49738ED29271AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661348   (187875) от 17.09.2023
-
-Красная Шапочка находит труп / Akazukin, Tabi no Tochu de Shitai to Deau / Once Upon A Crime (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дeтектив Красная Шапочка расследует преступления в сказочной стране.
- Красная Шапочка путешествует по сказочной стране и встречает несчастную Золушку, которая мечтает отправиться на королевский бал. С помощью двух удачно подвернувшихся волшебниц девушки заполучают шикарные наряды, хрустальные туфельки, карету из тыквы и крысу-кучера. По дороге во дворец они сбивают (   Читать дальше...   )Производство: Япония, Credeus, TV Asahi ProductionsЖанр: детектив, фэнтези, комедияРежиссер: Юити ФукудаАктеры: Канна Хасимото, Юко Араки, Таканори Ивата, Нацуна Ватанабэ, Юми Вакацуки, Мирэи Киритани, Цуёси Муро, Масаки Кадзи, Томохару Хасэгава, Ацухиро ИнукаиПеревод: Многоголосый профессиональный (Zetflix)Язык озвучки: Русский, Японский, АнглийскийСубтитры: русские, украинские, английские, польские, японские, корейские, китайскиеПродолжительность: 01:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BBA50EFD608C52E3746B6D82CAA892D2F301F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661776   (187848) от 17.09.2023
-
-Красная Шапочка находит труп / Akazukin, Tabi no Tochu de Shitai to Deau / Once Upon a Crime (2023) WEBRip [H.265/1080p] [SDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красная Шапочка путешествует по сказочной стране и встречает несчастную Золушку, которая мечтает отправиться на королевский бал. С помощью двух удачно подвернувшихся волшебниц девушки заполучают шикарные наряды, хрустальные туфельки, карету из тыквы и крысу-кучера. По дороге во дворец они сбивают внезапно оказавшегося на лесной дороге королевского парикмахера, но (   Читать дальше...   )Производство: Япония, Netflix, Credeus, TV Asahi ProductionsЖанр: детектив, фэнтези, комедияРежиссер: Юити ФукудаАктеры: Канна Хасимото, Юко Араки, Таканори Ивата, Нацуна Ватанабэ, Юми Вакацуки, Мирэи Киритани, Цуёси Муро, Масаки Кадзи, Томохару Хасэгава, Ацухиро ИнукаиПеревод: Многоголосый профессиональный (Zetflix)Язык озвучки: русский, английский, японскийСубтитры: русские, английские (SDH), multiПродолжительность: 01:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F4044E4E328317524FCE21DE2B467E0E450ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590830   (187665) от 16.11.2022
-
-Затерянная гробница / Перезагрузка: Бездна ложной гробницы / Chong Qi Zhi Shen Yuan Yi Zhong / Restart: Mystery of the Abyss (2022) WEBRip [H.265/2160p] [4K, SDR] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в одном из поселений на китайско-бирманской границе. Черные Очки, чье заболевание глаз обострилось, собирается уйти от дел и жить в этом поселении беззаботной жизнью. Однако его хороший друг Се Юй Чэнь не готов смириться с тем, что тот останется слеп до конца своих дней и решает лично возглавить экспедицию в чащу леса в поисках лекарства. Но все (   Читать дальше...   )Производство: Китай / Tencent Video, YoukuЖанр: Ужасы, приключения, боевик, триллерРежиссер: Чэнь ЦзюйлиАктеры: Цзи Сяо Бин, Цзи ЧэньПеревод: Двуголосый любительский (RealFake)Язык озвучки: РусскийСубтитры: Китайские (hardsub)Продолжительность: 01:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6AB83DF57E6B58E92995473CFF04821105C16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590915   (187626) от 16.11.2022
-
-Корабль в Пусан / Neukdaesanyang / Project Wolf Hunting (2022) WEB-DL [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под прикрытием перевозки особо опасных преступников с Филиппин в порт Пусана должны доставить секретный груз. Безопасность его транспортировки обеспечивает элитный спецназ. Когда заключенные захватывают судно, пытаясь добраться до ценного груза, оказывается, что на корабле есть сила пострашнее их. Чтобы попасть в Пусан, охранникам и особо опасным преступникам придется (   Читать дальше...   )Производство: Корея Южная / Cheum Film, Contents GЖанр: боевик, ужасы, криминалРежиссер: Ким Хон-сонАктеры: Со Ин-гук, Чан Дон-юн, Сон Дон-иль, Пак Хо-сан, Чон Со-мин, Ко Чхан-сок, Чан Ён-нам, Сон Джон-хак, Ли Сон-ук, Хон Джи-юнПеревод: Одноголосый любительский (Алексей Паук), авторский (Юрий Сербин)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: 02:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBFC93880A34B6B96579DAF748BD89056792142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646211   (187538) от 18.09.2023
-
-Криминальный город: Разборки в Пусане / Beomjoe dosi 3 / The Roundup: No Way Out (2023) WEB-DL [H.264/1080p]
-
->>След.
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187538.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 год. Матерый служитель закона, на счету которого неисчислимое количество раскрытых дел и наказанных преступников, возглавляет команду, расследующую убийство, связанное с распространением нового синтетического наркотика. Непреклонному полицейскому противостоит безжалостный наркодилер, который не остановится ни перед чем, чтобы урвать огромный куш. А тут еще из (   Читать дальше...   )Производство: Корея Южная / BA Entertainment, Big Punch Pictures, Hong FilmЖанр: криминал, боевик, триллер, детективРежиссер: Ли Сан-ёнАктеры: Ма Дон-сок, Ли Джун-хёк, Мунэтака Аоки, Ким Мин-джэ, Ли Джи-хун, Ко Гю-пхиль, Ан Сэ-хо, Чон Сок-хо, Ли Бом-су, Дзюн КунимураПеревод: дублированный (Позитив), профессиональный многоголосый, авторскийЯзык озвучки: русский, корейскийСубтитры: английские (full, SDH)Продолжительность: 01:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9803A7387743C41C5C484D4A3073C77320AD78
 ```
 
 https://mybot314.ru/tekegram_catalog/

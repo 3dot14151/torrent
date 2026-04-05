@@ -1,3 +1,29 @@
+###  Публикация: 1157717   (473400) от 25.08.2017
+
+Артём Исламов | Веб-разработчик 6.0 (2017) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из учеников получает фундаментальные знания в работе с HTML и CSS и готов брать заказы на верстку сложных, адаптивных сайтов с применением javascript и PHP.Жанр: Веб-разработка, HTML, CSS, JavaScriptПродолжительность: 33:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A07D69A9D9A336D39440B9175B931466DF3513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591269   (472873) от 17.08.2019
 
 Владимир Алексеев | Видеошкола игры на гитаре Виктора Зинчука [2004] DVD9
@@ -6,7 +32,7 @@
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472873.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472796.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472782.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472630.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472383.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472380.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Udemy, CG Masters | Энциклопедия Blender 2.8 / The Blender 2.8 Encyc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472365.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472351.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472228.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472220.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472219.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471827.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471809.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471252.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ Pluralsight.com | Blender Fundamentals (2018) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470782.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470729.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470709.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Bob Harper | Totally Ripped Core (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470561.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470277.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ javaops.ru | Многомодульный Maven проект (MasterJava) (2019)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470266.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470146.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470138.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470135.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ javaops.ru | Junior Java-разработчик веб-приложений - Ba
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470132.jpg" />
 </div>
 
 
@@ -666,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470104.jpg" />
 </div>
 
 
@@ -677,35 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DB2CEB0011161E43D9384D831E6584780FBA32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406881   (470025) от 05.09.2020
-
-Константин Ефимов | Секреты 1С: Эксперта [Пакет полный] (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основные вопросы, которые рассматриваются в курсе:
-- знакомство с 1С.
-- механизм управляемого приложения.
-- базовая теория СУБД.(   Читать дальше...   )Жанр: 1СПродолжительность: 30:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D7AF5D63E542AFE904885C8B7FC9268854DF66
 ```
 
 https://mybot314.ru/tekegram_catalog/

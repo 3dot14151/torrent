@@ -6,7 +6,7 @@ Hymn - Sarah Brightman in Concert (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794860.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794091.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793940.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Ken Hensley with Live Fire in Concert & The Making of «Blood On The Highway» (
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793886.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Marilyn Manson: Guns, God and Government (2002) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793852.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793489.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793406.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Grand Funk Railroad - Live Los Angeles, California (1974) LDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793281.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792781.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ The Beatles 1962-1970 (2015) BDRip [H.264/720p] [handmade AI colored]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792681.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792661.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Rick Wakeman - The Six Wives Of Henry VIII, Live At Hampton Court Palace (2009) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792657.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792542.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Hymn - Sarah Brightman in Concert (2018) HDTV [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792118.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792036.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791949.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Rick Wakeman - Made in Cuba (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791512.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790354.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790298.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Bobby McFerrin - Try This At Home (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790280.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Bobby McFerrin - Spontaneous Inventions (1986) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790273.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Swinging Bach. Bobby McFerrin and Guests (Live in Leipzig) (2000) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790215.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790210.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Bobby McFerrin - Live In Montreal (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789649.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Bruno Mars: 24K Magic Live at the Apollo (2017) WEB-DL [H.264/1080p-LQ] [EN / EN
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789466.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789379.jpg" />
 </div>
 
 

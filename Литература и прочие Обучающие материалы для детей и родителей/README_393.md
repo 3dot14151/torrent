@@ -1,3 +1,56 @@
+###  Публикация: 1346016   (165242) от 17.12.2019
+
+Рената Вельш | Супчик от всех бед (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама работает. С утра до ночи. Но всё равно десятилетняя Юлия не может ни на праздник спортивный поехать в соседний город, ни подарок достойный на день рождения однокласснице купить, потому что денег вечно не хватает. Да и дружба ни с кем не складывается – ну а как дружить, если ты ни в кафе после уроков посидеть не можешь, ни в интернете пообщаться? Дома нет даже (   Читать дальше...   )Жанр: Проза для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8759F52E788E87D40E5FE6DCCD6BB019A1068B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346005   (165217) от 17.12.2019
+
+Киран Ларвуд | Легенда о Подкине Одноухом (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белоснежное одеяло покрывает широкие склоны холмов, известных как Острый хребет.
+Шурх-шорх. Шурх-шорх. Кто-то бредет по глубокому снегу, и звук тяжелых шагов далеко разносится в ночной тиши. В канун Куманельника, праздника зимнего солнцестояния, в нору под названием Торнвуд пришел бард. У него на плечах была только истрепавшаяся в странствиях одежда, а в голове бессчетные (   Читать дальше...   )Жанр: Фантастика для детей, ФэнтезиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D11DA64335E89D9811892CEADE3723E97DE69CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346017   (165212) от 17.12.2019
 
 Александра Можгина | Мальчик без головы (2019) [EPUB]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165212.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165207.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165205.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165202.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165193.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165186.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165175.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165170.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165161.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165119.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165093.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165048.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165041.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164986.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164926.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164922.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164896.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164849.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164824.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164764.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164502.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164497.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164468.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164429.jpg" />
 </div>
 
 
@@ -629,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:020320680805247A9FF19B64617D654CBB1E7482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517040   (164428) от 13.12.2021
-
-Софья Прокофьева | Сказка о жадном мальчишке (1965) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как легко сделать человека жадным: вазочка конфет да кошелёк звонких монет. Но пересилит ли всё это, когда твоему другу требуется помощь?Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB706694D8D1F7C9B51F5B84301964996907106A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346322   (164424) от 18.12.2019
-
-Венди Моугел | Уроки голоса для родителей. Как превратить ваши природные «вокальные» данные в эффективный инструмент воспитания (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голос – сильнейший инструмент в воспитании ребенка. От того, как вы разговариваете со своим чадом, зависит его умение общаться, послушность и самое главное – чувства к вам. Но многие родители даже не подозревают, насколько важна роль голоса в воспитательном процессе.
-Человек – социальное существо. Ему жизненно необходимо общение, и оно должно быть правильным.
-В своей (   Читать дальше...   )Жанр: Воспитание детей, детская психологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21397021C8A1026E14CB4912FEAC41EA2CEE31C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1169277   (404005) от 26.09.2017
+
+Ногу свело! - Ватрушки (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ВатрушкиЖанр: RockПродолжительность: 00:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042B0ACEDA0ED199477447A5E0D15102ED012E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169243   (403940) от 26.09.2017
 
 Chris Norman - Don't Knock the Rock (2017) [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +32,7 @@ Chris Norman - Don't Knock the Rock (2017) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403940.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ The Killers - Wonderful Wonderful (2017) Deluxe Edition [MP3|320 Kbps] <Indie Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403938.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ VA - Guitar Rock 1976-1977 (1993) Time-Life Music [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403937.jpg" />
 </div>
 
 
@@ -95,7 +121,7 @@ Eisbrecher - Sturmfahrt (2017) [FLAC|Lossless|tracks + .cue] <NDH, Nu Metal, Dar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403932.jpg" />
 </div>
 
 
@@ -124,7 +150,7 @@ Moody Blues - Collected [3 CD] (2007) [MP3|320 кб/с]<Progressive Rock | Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403776.jpg" />
 </div>
 
 
@@ -150,7 +176,7 @@ Ozzy Osbourne - 10 Studio albums + 4 Live-albums + 3 Compilations + 1 Limited Ed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_403382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_403382.jpg" />
 </div>
 
 
@@ -179,7 +205,7 @@ Loosely Tight - Fightin' Society (1981) Reissue, Not On Label [MP3|320 Kbps] <Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403154.jpg" />
 </div>
 
 
@@ -208,7 +234,7 @@ VA - Rock Classics - The Collection: The Ultimate Rock Anthems (2017) 4CD [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403021.jpg" />
 </div>
 
 
@@ -237,7 +263,7 @@ VA - Bat Head Soup - A Tribute To Ozzy (2000) [WavPack|Lossless]<Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402861.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Blood Youth - Beyond Repair (2017) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402468.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ VA - Rock Classics - The Collection: The Ultimate Rock Anthems (2017) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402280.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ My Dying Bride - A Map Of All Our Failures (Limited Edition) (2012) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402210.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401546.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ Black Pistol Fire - Deadbeat Graffiti (2017) [MP3|320 Kbps] <Alternative, Southe
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401478.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ UFO - Salentino Cuts (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401425.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Leka - 2 альбома (2011-2012) [MP3|320 кб/с]<Progressive Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401383.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401313.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Chris Rea - Road Songs For Lovers (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401211.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Leaves' Eyes - Melusine (EP) (2011) [FLAC|Lossless]<Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401143.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400908.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ The Sweet - Grand collection (1997) [MP3|320 Kbps] <Hard rock, Glam rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400382.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Deep Purple - Machine Head (1972) 4 Remastered CD Box Set /2012, EMI Records/ [W
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399837.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ Sweet Crisis - Live At The Junction Cambridge (2017) [MP3|320 Kbps] <Classic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399736.jpg" />
 </div>
 
 
@@ -685,7 +711,7 @@ Miriam Hobbs - Can't Stop The Girl (2017) [MP3|320 Kbps] <Rock, Contemporary Blu
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399724.jpg" />
 </div>
 
 
@@ -714,7 +740,7 @@ Kitty, Daisy & Lewis - Superscope (2017) [MP3|320 Kbps] <Rockabilly, Rock & Roll
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399615.jpg" />
 </div>
 
 
@@ -728,35 +754,6 @@ Kitty, Daisy & Lewis - Superscope (2017) [MP3|320 Kbps] <Rockabilly, Rock & Roll
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECAC1706858DDCEBD594AC49FF509BD47ECE8B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170161   (399216) от 01.10.2017
-
-Кипелов - Звезды и Кресты (2017) [FLAC|Lossless|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Звезды и кресты
-03. Рожденный летать
-04. Дама Пик(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D6D5FBAB7BC73670AC2B0AF1A13A5FD4AABA70
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1575859   (373086) от 11.09.2022
+
+VA - New Generation Italo Disco - The Lost Files Vol. 16 (2022) [MP3|320 Kbps] <Synthpop, Eurobeat, Italo Dance, New Wave>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naomi - Summertime in Your Heart (Extended Vocal Lost Mix)
+02. Tommy Sun - It's No Illusion (Extended Vocal Lost Mix)
+03. Don Amore - A World of Love (Extended Vocal Lost Mix)
+04. Aldo Lesina - It's Just a Story (Extended Vocal Lost Mix)(   Читать дальше...   )Жанр: Synthpop, Eurobeat, Italo Dance, New WaveПродолжительность: 01:17:00 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124E817957FD1FBDBD713105A7D70289340CC952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950059   (372763) от 25.10.2015
+
+VA - Музыкальное свежье русский выпуск 5 (2015) [MP3|128-320 кб/с]<Pop, Шансон, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юля Шатунова - Мальвина (04:22)
+02. Семен Ланцет - Сотканный Твоими Поцелуями (04:14)
+03. Мила Рогоза - Ты Есть (03:02)
+04. Shot feat. Kaen, Ksenia - Это Не Голливуд (03:52)(   Читать дальше...   )Жанр: Pop, Шансон, RapПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E156A235A3C5A7DC501AA31E65E8B0F814BFCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950107   (372585) от 25.10.2015
+
+VA - Auto Hits - 100 Tracks In Avto (2015) [MP3|320 кб/с]<Club , Dance , House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ DimixeR feat. Cali Fornia - Cool & Young
+02. Medina - You And I (Alex Shik & Alexx Slam Remix)
+03. Vicetone - No Way Out ft. Kat Nestel (Extended Mix)
+04. Axwell Ingrosso - Something(2Live Extended Remix)(   Читать дальше...   )Жанр: Club , Dance , HouseПродолжительность: 07:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C97918604427EA15F092E26B17D4A80B2ED90AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254545   (372114) от 14.10.2018
+
+VA - Club Dance Ambience Vol.165 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372114.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 50 Cent & FENK & Arefiev  Just A lil Bit - Just A lil Bit  (Dj_Better Mash Up)
+002. Ace Of Base - The Sign  (Division 4 Remix)
+003. Anton Powers - Thinking About You (Mandal & Forbes Extended Mix)
+004. A-Mase feat. Rinat Bibikov - Lit De Parade  (Radio Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5051220DA59D40697D95466F21B10CF372EBD8B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176222   (371795) от 21.10.2017
+
+VA - По волне моей памяти: Том 3 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Михаил Боярский - Вот и расстались  5:54
+02.  Алла Пугачёва - Песня на бис  7:13
+03.  Игорь Тальков - Бывший подъесаул  5:59
+04.  Александр Барыкин - Букет  3:40(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA41FC622B2F014D22FCD19D146BECB2D1EADB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415609   (371750) от 14.10.2020
+
+VA - Zumba 2020: Rumba Fitness [MP3|320 Kbps] <Latin, Bachata, Rumba>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - J Tian HD - Carrapicho (2:40)
+002 - Lele Pons, Guaynaa - Se Te Nota (with Guaynaa) (2:35)
+003 - Bad Bunny - Yo Perreo Sola (2:52)
+004 - Jeison el Brother - Baila Mi Cumbia (3:28)(   Читать дальше...   )Жанр: Latin, Bachata, RumbaПродолжительность: 22:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD5F5B455B5783F781A2D0554C296747AC286A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176208   (371628) от 21.10.2017
+
+VA - По волне моей памяти: Том 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Добрынин Вячеслав - Ах, какая женщина  4:35
+02.  Юрий Антонов - Берегите женщин  4:38
+03.  Владимир Кузьмин, Алла Пугачева - Две звезды  3:57
+04.  Игорь Скляр - Старый рояль  2:21(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE66B78EE47A189AB0DEFC93157AC2B04F6110FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176295   (371599) от 21.10.2017
 
 VA - По волне моей памяти: Том 4 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
@@ -6,7 +209,7 @@ VA - По волне моей памяти: Том 4 (Compiled by Виктор31
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371599.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Music News vol.40 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371584.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - По волне моей памяти: Том 5 (Compiled by Виктор31
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371509.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - По волне моей памяти: Том 1 (Compiled by Виктор31
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371470.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Music Exclusive And Supreme Urban (2018) [MP3|320 Kbps] <Pop, Dance, RnB, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370810.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Music News vol.214 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370702.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Music News vol.215 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370688.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - В машине с музыкой Vol.301 (2022) MP3 (2022) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370581.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Absolute Busloops Tech Construction (2015) [MP3|320 кб/с]<Club, Progress
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370390.jpg" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Лучшие кавер-версии (часть 1) (2016) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370326.jpg" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Лучшие кавер-версии (часть 2) (2016) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370324.jpg" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370313.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - 100 Dance Halloween Episode (2015) [MP3|320 кб/с]<Club, Dance, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370233.jpg" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Love Songs Best 100 (2020) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369532.jpg" />
 </div>
 
 
@@ -412,7 +615,7 @@ VA - По волне моей памяти: Том 7 (2017) [MP3|320 Kbps] <По
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369514.jpg" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - Dance Hits Collection 90s Vol.3 (2019) [MP3|320 Kbps] <Eurodance, Euro-Hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369499.jpg" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - По волне моей памяти: Том 6 (Compiled by Виктор31
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369410.jpg" />
 </div>
 
 
@@ -499,7 +702,7 @@ VA - По волне моей памяти: Том 8 (2017) [MP3|320 Kbps] <По
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369403.jpg" />
 </div>
 
 
@@ -528,7 +731,7 @@ VA - 100 Dance Elements Club (2016) [MP3|211-320 Kbps] <Progressive, Happy Music
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369148.jpg" />
 </div>
 
 
@@ -542,227 +745,6 @@ VA - 100 Dance Elements Club (2016) [MP3|211-320 Kbps] <Progressive, Happy Music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33ED34647AE014356BBB0B4452DBAD5E7B5ED3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415993   (368992) от 15.10.2020
-
-VA - Осенняя свежая 30-тка Vol 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTIK pres.ASTI, Руки Вверх - Москва не верит слезам (3:16)
-02. Batrai - О Боже, Эта Девушка Так Мила (2:58)
-03. Calvin feat. Dava & Миа Бойка - Пикник (2:50)
-04. DiUv & Joodey - Всё-Всё (3:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89315DBF3FC6B397C2259519F87B4F2EB6C26153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416058   (368990) от 15.10.2020
-
-VA - Дискотека 2020 Dance Club Vol. 204 от NNNB (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01. Alok & Ilkay Sencan feat. Tove Lo - Don't Say Goodbye (3:07)
-02. Boostereo - Like You (3:03)
-03. Malik - Mindreader (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E6B455C39533D063098F47750B00869B4CBD65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575458   (368936) от 15.11.2012
-
-VA - New Club-12 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Shine - Play That Game (Teknova Remix)
-02. Magic Deejays feat. Oana - Super Love (Radio Edit)
-03. Tensnake feat. Syron - Mainline (Original Mix)
-04. 40s Mood - India (Lush & Simon Remix)
-05. Dino Mileta feat. Oggie - Love Like Never Before (Original Mix)
-06. Seal De Green - Everybody Get Down (Radio Edit)
-07. Comis - Stay True (Hit Mix)
-08. Kriss Norman feat. Shena - Just A Touch Of Love (Original Mix)
-09. Movetown feat. Ray Horton - Here Comes The Sun (Rapless Club Edit)
-10. 2 Limits - This Is What It Is (Radio Cut)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B7B9DB52564D5754E1E032758FC515C66F720B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575308   (368777) от 15.11.2012
-
-VA - XXXL Турбомодный Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrique Iglesias Feat. Sammy Adams - Finally Found You
-02. Pink - Blow Me (One Last Kiss)
-03. Carly Rae Jepsen - Call Me Maybe
-04. Adam Lambert - Trespassing (Radio Edit)
-05. Kamelia - I Don't Care (Radio Edit)
-06. Inner Circle Feat. Pitbull & Peetah Morgan - 1 One 1 Love
-07. Feenixpawl Georgi Kay Ivan Gough - In My Mind (Axwell Radio Edit)
-08. Toni G Feat. Mar Souto - Lady (Radio Edit)
-09. Goldfish Feat. Morning Parade - Washing Over Me
-10. Agnes - All I Want Is You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B14FCD74D915019537A2EC31AFC584DE6D63A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070097   (368559) от 06.11.2016
-
-VA - Лучшие кавер-версии (часть 3) (2016) [MP3|160-320 Kbps] <Covers>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kvatro - Новый год (ABBA - Happy New Year) (03:45)
-02. Ricchi e Poveri & Светлана Светикова & Алексей Глызин - Sei La Sola Che Amo (Почему) (03:30)
-03. Afric Simone & Евгений Осин - Todo Pasara Maria (03:17)
-04. Лада Дэнс - Сотри Кассету (Lili & Susie - Can't Let You Go) (04:36)(   Читать дальше...   )Жанр: CoversПродолжительность: 03:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C8DFCE89F4D1B60E2063F7EF8FB93CECFADDF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950549   (367551) от 27.10.2015
-
-VA - Всё сразу 200 хитов Выпуск 10 (from Valik) (2015) [MP3|112-320 кб/с]<Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Время и Стекло - Песня 404
-002. Eli and Fur - You're So High (Original Mix)
-003. Гости из будущего и Константин Легостаев - Ждать и петь
-004. Inna - Fool Me(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B725928BA38FBD846B9BA6BC824231F0DEB5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575285   (367541) от 15.11.2012
-
-VA - Легенды Русского Рока (2012) [MP3|128 кб/с]<Русский Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367541.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Наутилус Помпилиус - Последнее письмо
-002. Кино - Звезда по имени Солнце
-003. Ария - Улица роз
-004. Машина Времени - Поворот
-005. Чиж & Co - Вечная молодость
-006. Алиса - Трасса Е-95
-007. Круиз - Сказка
-008. ДДТ - Просвистела
-009. Агата Кристи - Сказочная тайга
-010. Константин Никольский - Мой друг художник и поэт(   Читать дальше...   )Жанр: Русский РокПродолжительность: 12:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456801B918D29AB41147D213B3ED128478CA67AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

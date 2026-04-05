@@ -1,3 +1,32 @@
+###  Публикация: 1625526   (241632) от 10.04.2023
+
+Kreeature - Two Leaves / Dos Hojas (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Funk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road to Death [00:04:37]
+02. The Sound of Money [00:05:48]
+03. Footprints in the Sand [00:06:54]
+04. The Parable of the Sower [00:05:26](   Читать дальше...   )Жанр: Progressive Rock, Funk RockПродолжительность: 2 CD, 02:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1071EA212CC901104DD2487877EFB099A1C8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617915   (241630) от 10.03.2023
 
 Преподобный - За здравие усопших (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241630.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dead Shaman - Under the Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241625.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Adventure - Tales of Belle Part 1: Across the Ocean (2022) [FLAC 2.0|44.1/24|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241621.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Handgemeng - Ultraritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241618.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Black eXpression - Mundo Real (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241612.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Isole - Anesidora (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241611.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Impedigon - As Desires Fade... (2001) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241604.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Conifer Beard - 3 Albums (2019-2022) [MP3|320 Kbps] <Stoner Rock, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241602.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Aphotic - Abyssgazer (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241598.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ The Bad Ends - The Power And The Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241597.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Aschmicrosa - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241589.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Marauder - Metal Constructions VII (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241588.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Arjen Anthony Lucassen's Star One - Revel In Time (2022) 2CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241586.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Maverick - Ethereality (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241583.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ The Raveonettes - Chain Gang Of Love (2003) [FLAC|Lossless|image + .cue] <Indie 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241581.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Aríht (Ariht)  - As the Leaves Settle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241578.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Lee Kerslake - Eleventeen (2021) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241573.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ District 4 - Закон молчания (2023) [FLAC|Lossless|WEB-DL|tracks] <N
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241572.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Asphagor - Pyrogenesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241570.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Jaimee Harris - Boomerang Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241563.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Argion - Lux Umbra (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241551.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Murderbait - Nostalgia Like Cancer (2022) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241545.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Rezn - Solace (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241538.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Ulcerate - Stare Into Death And Be Still (2020) [FLAC|Lossless|tracks + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241537.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Hit The Ground Runnin' - Sudden Impact (1989) 2xCD, Reissue, Remastered, 2022, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241528.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ CD - 1 - Sudden Impact (Expanded):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B2B19D0311C89BCEC7529A3E17CCF63528491B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114531   (241524) от 15.03.2017
-
-Mondocane - Project One (1990) Remastered, 2013 [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Necroschizophrenia 03:05
-02. Violence Abuse? 02:08
-03. Mario, Please Don't Cry 02:17
-04. Mad Carlo F. 8 Cars You Wrecked ! 03:00(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DF2194B5DA05CAC6E3A8B9D3A333A1F67383F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

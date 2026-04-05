@@ -1,3 +1,29 @@
+###  Публикация: 1694011   (121353) от 23.01.2024
+
+Lunar Pro for Mac 6.5.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lunar управляет той же яркостью, которую вы можете изменить с помощью физических кнопок монитора, даже на M1. В отличие от другого программного обеспечения, которое только имитирует изменение яркости путем добавления черного наложения на ваш экран, Lunar использует DDC (канал данных дисплея) для отправки команд, таких как set brightness to 30% или switch input to (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.01.2024Разработчик: © 2024 LunarПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B188CD3D19D0664204B1A28C6406E653FC6DE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694025   (121341) от 23.01.2024
 
 SteerMouse 5.7 [En]
@@ -6,7 +32,7 @@ SteerMouse 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121341.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ ForkLift 4 v.4.0.6 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121317.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Smart Disk Image Utilities 3.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121310.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Slidepad 1.4.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121269.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ AppKiller 3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121258.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ AnyMP4 iPhone Unlocker 1.3.56 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120998.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ AnyMP4 iPhone Password Manager for Mac 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120981.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ AnyGo 7.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120640.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ macOS Server 5.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120478.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ OneCast for Mac 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120299.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Hazel 5.3.2 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120263.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Keka 1.3.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120198.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Folder Hub for Mac 1.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120087.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Bartender 5 v.5.0.50 beta [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120016.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ coconutBattery 3 Plus for Mac 3.9.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119988.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ CopyQueue Evaluation for Mac 3.1E [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119916.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ iStat Menus 6 v.6.73 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119891.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ SwitchResX 4.13.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119802.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ iToolab UnlockGo (Android) for Mac 7.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118663.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ FonesGo Android Unlocker for Mac 7.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118642.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ FonesGo iPhone Unlocker for Mac 6.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118641.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ iToolab UnlockGo 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118631.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ FonesGo Location Changer for Mac 7.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118573.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Multitouch 1.27.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118552.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ File List Export for Mac 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118539.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ File List Export (бывший File list to Excel) - простое в испо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB4F5579652F9B91BA9F4B03E42AA9FE55855A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698571   (118407) от 09.02.2024
-
-Sticky Notes: Easy Note Taking 2.2 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание заметки и синхронизация с Evernote и iCloud. Приложение Sticky Notes использует ваше пространство Evernote и iCloud и синхронизирует заметки между аккаунтами Evernote. Он не может получить доступ к вашим личным файлам только к тем, которые были созданы им самим.Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2017-2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECCA839D5EB3D3B0AD4220A58221ACBA9DC0473
 ```
 
 https://mybot314.ru/tekegram_catalog/

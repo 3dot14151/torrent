@@ -1,29 +1,3 @@
-###  Публикация: 957417   (325838) от 19.11.2015
-
-Излишки: Терроризм потребления / Surplus: Terrorized Into Being Consumers (2003) DVDRip [EN / RU Sub]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общество потребления уничтожило окружающую среду. Погубило миллионы видов растений и животных. Отравило наши моря, реки и озера. Загрязнило воздух. Необходимо что-то делать, чтобы спасти человечество. Мир может быть лучше! Мы лишь хотим, чтобы люди задумались над тем, почему протестующие выходят на улицы и пытаются что-то сделать. Это ведь не бессмысленное насилие. (   Читать дальше...   )Производство: ШвецияЖанр: ДокументальныйРежиссер: Эрик ГандиниПеревод: отсутствуетСубтитры: русские - отдельным файлом;
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C872C11CF27E9877EE8138384C8DE52A33CEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957373   (325799) от 19.11.2015
 
 Видеократия / Videocracy (2009) DVBRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325799.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324490.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324396.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323990.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323930.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323865.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323581.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323357.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322001.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321967.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321914.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321743.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321664.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321297.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319805.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319482.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319380.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319378.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319375.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319370.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319368.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319132.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317382.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317203.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316811.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C419349D48F79EF2BDEBC0909418A93F38B4D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843371   (316499) от 26.11.2014
+
+Музыкальный магазин / Sound it Out (2011) DVDRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316499.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Великобритании за последние 5 лет каждые три дня закрывались независимые магазины винила. «Sound It Out» — документальный фильм, рассказывающий о самом последнем магазине виниловых пластинок в городке Тисайд северо-восточной Англии. Культурный рай в одном из самых бедных городов Великобритании — фильм следит за жизнью этого места, процветающего вопреки обстоятельствам.Производство: Великобритания, Glimmer Films, Sideshow, Intelligent MediaЖанр: Документальный, музыка, историяРежиссер: Джини ФинлэйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14E5357ABDE79C447B55E27900AEFAB0D4362B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

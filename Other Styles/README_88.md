@@ -1,3 +1,61 @@
+###  Публикация: 1301198   (586254) от 10.05.2019
+
+Henry Jackman - Ralph Breaks the Internet / Ральф против интернета (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Zero (03:32)
+02. Sarah Silverman, Gal Gadot, Cast - Ralph Breaks the Internet - A Place Called Slaughter Race (03:28)
+03. Julia Michaels - In This Place (03:21)
+04. Henry Jackman - Best Friends (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87F3F26C3DBFFD9A44F21C25464B7CBC0B1A814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301244   (586252) от 10.05.2019
+
+Allegro Milano - Allegro Milano Spielt Die Schönsten Weihnachtslieder (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weisse Weihnachten (3:25)
+02. Leise Rieselt Der Schnee (3:12)
+03. Alle Jahre Wieder (3:30)
+04. Morgen Kommt Der Weihnachtsmann (3:05)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDD4636421D921A1386DE514B2F06807E46703D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301238   (586251) от 10.05.2019
 
 Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -6,7 +64,7 @@ Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586251.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586141.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, Wor
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585859.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ OST Трансформеры 3: Тёмная сторона Луны / Transform
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585771.jpg" />
 </div>
 
 
@@ -134,7 +192,7 @@ Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585764.jpg" />
 </div>
 
 
@@ -160,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585759.jpg" />
 </div>
 
 
@@ -195,7 +253,7 @@ Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585650.jpg" />
 </div>
 
 
@@ -224,7 +282,7 @@ Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585090.jpg" />
 </div>
 
 
@@ -253,7 +311,7 @@ OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<E
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584933.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584880.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584798.jpg" />
 </div>
 
 
@@ -334,7 +392,7 @@ OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584742.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Loss
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584260.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584030.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Zhang Yi - Strings Of Love (2015) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583968.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Daisuke Minamizawa - Solo Guitar no Shirabe - Studio Ghibli Sakuhinshu (2000) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583840.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Michel Pepe - Offrandes (Best Of 2008-2015) (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583448.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Vigilante 8 - 2nd Offense (2000) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583406.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583103.jpg" />
 </div>
 
 
@@ -565,7 +623,7 @@ Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582944.jpg" />
 </div>
 
 
@@ -594,7 +652,7 @@ VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, B
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582851.jpg" />
 </div>
 
 
@@ -623,7 +681,7 @@ Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582664.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contempor
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582423.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582244.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7824935393EF7E3F596AEDEBEC95B23B8B952C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041523   (582178) от 09.08.2016
-
-Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Task Force X (04:53)
-02. Arkham Asylum (03:24)
-03. I'm Going To Figure This Out (01:42)
-04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682080C84E86703FEA60A5884EC51F492A42A9EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041811   (581464) от 10.08.2016
-
-Eamonn Karran - Celtic Skies (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irish Skies
-02. New Life
-03. As One
-04. Boy Buries Mother(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFA416EC135DF10387EF12CBC8FDE1D59D4D4E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

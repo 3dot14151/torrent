@@ -1,3 +1,119 @@
+###  Публикация: 1272107   (145537) от 26.12.2018
+
+VA - Space Holidays Vol. 10 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NM - Interstellar Discovery (4:06)
+02. SynthOne - Electric Legend (5:39)
+03. Rama - Organix (5:13)
+04. Galaxy Hunter - Space Ship Two (One) (Instrumental) (5:35)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 02:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31774A27BFDC81338726C5686647AF06A4169C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519976   (145529) от 26.12.2021
+
+VA - Seveneves Best of 2021 (2021) [MP3|320 Kbps] <Funky, Club-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Hofmann - Show Me What You Got (02:43)
+02. AirDice - Momento (Radio Edit) (02:39)
+03. Jake Dile; Valentino Vines - Light It Up (Radio Edit) (03:23)
+04. DJ Bass-T - Call You MIne (02:57)(   Читать дальше...   )Жанр: Funky, Club-HouseПродолжительность: 02:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BF7B81A454A07499B124BE266FB6AD4DDE2116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520107   (145509) от 26.12.2021
+
+VA - Anjunabeats. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Lange – Rift (Alex O'Rion remix) (07:59)
+02. Jordin Post – Azure (04:42)
+03. Above & Beyond & Andy Moor – Air For Life (Dosem remix) (04:38)
+04. PROFF & Mokka – Your Light (Mixed) (06:32)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FE198DFB38E15D84FC0C1CA72F65CDA42E3128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272102   (145500) от 26.12.2018
+
+BELLATRIX - I Love KOTO - Covers and Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acknowledge
+02. Chinese Revenge
+03. Dragon's Legend
+04. Jabdah(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3E8B5DF77B75A198DA0F26DFC816596B412F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272417   (144825) от 27.12.2018
 
 VA - House Anthems (2018) [MP3|320 Kbps] <Minimal, Tech House>
@@ -6,7 +122,7 @@ VA - House Anthems (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144825.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Liquid Drum & Bass Sessions Vol 14 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144823.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Massimo Vivona - Metromatiko (2018) Headzone Records [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144809.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Kobarey - The Four Sides of Orithyia (2018) Lowless [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144800.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Tiesto - AFTR:HRS (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144748.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - The Best of Suanda Progressive (Mixed by LTN) (2018) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144729.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - The Best Of Suanda True (Mixed By Tycoos & Elite Electronic) (2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144715.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Tangled Audio: Best Of 2018 (Mixed by Duncan Newell) (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144710.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ SZMC - Dark Energy (The Album) (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144630.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Vargo + Stephanie Hundertmark - Discography 26 Releases (2004-2019) [MP3|320 Kbp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144517.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Snowflakes IX (2018) Raumklang Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indu
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144462.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144443.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144431.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ VA - Platipus - Archive 13 (Mixed by Luke Brancaccio) (2018) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144427.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ VA - Mondo Records: The Best Of (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144400.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ VA - Suanda Music Radio Top 20 2017 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144387.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Miika Kuisma, Luminescent, DJ Tab - Ambient Selection (2017) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144341.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Di
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144334.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ VA - Hed Kandi - Twisted Disco (2010) [FLAC|Lossless|tracks] <House, Electronica
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144266.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Animatronix - Echotone (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144240.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Aly & Fila - Future Sound Of Egypt 528 (Top 30) (2017) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144109.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Randal Collier-Ford + Side Projects (The Temple Of Algolagnia, Black Sun) - Disc
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143945.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Randal Collier-Ford + Side Projects (The Temple Of Algolagnia, Black Sun) - Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9462A83A8AEF14E7640085C3C3608058ED9A988F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520297   (143926) от 27.12.2021
-
-Daylight - 30 (2021) [MP3|320 Kbps] <Spacesynth, Dance-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can We Do It Again (5:10)
-02. So Many Years (4:58)
-03. Space Theme (4:50)
-04. Material World (Radio Version) (3:02)(   Читать дальше...   )Жанр: Spacesynth, Dance-popПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F426C0ECD79A1C961EFAFE95EF25D292C30A0403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678621   (143912) от 22.11.2023
-
-VA - Global Trance 2023 - 2024 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MJSM & John Leddy - Does It Feel Like Love (Original Mix) [6:52]
-02. Inner Heart - Unconditional Love (Original Mix) [9:15]
-03. NILL - Purple Room (Original Mix) [6:13]
-04. The Prestige - Typhoon (Extended Mix) [5:04](   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F2B56295019652AF0491992BEA9A257CF41A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678684   (143817) от 22.11.2023
-
-VA - Chill Out And Mellow, Vol. 1 (2023) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul James Fernandez - Calling For You (5:02)
-02. Jessy Z - Nowhere (5:15)
-03. Rohan - Pacific Dreams (5:02)
-04. Chime - Delirium (4:53)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B68200C3D6E284F15B02A2953A47578EDC6C094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678692   (143809) от 22.11.2023
-
-VA - Chill Out And Mellow, Vol. 2 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Čad - Chords Master (4:53)
-02. El Marta - En Casa (A Summer Breeze Version) (5:14)
-03. Dreamweavers - Masala Of The Moon (6:31)
-04. Voice Of Fractals - Striпgs Of Heart (3:20)(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 02:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02380DD11AD7BF3294349F4ACF9D095EA91F4C35
 ```
 
 https://mybot314.ru/tekegram_catalog/

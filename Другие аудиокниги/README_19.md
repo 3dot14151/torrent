@@ -1,3 +1,56 @@
+###  Публикация: 1293141   (628237) от 08.04.2019
+
+Богдан Сушинский | Правитель страны Даурия (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман известного писателя, Богдана Сушинского посвящен событиям, связанным с деятельностью генерал-лейтенанта, Верховного Главнокомандующего вооруженными силами Дальнего Востока, «правителя страны Даурия» или «Российской Восточной Окраины», походного атамана Амурского, Уссурийского и Забайкальского казачеств Григория Семёнова. В основу романа положены малоизвестные (   Читать дальше...   )Жанр: Военные приключенияПродолжительность: 15:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE28ACDD95F824534D6C4EFE59008E1C1C5CEF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293020   (628133) от 08.04.2019
+
+Борис Кригер | Руководство по сотворению миров (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о том, что мир, в котором мы живем, не является единственно возможным. Причем "реальность" нашего мира не абсолютна. После того, как человечество на практике познакомилось с концепцией виртуальной реальности, стало очевидно, что миры могут быть любыми. Вместе с тем то, каким может быть другой мир, ничем не ограничено.
+Эта книга ставит вопросы, (   Читать дальше...   )Жанр: Основы практической космоинвентологииПродолжительность: 03:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D875A39514C261B0997BF648BA0A32C05452B527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291817   (628121) от 08.04.2019
 
 Богдан Сушинский | Чёрные комиссары (2017) [MP3]
@@ -6,7 +59,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628121.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628108.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627847.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627495.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626714.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625767.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625541.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624110.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622822.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622755.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622488.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618975.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615738.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615269.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613458.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613453.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612960.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612134.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610310.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610253.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610241.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609492.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608718.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608638.jpg" />
 </div>
 
 
@@ -617,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BD55A857510BEAE5B74869243A8C401A21971A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038070   (606854) от 28.07.2016
-
-Рачо Стоянов | Мастера (1970) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в затерявшемся в горах болгарском селении, где живут резчики по дереву и золотых дел мастера. В жизни героев пьесы - мастера Найдена и его жены - красавицы Милканы происходит трагедия: после многих лет отсутствия домой возвращается мастер Живко, которого любит Милкана...Жанр: ДрамаПродолжительность: 01:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F876D8FE7367C542195F0EDFB2C9ED4490F43FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038429   (606714) от 28.07.2016
-
-Питер Марвел | Шутка мертвого капитана (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606714.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 16 века стало ясно, что великим европейским державам слишком тесно на континенте. Тогда-то и началась настоящая война за метрополии в Атлантике. Волей судьбы Карибские острова оказались на пути «дороги золота и пряностей» и стали приютом для негодяев всего мира: пиратов, корсаров, рейдеров и флибустьеров. Обладая картой пропавших сокровищ сэра Уолтера Рэли, (   Читать дальше...   )Жанр: Морские приключенияПродолжительность: 10:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9520CA7055663996090290D3CB0B40A319001ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/

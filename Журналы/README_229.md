@@ -1,3 +1,137 @@
+###  Публикация: 1225289   (661878) от 14.05.2018
+
+Журнал | Профиль №18 (май 2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19F2E638003E930736C257416A11F6E10C56E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225166   (661877) от 14.05.2018
+
+Газета | Ждём гостей №4 (103) (2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие кулинарные рецепты на все случаи жизни - к торжествам и праздникам и повседневные блюда. Журнал поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.
+Каждый рецепт пошагово обьясняется с фото.
+
+Приятного аппетита!Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC2E68A244A37683298B3007E67E67C0B047E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902146   (661873) от 27.05.2015
+
+Журнал | Идеи вашего дома. Спецвыпуск №2. Маленькие квартиры (2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Идеи вашего дома» - ведущее отечественное издание по вопросам ремонта и обустройства интерьера, представляет специальный выпуск «Маленькие квартиры». Журнал предлагает большое количество планировочных и оформительских решений, обзоры ремонтно-строительных материалов, мебели, техники и оборудования. Читатели журнала - люди, планирующие реконструкцию, ремонт, (   Читать дальше...   )Жанр: Строительство, ремонт, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAEB2D8DE9D709A3B70850A38F9ADB83E43DC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137684   (661843) от 31.05.2017
+
+Подшивка журналов | Электронные компоненты (2016) [PDF] [Обновляемая]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661843.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Электронные компоненты» — журнал издается с 1995 года, и уже более 15 лет является авторитетным источником профессиональной информации для разработчиков электронной аппаратуры, технического руководства предприятий отрасли, директоров по снабжению и надежным маркетинговым партнером для производителей и дистрибьюторов электронных компонентовЖанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B8386C9744EB7C9D27796628BDB03734DE2BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225284   (661780) от 14.05.2018
+
+Журнал | Современная электроника №5 (май 2018) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661780.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Современная электроника» - ведущий журнал для специалистов, менеджеров и руководителей предприятий, занимающихся разработкой и производством электронной техники. Представлена информация об электронных компонентах, узлах, модулях и приборах, системах проектирования и моделирования, новости со всего мира о научных и технологических достижениях в области электроники.Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1B376C6445C9016188329C10D2C6649B62E85F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513530   (661523) от 21.06.2012
 
 Журнал | Сабрина №7 [2012] [PDF]
@@ -6,7 +140,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661523.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661303.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661252.jpg" />
 </div>
 
 
@@ -84,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661208.jpg" />
 </div>
 
 
@@ -110,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661205.jpg" />
 </div>
 
 
@@ -136,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661035.jpg" />
 </div>
 
 
@@ -162,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660914.jpg" />
 </div>
 
 
@@ -189,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660893.jpg" />
 </div>
 
 
@@ -215,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660839.jpg" />
 </div>
 
 
@@ -241,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660529.jpg" />
 </div>
 
 
@@ -268,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660504.jpg" />
 </div>
 
 
@@ -294,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660490.jpg" />
 </div>
 
 
@@ -320,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660222.jpg" />
 </div>
 
 
@@ -346,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660196.jpg" />
 </div>
 
 
@@ -372,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660183.jpg" />
 </div>
 
 
@@ -398,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660179.jpg" />
 </div>
 
 
@@ -424,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660177.jpg" />
 </div>
 
 
@@ -450,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660131.jpg" />
 </div>
 
 
@@ -476,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660121.jpg" />
 </div>
 
 
@@ -502,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660120.jpg" />
 </div>
 
 
@@ -528,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660119.jpg" />
 </div>
 
 
@@ -539,140 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7AF1E52BF086D9B7057CC3E7DDA684B15B03A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902770   (660115) от 29.05.2015
-
-Журнал | Мир фантастики №6 (июнь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660115.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мир фантастики» единственное издание в России, посвященное фантастике и фэнтези в самом широком смысле. В фокусе внимания — книги, кинофильмы, игры и все самое интересное в этой области.Жанр: Журнал фантастикиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DE617EB2FE216A990CFD576D247E475692969D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139485   (660103) от 02.06.2017
-
-Газета | Аргументы и факты. Спецвыпуск №3 (15) Лекарственный справочник (2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит удобный рубрикатор по лекарственным препаратам, которые применяются для лечения и профилактики различных заболеваний. Справочник содержит подробные сведения о свойствах препаратов, компаниях-производителях и стоимости этих лекарств в аптеках России.
-«Эксклюзивный лекарственный справочник» выходит в 4 частях, каждая из которых рассказывает о конкретных (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8357E2583840D53073ED05CB784605BC29007E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139404   (660098) от 02.06.2017
-
-Газета | Аргументы и факты. Спецвыпуск №2 (14) Лекарственный справочник (2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит удобный рубрикатор по лекарственным препаратам, которые применяются для лечения и профилактики различных заболеваний. Справочник содержит подробные сведения о свойствах препаратов, компаниях-производителях и стоимости этих лекарств в аптеках России.
-«Эксклюзивный лекарственный справочник» выходит в 4 частях, каждая из которых рассказывает о конкретных (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456F8FAAA0CC4DADEA46F36BEFB36E72A383F6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139370   (660096) от 02.06.2017
-
-Журнал | Похудей №6 (июнь 2017) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячное издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.
-
- В сферу интересов журнала «Похудей» входит спортивное и вспомогательное оборудование, аксессуары, одежда, обувь, косметика для занятий различными видами фитнеса.Жанр: Здоровье, фитнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B957A83A125ED92B65D260D99C452D0A3B49336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139451   (659913) от 02.06.2017
-
-Журнал | Сам [Россия] №6 (июнь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Сам» - уникальная энциклопедия творчества, умений и мастерства, одна из его главных задач - распространение технических знаний и умений среди населения, развитие технического творчества в домашних условиях и приобретение навыков решать проблемы по строительству, обустройству и ремонту всего, что находится в домашнем хозяйстве, своими силами и с наименьшими (   Читать дальше...   )Жанр: Строительство и ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13596EF7D783DE79C3F55E285763466CEBE7B33D
 ```
 
 https://mybot314.ru/tekegram_catalog/

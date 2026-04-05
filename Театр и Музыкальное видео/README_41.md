@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803299.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802121.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Andrea Bocelli - Cinema (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802029.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801961.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801959.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801633.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801397.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Satyricon - Fuel For Hatred (2002) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801042.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800806.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800571.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800442.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800371.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800116.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799558.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799177.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Yello - Live At Montreux Jazz Festival (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798935.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Alice Cooper - A Paranormal Evening At The Olympia Paris (2021) WEBRip [H.264/72
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798670.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Yello - Live in Berlin (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798389.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797960.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797775.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797762.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796792.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Masami Okui - V-mode ~10th Anniversary~ Disc 1 (2003) DVDRip [H.264/480p]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796596.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ David Gilmour - In Concert (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796137.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Wink Live. ДДТ - История звука (22.05.2020) WEBRip [H.264/1080p-L
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795777.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795532.jpg" />
 </div>
 
 

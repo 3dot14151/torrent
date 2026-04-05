@@ -1,3 +1,107 @@
+###  Публикация: 1854791   (1057767) от 19.02.2026
+
+ColorNote - Блокнот заметки v4.8.2 Mod by TRUMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057767.jpg" />
+</div>
+
+
+###  Подробнее
+
+ColorNote — ColorNote это простой блокнот. Он предоставит возможность легкого и простого пользования блокнотом при написании заметок, напоминаний, email, сообщений, перечней дел и покупок. С ColorNote создание заметок проще, чем с любыми другими блокнотами и органайзерами.Тип издания: ModРелиз состоялся: 16.02.2026Разработчик: NotesПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A305D13B020AEC605510D56571DEBB148713AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854782   (1057764) от 19.02.2026
+
+ГдеПосылка v3.48 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057764.jpg" />
+</div>
+
+
+###  Подробнее
+
+ГдеПосылка — это универсальный и удобный сервис для отслеживания почтовых отправлений. Достаточно знать лишь трекинг-номер, чтобы легко найти посылку как в России, так и в США, Германии, Украине, Китае или Казахстане.Тип издания: AdfreeРелиз состоялся: 16.02.2026Разработчик: PackageRadarПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928B3FACD904CE40DEF4C23E2AC23F95A6BDDB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854796   (1057762) от 19.02.2026
+
+ЯПлакалъ v2.134 Mod Alex.Strannik [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yaplakal.com — популярное информационно-развлекательное сообщество. Мы любим обсуждать интересные события и весело проводить время. Все материалы добавляют и оценивают пользователи. Работаем с 2004 года. Трижды лауреат Премии Рунета в категории "Сообщество Рунета". Официальное приложение для Android. У нас вы найдете: громкие мировые события, обсуждение (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 19.02.2026Разработчик: Yaplakal.comПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAE43A5D060A2246B303921DE0FBC6878827856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854760   (1057761) от 19.02.2026
+
+Photo Studio PRO v2.9.1.4770 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 12.02.2026Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C50CDD5F498A1E88DFE8BEA1D5BD491B6DA64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854788   (1057725) от 19.02.2026
 
 MIUI Hidden Settings Activity v1.6.15 Mod by TryRoom [Ru/Multi]
@@ -6,7 +110,7 @@ MIUI Hidden Settings Activity v1.6.15 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057725.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Zona v3.0.44 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057724.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ PianoMeter – Piano Tuner v5.0.1 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057688.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ One Read / Все Документы Читатель - Офис v1.2.8 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057687.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ nPerf - Тест скорости 4G 5G WiFi v2.15.29 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057499.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ jetAudio HD Music Player Plus v13.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057456.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ jetAudio HD Music Player Plus v13.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057455.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Magic Eraser / Магический ластик v3.1.5 Mod by Maximoff⁠ [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057454.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057161.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Remini / Улучшение Фото v3.7.1276.202519488 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057160.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057159.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ ADB AppControl  v1.2.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057059.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ FotoTweak - AI Image Generator v1.0.52 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057058.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ LazyMedia Deluxe v3.432 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057057.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ LocalSend v1.17.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057017.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ aCalendar+ Calendar & Tasks v2.9.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056992.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Photo Editor v12.6 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056969.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Listen Audiobook Player v5.4.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056966.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ Shelter v1.9.1  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056965.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ CCleaner Pro 26.02.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056845.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056842.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056841.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3EFEF88926049E214B78C11E55DCC259CB654B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853547   (1056834) от 13.02.2026
-
-Screen Mirroring - TV Miracast v4.0.0.230 Mod by vadj [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для зеркалирования и трансляции экрана на телевизор. Хотите легко отразить экран своего телефона на телевизоре? Хотите, чтобы проекция экрана была быстрой, стабильной и отзывчивой? Используйте Screen Mirroring – Miracast for TV — бесплатное приложение для дублирования экрана, которое обеспечивает плавное зеркальное отображение вашего смартфона на экране (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.02.2026Разработчик: StudiosoolterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72A703B5FB6A4AC4184753F90DE859B8F914A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853544   (1056833) от 13.02.2026
-
-Grok - ИИ ассистент v1.1.20-release.19 Mod by kljovyj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 12.02.2026Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA34B37D5D838090752B85E68EDB5FA608DD84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853564   (1056820) от 13.02.2026
-
-TV+ HD v1.2.5 Mod by ajrys [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатное приложение, в котором представлены основные российские телеканалы. Есть возможность настроить приложение под свой вкус и добавить стримы/телеканалы из любых источников (HLS). Просмотр онлайн ТВ осуществляется через интернет (IPTV/ОТТ), поэтому для стабильной работы требуется интернет-канал с пропускной способностью от 2 Мбит/с для обычных каналов от 6 (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.02.2026Разработчик: AndevAppsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8731FFE96B26860D6293F81D47D24E34B3C617B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853541   (1056625) от 14.02.2026
-
-Moon+ Reader Pro v10.4 (b1004000) Mod by Lucky Las [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 12.02.2026Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EEE4D0CD223097BA834BF9AFCC7F20F20FDD36
 ```
 
 https://mybot314.ru/tekegram_catalog/

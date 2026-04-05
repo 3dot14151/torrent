@@ -1,3 +1,32 @@
+###  Публикация: 1671023   (171670) от 22.10.2023
+
+Udemy, Sergio Miller | Норвежский язык "с нуля" до А2 (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвежский язык для начинающих, полный курс на русском языке. Грамматика, правила чтения, сложности норвежского.
+Этот курс подходит для обучения "с нуля". Знание английского совсем НЕ обязательно, но может сильно ускорить процесс обучения.
+Давно хотели выучить норвежский? Оказалось, что это дороже и сложнее, чем выучить английский?
+Действительно, цены на (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 01:17:25Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1445D530FBA1C0F5BFC733B71FAB63A05F5577B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670959   (171633) от 22.10.2023
 
 Синхронизация | Литература. Полное погружение (2023) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171633.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Legacy Woodworking Machinery| Фрезерный стол с ручным при
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171622.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171484.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171478.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Udemy, Steve Avon | Trending Stocks with Python, Reddit, Twitter, and ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171475.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ Novak Dekor | Франшиза производства Гибкого камн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171318.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171311.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ Advance, Николай Ягодкин | Курс развития памяти 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171292.jpg" />
 </div>
 
 
@@ -231,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171287.jpg" />
 </div>
 
 
@@ -260,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171142.jpg" />
 </div>
 
 
@@ -289,7 +318,7 @@ chemelova.design, Кристина Чемелова | Курс по чертеж
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171129.jpg" />
 </div>
 
 
@@ -318,7 +347,7 @@ Product University, Александр Лихтман, Кирилл Макаро
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171122.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ Rebrain | Онлайн-тренажер Prometheus by Rebrain  (2023) WEB-DL [AD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171108.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ Skill.Im, Екатерина Нечипоренко | Visual Basic for Applicati
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170962.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ Lectera, Lectera | Развитие внимания: как фокусиров�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170957.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ Adieu Sounds, Drew Adieu | Travis Scott Start-To-Finish Masterclass Video Course
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170946.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170945.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ Udemy, Георгий Черняк | Инженер тендерного отд�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170939.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ Udemy, Martin Yanev, Plamen Yanev | The Complete Python Network Programming Cour
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170898.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ Udemy, Nikita Sergeev | Аналитика в SPSS: от новичка до у�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170893.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ The Gnomon Workshop, Christophe Desse | Introduction to Substance Painter 2020 W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170878.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ JUG Ru Group | Joker 2021. Международная Java-конференци�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170761.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ profileschool, Дмитрий Ларионов | Монтаж в Davinci Resolve
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170759.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170743.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Softwaretesting, Арсений Батыров | Автоматизация те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170726.jpg" />
 </div>
 
 
@@ -686,32 +715,6 @@ Softwaretesting, Арсений Батыров | Автоматизация те
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAC7FBEACD898F97029BD6413B5176306EDB420E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515101   (170712) от 05.12.2021
-
-Udemy, Камилла Мукатаева | Основная грамматика английского (полный курс для A1 - B2) (2021) WEB-DL
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170712.jpg" />
-</div>
-
-
-###  Подробнее
-
-После прохождения этого курса, ты поймешь всю основную грамматику английского до B2 (Intermediate). Курс сделан так, что бы вы смогли использовать свои знания в реальной жизни, а не только в тестах! За 4 года опыта работы, я поняла, что неуверенность в своём английском и страх говорить кроется в плохо освоенной базе. Поэтому именно в этом я хочу помочь, ведь после (   Читать дальше...   )Производство: UdemyЖанр: Английский языкПродолжительность: 06:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D40511D0467C63489C8812835663C489D33C6A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

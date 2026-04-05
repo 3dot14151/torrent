@@ -1,3 +1,119 @@
+###  Публикация: 1838935   (261606) от 25.11.2025
+
+VA - Autum Hits 2025 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DominiNiobe - I'm Not Afraid (4:02)
+02. Kanette - Real Life (5:17)
+03. Gorbunoff - Somebody To Love (2:12)
+04. Nikita Marasey - Lost Tonight (Radio Edit) (2:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E43A7AD956D139A9E4B5DF8E53967F0E500DC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838924   (261593) от 26.11.2025
+
+VA - Extrema Global Music - Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - Shakerato (Original Mix) [3:38]
+02. Anna Lee - Silver Coast (Original Mix) [4:15]
+03. Reborn Sound System - Inner Voices (Original Mix) [3:19]
+04. Lightstate & Tycoos - Unseen Force (Original Mix) [3:40](   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019B4568AF24301045685526F0DCCFE93F5AA5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838777   (261552) от 24.11.2025
+
+VA - Ministry of Sound - The Annual 2026 (2025) 2 CD [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261552.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Calvin Harris & Clementine Douglas - Blessings 03:39
+02. MK feat. Chrystal - Dior 02:49
+03. Disco Lines & Tinashe - No Broke Boys 02:44(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A513CD7BC376CB38193BDE39B1C4BBF8E9D66AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838807   (261539) от 24.11.2025
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 15 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Geri - The Crowds (Original Mix) [8:22]
+02. Will Dukster & Solnc - Im Reaching (Original Mix) [8:32]
+03. Appledrugs - Every Second Of Time (Front vs Lala Project Mush Up) [8:29]
+04. Audien - Eleven Eleven (Tom Fall Remix) [7:11](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 03:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5399BAECF292385E84F6CA49C303210CE726ED18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838864   (261501) от 25.11.2025
 
 VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +122,7 @@ VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261501.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Uplifting Only Top 15: October 2025 (Extended Mixes) (2025) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261500.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Martin Garrix - Live @ Red Rocks Amphitheatre, United States (2025-10-23) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261000.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ VA - Trancendence, Vol. 06 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260996.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ The Salt Collective - A Brief History of Blindness (2025) [FLAC 24/96|Lossless|W
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260995.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ VA & Pet Shop Boys - Disco 5 (2025) Compilation [FLAC|Lossless|tracks + .cue] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260989.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ VA - Purified Chronicles 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260622.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ The Salt Collective - 3 Albums (2023-2025) [MP3|320 Kbps] <Power-Pop, New-Wave, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260612.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Vinyl Sounds - Dream Lounge (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260610.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Barcode Brothers - 2 Альбома , 4 Сингла (2000-2002) [MP3|320 кб/�
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260476.jpg" />
 </div>
 
 
@@ -292,7 +408,7 @@ V.A. - Buddha-Bar - Winter Sessions in Courchevel - By Ravin (2025) 2CD [FLAC 24
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260048.jpg" />
 </div>
 
 
@@ -321,7 +437,7 @@ VA - The Orient Collective: Journey Within (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259845.jpg" />
 </div>
 
 
@@ -350,7 +466,7 @@ Groove Coverage feat. Rameez - Think About The Way (WEB) (2012) [MP3|320 кб/с
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259555.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Alice DeeJay - Better Off Alone (Laidback Luke Remixes) (WEB) (2011) [MP3|320 к
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259522.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Dada Life's Musical Freedom (2012) [MP3|~245 кб/с ]<House, Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258752.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ VA - The Best Of Suanda Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, Trance, E
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257986.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ VA - Balearic Melodic House and Techno Winter 2026 (2025) [MP3|320 Kbps] <Progre
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257985.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ VA - Ori Uplift - Uplifting Only Episode 667 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257984.jpg" />
 </div>
 
 
@@ -530,7 +646,7 @@ VA - Armin van Buuren - A State Of Trance 1252 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257983.jpg" />
 </div>
 
 
@@ -559,7 +675,7 @@ Antalio - Existentia (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257888.jpg" />
 </div>
 
 
@@ -588,7 +704,7 @@ VA - New Year Trance Rave 2026 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257744.jpg" />
 </div>
 
 
@@ -617,7 +733,7 @@ VA - New Year Trance Rave 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257743.jpg" />
 </div>
 
 
@@ -631,122 +747,6 @@ VA - New Year Trance Rave 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C3B848D0304450ACF52D83271A227D4FA4C26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838019   (257741) от 20.11.2025
-
-VA - Ibiza Winter Island 2026 (The Melodic Techno Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Melodic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarrdo Carocci - It's About Love 02:54
-02. Steen Thottrup & Kaia Mainz - Dreamers (Stefano Martiago Remix) 05:03
-03. Chris Le Blanc, Wolfgang Filz & Karmaloft - Enjoy Your Life (Wolfgang Filz Remix) 03:47
-04. Mafo - Focus Is You (Extended Mix) 03:27(   Читать дальше...   )Жанр: Techno, Progressive House, Melodic HouseПродолжительность: 02:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0712D104F3E63C6058CC8C8813294A62563DF1E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838003   (257740) от 20.11.2025
-
-VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rospy - Value Of A Teardrop (Extended Mix) [6:31]
-02. Adip Kiyoi & ZUZAH - Together (Extended Mix) [5:17]
-03. PoLYED & Max Denoise - The Sundays (Extended Mix) [6:15]
-04. Everi - Memories (Extended Mix) [7:45](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BED2523EF9468FB88B70F7CF3501EB80723DF10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838000   (257737) от 20.11.2025
-
-VA - Autumn Trance 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glassman - Never Do More (Original Mix) [6:35]
-02. Master Beat Projekt - Free Your Mind (Original Mix) [4:22]
-03. Mazeev - 21st Century (Original Mix) [5:56]
-04. Dimassive - Immensity (Extended Mix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94580E90911452CB341E54825DBC6EAC478CB6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837617   (257683) от 18.11.2025
-
-VA - The Orient Collective - Eyes Of Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indiano - The Moon of Flowers (7:43)
-02. Noam Garcia - The Dreams (9:40)
-03. Tibetania - Zawadi (8:58)
-04. Juantxo Munoz - Black Empire (7:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544F29D73CAD5ACD86D77D8CC0F07F92622CDF9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

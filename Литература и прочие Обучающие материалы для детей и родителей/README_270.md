@@ -1,3 +1,55 @@
+###  Публикация: 1406982   (470719) от 05.09.2020
+
+Светлана Ращупкина | Лепка из пластилина (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470719.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собрано множество идей для создания самых разных поделок из такого замечательного материала, как пластилин. С помощью пластилина можно не только воплотить в реальность свои творческие способности и фантазию, но и сделать замечательные сувениры и подарки для родных и близких. Надеемся, что предложенные в нашей книге поделки вдохновят вас на создание своей (   Читать дальше...   )Жанр: Детские поделки/Досуг/ТворчествоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88B97D0F99BBD3AF4293F97DE52AD145720EB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939857   (470693) от 23.09.2015
+
+Е. А. Арбатова | Русский язык для младших школьников в таблицах и схемах (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наглядное пособие для младших школьников предназначено как для занятий на уроках русского языка, так и для самостоятельной работы дома.Жанр: учебная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58F8EB1DDB8D064BA732F222C72CE3ACAB97809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940049   (470574) от 23.09.2015
 
 Подборка | Раскраски для девочек (2015) [JPG]
@@ -6,7 +58,7 @@
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470574.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470490.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470486.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470081.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469987.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469965.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469826.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469461.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469139.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468855.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468696.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468539.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468508.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468472.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468471.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468386.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468066.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_468055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_468055.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467619.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467616.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467512.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467108.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466818.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466812.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0314A4A6A1B3B020CC33EBDEFCD5EF966C016CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407448   (466718) от 07.09.2020
-
-Валерий Роньшин | Детский садик № 13 (2005) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466718.jpg" />
-</div>
-
-
-###  Подробнее
-
-У одной принцессы был золотой скелет — у всех обычный, а у неё золотой, и вот однажды этот скелет украли… А один мальчик мог проспать целых пять лет подряд! У одной девочки за спиной росли крылья, но никто в это не верил, зато все верили, что один учитель — не обычный человек, а самый настоящий вампир! Одна девочка превратилась в лягушку и вышла замуж за принца Персии, (   Читать дальше...   )Жанр: Детская литература/Проза для детейФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D033C32670B5A008AD0EAE752BA3A622564B9B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407452   (466397) от 07.09.2020
-
-Алексей Кирносов | Страна Мудрецов (2000) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто не мечтал попасть в сказочную страну и пожить там вольной жизнью? Мурлындия — страна мудрецов, где правит смешной и добрый король Мур Семнадцатый, — как раз такая страна. Здесь можно делать все что хочешь.
-Лида, Петька и Миша попадают в Мурлындию; что из этого получилось, вы узнаете, когда прочтете повесть.Жанр: Детская литература/Сказки народов мира/Повесть-сказкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D1A64C75D4BFB022B2D1653846F9DDDDB2C16C
 ```
 
 https://mybot314.ru/tekegram_catalog/

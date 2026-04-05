@@ -1,22 +1,48 @@
-###  Публикация: 598744   (999742) от 05.01.2013
+###  Публикация: 134813   (1000728) от 15.01.2020
 
-HQ Wallpapers Perfect Women (03.01.13) [Wallpapers 16+]
+Школьное приключение 1-4 класс (сборник 4 диска из 4) [от 7 лет] (L) [Русский] (2007)
+
+>>След.
+>>Развивающие Игры для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школа – это не только уроки, задачи, диктанты, это еще и занимательные игры и самые настоящие приключения! Во всяком случае, в школе, в которую перенесет ребят эта программа, точно нет занудных учебников и скучных учителей. Самые интересные и увлекательные обучающие игры, фантастические приключения и необычные герои ждут ребят с новой серией «Школьное приключение»! (   Читать дальше...   )Тип издания: LРазработчик: МультисофтЖанр: Обучающий, развивающийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F161368144960F28DCDD3CC50DD41966D58A278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352806   (1000727) от 15.01.2020
+
+UltraISO Premium Edition 9.7.2.3561 Retail (DC 2019-09-30) [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50E51CEC85A6FF1A3F5A4561D112D9CC9C593A60
+magnet:?xt=urn:btih:84E51BF723EFB28995D578BAE31FE2E39D06740D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599061   (999741) от 05.01.2013
+###  Публикация: 1352635   (1000726) от 15.01.2020
 
-Журнал | T3. The Gadget Magazine №2(212) (UK) [февраль 2013] [PDF] [En]
+Джей и Молчаливый Боб: Перезагрузка / Jay and Silent Bob Reboot (2019) BDRip [H.264/1080p] [MVO]
 
->>Журналы
->>Компьютерные журналы
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Компьютерный журнал, который рассказывает все о новинках аппаратного и программного обеспечения, электроники, гаджетов для персональных компьютеров.Формат: PDF
+Неугомонные приятели Джей и Молчаливый Боб попадаются на незаконном выращивании марихуаны и предстают перед судом, но невесть откуда взявшийся адвокат умудряется снять с них все обвинения, ловко подсунув бумаги на подпись. Зато теперь друзья не имеют права называться своими знаменитыми именами, потому что права на них принадлежат голливудской студии, которая собралась (   Читать дальше...   )Производство: США, Destro Films, SModcast Pictures, Hideout Pictures, Miramax Films, Intercut CapitalЖанр: комедияРежиссер: Кевин СмитАктеры: Джейсон Мьюз, Кевин Смит, Мэтт Дэймон, Крис Хемсворт, Бен Аффлек, Мелисса Бенойст, Вэл Килмер, Розарио Доусон, Джо Манганьелло, Джеймс Ван Дер Бик, Харли Куинн Смит, Шеннон Элизабет, Дидрих БадерПеревод: Двухголосый любительский (LakeFilms)Субтитры: Русские (Full, ненорматив-Sevkoxdd), Английские (Full)Продолжительность: 01:45:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AC6F2BBE67CB1F23C812063008223FEA87CAF60
+magnet:?xt=urn:btih:A52CA6716A56B3229171C047ECB89DEBD627E24D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,29 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599138   (999740) от 05.01.2013
+###  Публикация: 1352561   (1000725) от 15.01.2020
 
-[Wallpapers] World Architecture (05.01.13)
+Adobe Photoshop 2020 21.0.2.57 RePack (& Portable) by D!akov [Multi/Ru]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] World Architecture (05.01.13)
-Название: World Architecture (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E79A3DC276DE3D3D9BE5053D588C04CFCF31825
+magnet:?xt=urn:btih:A470BF5E237C11BD201AC78050D18AE1713C1ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,64 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599110   (999739) от 05.01.2013
+###  Публикация: 1352770   (1000724) от 15.01.2020
 
-[Wallpapers] New 2013 Wallpaper Pack 10
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999739.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 10
-Название: New 2013 Wallpaper Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755150310B1EAD04F510209A4E2CDE5356283227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599167   (999737) от 05.01.2013
-
-Sonic Lounge Club - Pearls Of Love (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+UltraISO Premium Edition 9.7.2.3561 (DC 30.09.2019) (& Portable) by Diakov [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightdrive
-02. Sundown
-03. Lazy Morning
-04. Memories
-05. Brazilian Love Affair
-06. Rain Over Aden
-07. Love or Confusion
-08. Easy Chair
-09. Voyaging Stars
-10. Just Walked inЖанр: Downtempo, Lounge, ChillOutПродолжительность: 00:44:41
+UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F687DBC2166C2B8E7516E40450A091804FED2DA
+magnet:?xt=urn:btih:DE65E2A0D4D537957B0D89ADB5015A9962F4F4F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -145,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598792   (999736) от 05.01.2013
+###  Публикация: 1216649   (1000723) от 15.01.2020
 
-Incredible Mixed Wallpapers (04.01.13) [Wallpapers]
+Mafia II / Мафия 2 (2011) [Ru] (1.0.0.1/upd5a/dlc) Repack Other s [Director’s Cut Edition]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Win Игры
+>>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Вито Скалетта начал завоевывать себе репутацию на улицах Эмпайр Бэй являясь «тем, кто точно выполнит свою работу». Вместе со своим другом Джо он упорно выполняет различные поручения, чтобы завоевать доверие Мафии, быстро поднимаясь по «семейной» лестнице, все сильнее нарушая закон, все сильнее поднимая свой статус и все сильнее приближая момент, когда ему придется (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Czech, Feral Interactive (Mac)Жанр: Action (Shooter), Racing (Cars), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:321F5AB75EAEA5FF1F539D11B2B61B3116ED3204
+magnet:?xt=urn:btih:49ED563C93D6556E4DED4F7543702D508DC803E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598788   (999734) от 05.01.2013
+###  Публикация: 1345869   (1000722) от 15.01.2020
 
-53 HQ Wallpapers (04.01.13) [Wallpapers]
+Пространство / Экспансия / The Expanse (2019) WEB-DLRip (сезон 4, серии 1-10 из 10) LostFilm
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>След.
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Прошло два столетия с тех пор, как человечество полностью колонизировало Солнечную систему, достигнув внешнего пояса астероидов. Детектив Джозеф Миллер, начав поиски пропавшей без вести Джульетты Андромеды Мао, вместе с капитаном космического корабля «Кентербери» Джимом Холденом вышли на след заговорщиков, цель которых — захватить власть в галактике.Производство: Канада, США / Alcon Entertainment, Sean Daniel CompanyЖанр: фантастика, триллер, драма, детективРежиссер: Брек Эйснер, Джефф Вулнаф, Терри МакДонафАктеры: Стивен Стрейт, Кэс Анвар, Доминик Типпер, Уэс Чэтэм, Шоре Агдашлу, Фрэнки Адамс, Шон Дойл, Томас Джейн, Флоренс Ванида Фэйвр, Кара Ги и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: Русский, английскийСубтитры: русские, английские (отдельно)Продолжительность: ~00:47:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCD9904C5F68018021E0E8DE5CEC12D8262B8830
+magnet:?xt=urn:btih:6EE90CD740F1136F224EC56B162C5395429AD468
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,25 +180,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597779   (999733) от 05.01.2013
+###  Публикация: 1352480   (1000721) от 15.01.2020
 
-Sexy Girls Wallpapers (02.01.13) [Wallpapers 16+]
+VA - Acoustic Pop Songs 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+01. Karizma Duo - Someone You Loved 3:19
+02. Nora & Will - Late Night Feelings 3:57
+03. Shannon & Keast - We Found Love 3:05
+04. Custom 7 - What We Need (Acoustic Version) 2:41(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:45:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9161338123FE3A310B58489CFA3C1FDCB7457773
+magnet:?xt=urn:btih:66B20DC252288CF0C177538C886A1AC0E75264B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,25 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598786   (999732) от 05.01.2013
+###  Публикация: 1352406   (1000720) от 15.01.2020
 
-Best HD Wallpapers Pack (04.01.13) [Wallpapers]
+Обратный отсчет / Countdown (2019) BDRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В наш век гаджетов и высоких технологий для всего есть мобильное приложение. Хочешь узнать, сколько тебе осталось жить? Пожалуйста! Девушка видит на экране телефона неумолимый вердикт — ее жизнь оборвется через 3 дня. Сможет ли она избежать смерти, если обратный отсчет уже начался?Производство: США / Boies, Schiller Film Group, Wrigley PicturesЖанр: ужасы, триллерРежиссер: Джастин ДекАктеры: Питер Фачинелли, Чарли МакДермотт, Тичина Арнольд, Диллон Лэйн, Энн Уинтерс, Джордан Кэллоуэй, Элизабет Лэил, Талита Бейтман, Том Сегура, Лана МакКиссакПеревод: Дублированный (iTunes)Субтитры: Английский (Full)Продолжительность: 01:30:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E182DBADD925C88649BBF39957965478FCA3FDF9
+magnet:?xt=urn:btih:1D5F0C23DFA48662154744D0B918CD2323ECF86F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,27 +235,102 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598314   (999731) от 05.01.2013
+###  Публикация: 1352103   (1000719) от 15.01.2020
 
-Sonny Rollins - Reel Life (1982) [MP3|320 кб/с]<Jazz>
+VA - Classical Chillout: 14 Calm and Relaxing Modern Classical Pieces (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical, Modern Classical>
 
->>Архив торрентов
->>Архив Музыки
+>>Классика
+>>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Reel Life (Rollins) 6:14
-02 - McGhee (Howard McGhee, Sonny Rollins) 4:20
-03 - Rosita's Best Friend (Rollins) 6:22
-04 - Sonny Side Up (Yoshiaki Masuo) 6:47
-05 - My Little Brown Book (Billy Strayhorn) 3:55
-06 - Best Wishes (Duke Ellington, Ted Koehler) 5:43
-07 - Solo Reprise (Sonny) 2:12Жанр: JazzПродолжительность: 00:35:23
+1.Chris Snelling - The Thaw (2:47)
+2.Chris Mercer - Dawn Light (2:14)
+3.Nils Hahn - Beautiful Cloudless Sky (2:18)
+4.Max Arnald - Angels (Arr. for Piano) (4:06)(   Читать дальше...   )Жанр: Classical, Modern ClassicalПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6C9533F77465B23827C185D84855F355A2CFAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352556   (1000718) от 15.01.2020
+
+Джей и Молчаливый Боб: Перезагрузка / Jay and Silent Bob Reboot (2019) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неугомонные приятели Джей и Молчаливый Боб попадаются на незаконном выращивании марихуаны и предстают перед судом, но невесть откуда взявшийся адвокат умудряется снять с них все обвинения, ловко подсунув бумаги на подпись. Зато теперь друзья не имеют права называться своими знаменитыми именами, потому что права на них принадлежат голливудской студии, которая собралась (   Читать дальше...   )Производство: США, Destro Films, SModcast Pictures, Hideout Pictures, Miramax Films, Intercut CapitalЖанр: КомедияРежиссер: Кевин СмитАктеры: Джейсон Мьюз, Кевин Смит, Мэтт Дэймон, Крис Хемсворт, Бен Аффлек, Мелисса Бенойст, Вэл Килмер, Розарио Доусон, Джо Манганьелло, Джеймс Ван Дер Бик, Харли Куинн Смит, Шеннон Элизабет, Дидрих БадерПеревод: Двуголосый любительский (LakeFilms)Субтитры: Русские (Full, ненорматив-Sevkoxdd), Английские (Full)Продолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4168AA44459F291EC9D73DE6446EB1F5E5D514DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352738   (1000717) от 15.01.2020
+
+WinRAR 5.80 Final RePack (& Portable) by Diakov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000717.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinRAR - один из самых известных архиваторов. То, что он поддерживает архивацию в формате RAR, объяснять не надо. Кроме того, программа умеет работать с архивами ZIP, CAB, ARJ, LZH, TAR, GZ, ACE 2.0, BZIP, JAR, UUE, GZIP, BZIP2 и 7-Zip, при этом она обладает многочисленными очень полезными возможностями - шифрование, поддержка непрерывных (solid) архивов, в которых (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8ADA36306B96B635BDD7F53F65A03AEF1E1DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352525   (1000716) от 15.01.2020
+
+Сиротский Бруклин / Motherless Brooklyn (2019) WEB-DLRip [Line, AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лайонел Эссрог, одинокий частный детектив с синдромом Туретта, решается начать расследование убийства своего наставника и единственного друга Фрэнка Минны. У него есть лишь несколько зацепок и сила разума, одержимого поставленной целью, чтобы распутать клубок тщательно скрываемых тайн, которые сохраняют баланс сил в самом Нью-Йорке. Расследование заводит его в джазовые (   Читать дальше...   )Производство: США / Class 5 Films, MWM Studios, Warner Bros. PicturesЖанр: драма, криминал, детективРежиссер: Эдвард НортонАктеры: Даллас Робертс, Уиллем Дефо, Эдвард Нортон, Брюс Уиллис, Алек Болдуин, Джош Пэйс, Черри Джонс, Бобби Каннавале, Итан Сапли, Гугу Эмбата-РоПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:26:06Реклама: Присутствуют вставки видео и баннерной рекламы
 
 ## Скачать торент
 ```bash
@@ -281,29 +342,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599205   (999730) от 05.01.2013
+###  Публикация: 547986   (1000715) от 15.01.2020
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
+Brooklyn Bounce - 9 Альбомов (1997 - 2004) [FLAC|Lossless]<Hard Trance, Euro House, House>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
-Название: New 2013 Nature Wallpaper Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Brooklyn Bounce (рус. «Бруклин Баунс») - немецкая музыкальная группа, работающая в стиле Hard House, Euro Trance. В начале своего творческого пути была одной из самых востребованных и популярных танцевальных команд. За двенадцать лет было продано 2 500 000[1] CD с синглами группы. Одно из самых известных произведений Brooklyn Bounce «Bass, Beats and Melody» получило (   Читать дальше...   )Жанр: Euro Trance, Hands-up, Techno, Хард-хаус, Progressive HouseПродолжительность: 01:12:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C84B75799E81CD1BC0746B69580976AAE67B43FA
+magnet:?xt=urn:btih:64D797157C55F5500617F2A4F2964721EBDD57EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +368,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599076   (999729) от 05.01.2013
+###  Публикация: 1345917   (1000714) от 15.01.2020
 
-Sexy Girls Wallpapers (05.01.13) [Wallpapers 16+]
+Пространство / Экспансия / The Expanse (2019) WEBRip [H.264/720p-LQ] (сезон 4, серий 10 из 10) LostFilm
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+Прошло два столетия с тех пор, как человечество полностью колонизировало Солнечную систему, достигнув внешнего пояса астероидов. Детектив Джозеф Миллер, начав поиски пропавшей без вести Джульетты Андромеды Мао, вместе с капитаном космического корабля «Кентербери» Джимом Холденом вышли на след заговорщиков, цель которых — захватить власть в галактике.Производство: Канада, США / Alcon Entertainment, Sean Daniel CompanyЖанр: фантастика, триллер, драма, детективРежиссер: Брек Эйснер, Джефф Вулнаф, Терри МакДонафАктеры: Стивен Стрейт, Кэс Анвар, Доминик Типпер, Уэс Чэтэм, Шоре Агдашлу, Фрэнки Адамс, Шон Дойл, Томас Джейн, Флоренс Ванида Фэйвр, Кара Ги и др.Перевод: Многоголосый профессиональный LostFilmСубтитры: ОтсутствуютПродолжительность: ~00:49:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F8A840C500A16729D244C084DAC5CCFB09B7E57
+magnet:?xt=urn:btih:981EA2B61E017898014189FDB75363CF2DAE2F86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,29 +394,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599206   (999728) от 05.01.2013
+###  Публикация: 1327373   (1000713) от 15.01.2020
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 4
+The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack xatab
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 4
-Название: New 2013 Nature Wallpaper Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 4000х2600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Попав в загадочную бурю, ваш самолёт терпит крушение на окраине Джерико. Несколько недель спустя вы приходите в себя в заброшенной городской тюрьме. Закованные в броню солдаты следят за соблюдением военного положения, роботы вышли из-под контроля, а над городом зреет страшная нанитовая буря… Сражайтесь с многочисленными врагами в жестоких и бескомпромиссных боях, (   Читать дальше...   )Тип издания: RepackРазработчик: Deck13Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21D2183703EE8EC4DA063AC9CE033257DAAF53FE
+magnet:?xt=urn:btih:398D1E8A17C0A78B4CB14599A96569768DE16070
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,56 +420,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599071   (999727) от 05.01.2013
+###  Публикация: 1352555   (1000712) от 15.01.2020
 
-Best HD Wallpapers Pack (05.01.13) [Wallpapers]
+Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) WEB-DLRip [H.264/1080p-LQ] [Line, AD]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D22B0D368C528A8E501545E50C9200288FC9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598298   (999723) от 05.01.2013
-
-Jessy Carolina and The Hot Mess - Bootlegs:January 2012 (2012) [FLAC|Lossless]<New Orleans Jazz \ Vintage Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
- 02 Nobody's Sweetheart
- 03 Yes Sir, That's My Baby
- 04 Royal Garden Blues
- 05 China Boy (Explicit)
- 06 Louisiana Fairytale
- 07 Muskrat Ramble
- 08 My Melancholy Baby
- 09 I'll Be A Friend With Pleasure
- 10 That's A Plenty(   Читать дальше...   )Жанр: New Orleans Jazz \ Vintage JazzПродолжительность: 00:57:36
+Сара Коннор превратилась в настоящую охотницу за терминаторами и теперь занимается уничтожением роботов-убийц из будущего. Она считала, что главное — это не дать им добраться до Джона, но теперь появилась Дани Рамос, от выживания которой также зависит судьба человечества. Вместе с ней в бой вступает и загадочная Грейс, смесь человека и машины.Производство: США, Китай, 20th Century Fox Film Corporation, Lightstorm Entertainment, Paramount Pictures, Skydance Productions, Tencent Pictures, TSG EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Арнольд Шварценеггер, Эдвард Ферлонг, Линда Хэмилтон, Диего Бонета, Маккензи Дэвис, Том Хоппер, Бретт Азар, Гэбриел Луна, Наталия Рейес, Кассандра СтаррПеревод: Дублированный (Чистый звук)Субтитры: Русские, Английские (на испанскую речь, вшитые)Продолжительность: 02:08:05Реклама: Присутствует баннер
 
 ## Скачать торент
 ```bash
@@ -428,28 +446,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598916   (999721) от 05.01.2013
+###  Публикация: 1352772   (1000711) от 15.01.2020
 
-Hypnose - Притяжение (2012) [MP3|320 кб/с]<Alt. Rock>
+Call of Duty: WWII (2017) [Ru/En] (1.3) Rip xatab
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: WWII достоверно покажет Вторую мировую войну, представит игровой процесс нового поколения и предложит три режима: «Кампания», «Сетевая игра» и «Совместная игра». События сюжетной кампании развернутся на европейском театре военных действий, где вас ждет абсолютно новая историяТип издания: RipРазработчик: Sledgehammer Games, Raven SoftwareЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07CE4C38AB49CFB949DF32DF6B7543851172EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596841   (1000707) от 01.01.2013
+
+24k - Pure (2000) [MP3|320 кб/с]<Hard Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Знаю
-02. С утра и в ночь
-03. Солнцем и луной (Тишина)
-04. Мистер (   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:52:18
+01. Black Sheep Of Society
+02. Standing In The Middle
+03. Meeting This Way
+04. Surrender (In The Name Of Love)
+05. The Gypsy In Me
+06. Broken Promises
+07. After The Show
+08. Call Out To Me
+09. Now's The Time
+10. Masquerade(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C9E02B474F33994AC817243C9EADF7A7CE9D7CD
+magnet:?xt=urn:btih:3059CAA824714C6D92CC644D16755C10A3F2BBBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,230 +507,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599079   (999718) от 05.01.2013
+###  Публикация: 596810   (1000706) от 01.01.2013
 
-Журнал | Рыболовный мир №1 [январь-февраль 2013] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999718.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Рыболовный мир" - это журнал о современных видах ловли рыбы, прикормках, насадках, тестирование удилищ и многое другое... Вы узнаете много интересного о рыбной ловле и обо всем, что с ней связано. Эксклюзивные статьи, невероятные истории из жизни рыбаков, обзоры различных событий, полезные советы, рыболовные секреты и многое.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B005A81C461E043EAEE7AA4BBD29E5D67D5616AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599069   (999717) от 05.01.2013
-
-Computer Desktop Wallpapers Collection (05.01.13) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FDCF5CB6A9D1EEA7C25BE281AFC205E9F586B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597778   (999716) от 05.01.2013
-
-Sexy Girls Pack Wallpapers (02.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1ACA3ECFDAB8E698634944F620C798171ADD4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599074   (999714) от 05.01.2013
-
-60 HQ Wallpapers (05.01.13) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E68729631678172A0A4826D02BE6F7C96A8E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599143   (999712) от 05.01.2013
-
-Sonny Landreth - Outward Bound (1992) [WavPack|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soldier Of Fortune [04:41]
-02. Back To Bayou Teche [03:49]
-03. When You're Away [03:53]
-04. Sacred Ground [04:24]
-05. New Landlord [03:58]
-06. Speak Of The Devil [03:30]
-07. Yokamoma [04:15]
-08. Planet Cannonball [04:00]
-09. Common Law-Love [03:00]
-10. Bad Weather [04:28](   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598206   (999709) от 05.01.2013
-
-Мишель и Мишутка (1961) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый артист медведь Мишель, перестав в отпуске тренироваться, чуть было не сорвал очередное выступление в цирке.
-Но медвежонок Мишутка выполнил за него основной номер — полёт под куполом цирка.Жанр: короткометражный, комедия, семейныйРежиссер: Михаил Шамкович, Аян ШахмалиеваАктеры: Валентин Филатов, Зиновий ГердтПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1EB6B08AB427FB6B46CD0119BBD59F07ABE824A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599221   (999705) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 15
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999705.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 15
-Название: New 2013 Wallpaper Pack 15
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70B67A228F5D4A14E1C780C9DF826F8B6EB0257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598730   (999704) от 05.01.2013
-
-Harry Belafonte - Returns to Carnegie Hall (1994) [FLAC|Lossless]<Blues, Folk, World, Reggae>
+Amen - Aguilar (1996) [MP3|320 кб/с]<Hard Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jump Down Spin Around  [02:14]
-02. Suzanne  [05:49]
-03. A Little Lyric of Great Importance  [01:29]
-04. Chickens  [03:09]
-05. Vaichazkem (feat. Chad Mitchell Trio)  [01:34]
-06. I Do Adore Her (feat. Chad Mitchell Trio)  [03:18]
-07. The Ballad of Sigmund Freud (feat. Chad Mitchell Trio)  [03:38]
-08. I've Been Driving on Bald Mountain (feat. Odetta)  [02:19]
-09. Water Boy (feat. Odetta)  [04:34]
-10. A Hole in the Bucket (feat. Odetta)  [05:19](   Читать дальше...   )Жанр: Blues, Folk, World, ReggaeПродолжительность: 01:11:52
+01.  When You Need Love Tonight
+02.  Why Don't You Want To Stay
+03.  I See The Blue In The Sky
+04.  I'm A Man
+05.  Feel The Joy
+06.  Soul Man, Funky Man
+07.  Lost Child
+08.  Make My Day
+09.  Shine On
+10.  The Magic Of K-1Жанр: Hard RockПродолжительность: 00:45:31
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FD7EAD635DCF1D330EFA555D7B449FED98F4404E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,25 +542,147 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598657   (999703) от 05.01.2013
+###  Публикация: 596827   (1000704) от 01.01.2013
 
-Все мои друзья покидают Брисбен / All My Friends Are Leaving Brisbane (2007) DVDRip
+44 Caliber - Can You Handle (2010) [MP3|320 кб/с]<Hard Rock / Glam / Sleaze>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Little Miss Trouble.
+02 - Cure.
+03 - Armageddon.
+04 - Sunday Morning 8 Am.
+05 - Walls Of Silence.
+06 - Fake.
+07 - Too Many Lies.
+08 - Miles Away.
+09 - Point Of View.
+10 - All These Wasted Years.Жанр: Hard Rock / Glam / SleazeПродолжительность: 00:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8184A8081CB6BB3A643D46EFE5F43313213B79CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597287   (1000702) от 01.01.2013
+
+Digital Squad - Feat. vol. 1 (2012) [MP3|320 кб/с]<Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+ 02. Музыка лечит (feat. Грязный Луи, Рем Дигга)
+ 03. Взгляды (feat. Gipsy King)
+ 04. Капкан (feat. Нагора)
+ 05. В клуб не пускает (feat. Pastor Civil)
+ 06. С другой стороны медали (feat. Brick Bazuka)
+ 07. Коннект (feat. IzReal, Pastor Civil)
+ 08. Да ну его (feat. Грязный Луи, Страна OZ)
+ 09. Факты (feat. Apex)
+ 10. Рэп этого не терпит (feat. Pra (Killa'Gramm), Stankey, Pastor Civil )(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CF947293EDDA11E9DB454EEB225EE5EA60240A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597384   (1000701) от 01.01.2013
+
+Журнал | Копилка вязаных идей для детей №11 [ноябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание по вязанию представляет теплые зимние хиты и новогоднюю коллекцию одежды для детей разного возраста: от рождения до 14 лет. В практичных теплых комбинезонах, жакетах, штанишках, шапочках и шарфах детишках не страшны никакие морозы. Для новогодних праздников журнал предлагает девочкам очаровательные платья, болеро, топы и накидки, а также украшения: бусы, сумочки и повязки. Юные джентльмены с удовольствием наденут на новогодний бал элегантный пуловер или модный жилет. А классическую рубашку можно дополнить стильным вязаным галстуком или бабочкой.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C919AEEABD7CBF2DAB8D7D7E80C09DED95820A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597226   (1000700) от 01.01.2013
+
+Журнал | На бабушкиной кухне № 1 [2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000700.jpg" />
+</div>
+
+
+###  Подробнее
+
+На бабушкиной кухне - рецепты наших бабушек. Простые рецепты которые придутся всем по вкусу. Готовить наши бабушки умеют. Содержание: сезонное меню, салаты и закуски, на первое, на второе, десерты и торты, выпечка.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10350D8C20FF3897FA8418BC1C99055C6B8CAF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596877   (1000699) от 01.01.2013
+
+Просто жизнь / Life Just Is (2012) DVDRip  [EN]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Антея чувствует, что жизнь зашла в тупик, и, так же как и её друзья, собирается уехать из Брисбена. Но тут вновь появляется её бывший парень…Жанр: Мелодрама, КомедияРежиссер: Луиз ОлстонАктеры: Шарлотта Грегг, Райан Джонсон, Синди Нельсон, Романи ЛиПеревод: Многоголосый закадровыйПродолжительность: 01:13:43
+Британская драма "Просто жизнь" сфокусирована на одной неделе жизни четверых выпускников колледжа Пита, Tома, Клэр и Джей во время их нелёгкого перехода во взрослую жизнь. Несмотря на повседневные тяготы и рутину, Пит пытается найти духовный ответ на смысл жизни, Джей пытается наладить новую связь, а Том и Клэр испытывают все увеличивающееся взаимное притяжение...Жанр: ДрамаРежиссер: Алекс БарретАктеры: Уилл Де Мео, Джек Гордон, Натаниэль Мартелло-Уайт, Пол Николлс, Фиона Райан, Джэйн Вайзенер, Рэйчел Брайт, Джейсон Крут, Эндрю ХоулиПеревод: ОтсутствуетПродолжительность: 01:41:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62C7D26AF88125C6876504FF5D01DBA6907E8A7A
+magnet:?xt=urn:btih:CA49471F77CBCAD40A13264D247FF79EBB92D2D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -714,34 +690,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598597   (999702) от 05.01.2013
+###  Публикация: 596816   (1000697) от 01.01.2013
 
-PROMID - Sound Of Worship (2012) [MP3|320 кб/с]<Lounge, ChillOut>
+Kryptos - The Coils Of Apollyon (2012) [MP3|320 кб/с]<Thrash Metal/Heavy Metal>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Caress
-02. Don't Forget Me
-03. Eternal Love
-04. Memory of Past Love
-05. Solitude
-06. Trailing Ancestors
-07. New Life
-08. Dependent Heart
-09. Sound of Worship
-10. Towards FreedomЖанр: Lounge, ChillOutПродолжительность: 00:54:40
+01. The Mask Of Anubis 04:29
+02. The Coils Of Apollyon 04:07
+03. Serpent Mage 06:49
+04. Nexus Legion 05:21
+05. Eternal Crimson Spires 06:55
+06. Spellcraft 03:48
+07. Starfall 06:03
+08. Visions Of Dis 08:05
+09. The Isle Of Voices 01:36Жанр: Thrash Metal/Heavy MetalПродолжительность: 00:47:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFBFA10D49CA66F6128059A8E07B4EF5B0DD2710
+magnet:?xt=urn:btih:CDF598CA8D5757B62FC5E6C6DBEE545CC6483D1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

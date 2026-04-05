@@ -6,7 +6,7 @@ Anita O'Day - Mello'day (1978) 1992, GNP Crescendo Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66471.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sal Salvador - Shades Of Sal Salvador (1956, 1957) 1999, Toshiba-EMI [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66469.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jelly Roll Morton - Last Sessions: The Complete General Recordings (1939, 1940) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66468.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Patti Austin - Avant Gershwin (2007) [FLAC|Lossless|tracks + .cue] <Big Band, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66462.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sal Salvador - A Tribute To The Greats (1957) 1999, Toshiba-EMI [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66455.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sal Salvador - Sal Salvador (1954) 1991, Toshiba-EMI [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66454.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Al Hirt - Cherry Pink And Apple Blossom Wine (2001) High Definition Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66453.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Woody Herman - The Fourth Herd & The New World of Woody Herman (1959, 1962) 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66452.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Richard Wyands - The Arrival (1992) DIW Records [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66451.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lavay Smith & Her Red Hot Skillet Lickers - Miss Smith To You (2009) Fat Note Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66413.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - In Noir We Trust (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66412.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Coffee Funk (Feel the Heat of Acid Jazz Funk) (2025) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66401.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - The Midnighters Vol. III (Last Chapter) (2025) Signora Ward Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66379.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lowell Hopper - Opposite Direction (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66375.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Donald Byrd - Byrd In Flight (1960) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66351.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Howard Rumsey's Lighthouse All-Stars - Volume 4: Oboe / Flute (1956) 1991, Origi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66299.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ella Fitzgerald - The Moment Of Truth (1967) 2025, Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66294.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ronny Smith - Cruisin (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66252.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nikki Iles & NDR Bigband - Face To Face (2023) Edition Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66226.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tim Hardin Trio - Light Intelligence Series 2 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66217.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tim Hardin Trio - Light Intelligence Series 3 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66216.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tim Hardin Trio - Light Intelligence Series 4 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66214.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kenny Wheeler - Song For Someone (1973) 2004, Psi [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66207.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Renee Rosnes - Renee Rosnes (1988, 1989) 1990, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66155.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mindi Abair - Based On A True Story (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66124.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jimmy Scott - Very Truly Yours (1955) Columbia [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66119.jpg" />
 </div>
 
 

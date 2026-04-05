@@ -1,3 +1,56 @@
+###  Публикация: 1161752   (464919) от 29.08.2017
+
+Skype 7.40.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7D813915475593CAE15E9959EE76D081B51323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320928   (464779) от 21.08.2019
+
+Nvidia DriverPack v.436.02 RePack by CUTA [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nvidia DriverPack - это единый пакет с драйверами GeForce Game Ready, для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
+Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475E050D2D3C77DBA20EE916F6FDEE2847E9D8B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320961   (464629) от 21.08.2019
 
 Золотая перчатка / Der goldene Handschuh (2019) WEB-DLRip
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464629.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ multiMAN v04.46.04 [PS3] [Ru/Multi] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464417.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_464271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_464271.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ WinAVI All-In-OneConverter 1.1.0.3916 [Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464008.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ NBA 2K16 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463869.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463787.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Cowboy WPI Autumn StartSoft 66-2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463777.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ multiboot usb flash 3.0 by lakost08 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463771.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ Microsoft Office 2016 Professional Plus RTM 16.0.4266.1003 (x64) by Ratiborus 3.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463769.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Battery HD Pro 1.63.04 [Ru] - Монитор для батареи
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463763.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ The KMPlayer 4.2.2.67 repack by cuta (build 1) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463666.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463516.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.118.7029) Repack R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463515.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Mirror's Edge Catalyst (2016) [Ru/En] (1.0.3.47248/dlc) Repack R.G. Механи
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463501.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463088.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ ENSLAVED: Odyssey to the West (2013) [Ru] (1.0/upd1/dlc) Repack Other s [Premium
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463027.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462895.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ Microsoft выпустила бета-версию браузера Chromium Edg
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_462819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_462819.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ Worms W.M.D (2016) [Ru/Multi] (1637.583366/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462669.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462666.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_462232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_462232.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462125.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461665.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ Adobe Photoshop 2020 21.2.3.308 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461601.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ Adobe Photoshop 2020 - новая версия программы для обр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB96067A21BA2A657DC1E4CFF69F3CC19E64668B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941478   (461593) от 27.09.2015
-
-Терминатор: Генезис / Terminator: Genisys (2015) BDRemux [H.264/1080p] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Джон Коннор, лидер сопротивления, посылает сержанта Кайла Риза назад в 1984 год, чтобы защитить Сару Коннор и спасти будущее, неожиданный поворот событий создает разлом во времени. Сержант Риз оказывается в новой, незнакомой версии прошлого, где он встречает неожиданных союзников, в том числе Терминатора, новых опасных врагов, и новую миссию: изменить будущее…Производство: США / Paramount Pictures, Skydance ProductionsЖанр: фантастика, боевик, триллерРежиссер: Алан ТейлорАктеры: Арнольд Шварценеггер, Джейсон Кларк, Эмилия Кларк, Джай Кортни, Дж.К. Симмонс, Дайо Окенийи, Мэтт Смит, Кортни Б. Вэнс, Ли Бён Хон, Майкл ГлэдисПеревод: Дублированный (чистый звук)Язык субтитров: Русский, АнглийскийПродолжительность: 02:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96666CA084DA059E83875E49DD473334F2AD9ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941422   (461585) от 27.09.2015
-
-Final Fantasy V (2015) [Ru/Multi] (1.0) Repack R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через двадцать лет после оригинальной Final Fantasy V выпущенной в Японии, классическая РПГ нашла свое место на РС! Отправляйтесь в эпическое приключение вместе с четырмя героями которых свела судьба. Барц, и его компаньон Чокобо, принцесса Lenna замка Tycoon, таинственный Galuf и капитан пиратов Фарис.Тип издания: RepackРазработчик: Square EnixЖанр: RPG (Japanese-style)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1108DFBD87E795D89A99D85F504375C829F2B432
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 553859   (441530) от 29.09.2012
+
+Alvin Lee - Still On The Road To Freedom (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still On The Road To Freedom
+02. Listen To Your Radio Station
+03. Midnight Creeper
+04. Save My Stuff
+05. I'm A Lucky Man
+06. Walk On, Walk Tall
+07. Blues Got Me So Bad
+08. Song Of The Red Rock Mountain
+09. Nice & Easy
+10. Back In 69(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDED31788E81E7AFB1B74E453277E761F059D4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164519   (441513) от 09.09.2017
 
 Paradise Lost - Medusa (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Doom Metal>
@@ -6,7 +41,7 @@ Paradise Lost - Medusa (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441513.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441411.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Theatres des Vampires - Candyland (2016) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441402.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Tori Amos - Gold Dust (2012) [MP3|320 кб/с]<Alternative Rock, Piano Rock, Bar
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441349.jpg" />
 </div>
 
 
@@ -128,7 +163,7 @@ Tori Amos - Native Invader (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441311.jpg" />
 </div>
 
 
@@ -157,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441297.jpg" />
 </div>
 
 
@@ -183,7 +218,7 @@ Voyage In Solitude - Through the Mist with Courage and Sorrow (2020) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441029.jpg" />
 </div>
 
 
@@ -212,7 +247,7 @@ Face Off - 1 Album, 1 EP (Massive, Machines) (2017-2020) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441026.jpg" />
 </div>
 
 
@@ -241,7 +276,7 @@ Emyn Muil - 3 CDr Альбома (2013-2020) [MP3|320 Kbps] <Atmospheric Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441024.jpg" />
 </div>
 
 
@@ -270,7 +305,7 @@ Conditions - Fluorescent Youth (2010) 10 Year Anniversary, 2020, Good Fight Musi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440966.jpg" />
 </div>
 
 
@@ -299,7 +334,7 @@ Wolfredt - Tides (2020) Instrumental [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440965.jpg" />
 </div>
 
 
@@ -328,7 +363,7 @@ Aleynmord - The Blinding Light (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440962.jpg" />
 </div>
 
 
@@ -357,7 +392,7 @@ The Inhibitor - The End Is Hear (2019) [FLAC|Lossless|WEB-DL|tracks] <Experiment
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440960.jpg" />
 </div>
 
 
@@ -386,7 +421,7 @@ Inhibitor - Abhorrence (2020) EP [MP3|320 Kbps] <Deathcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440958.jpg" />
 </div>
 
 
@@ -415,7 +450,7 @@ Brumadensa - Brumadensa (2020) [MP3|320 Kbps] <Melodic Death, Groove Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440957.jpg" />
 </div>
 
 
@@ -444,7 +479,7 @@ Melted Bodies - Enjoy Yourself (2020) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440956.jpg" />
 </div>
 
 
@@ -473,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440950.jpg" />
 </div>
 
 
@@ -502,7 +537,7 @@ Mildlife - Automatic (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440883.jpg" />
 </div>
 
 
@@ -531,7 +566,7 @@ Leize - Leize (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440803.jpg" />
 </div>
 
 
@@ -560,7 +595,7 @@ Nervosa - Agony (2016) [FLAC|Lossless|tracks + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440801.jpg" />
 </div>
 
 
@@ -589,7 +624,7 @@ Nervosa - Downfall of Mankind (2018) Limited edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440797.jpg" />
 </div>
 
 
@@ -618,7 +653,7 @@ Armor for Sleep - What to Do When You Are Dead (2005) 15th Anniversary, 2020, Eq
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440743.jpg" />
 </div>
 
 
@@ -647,7 +682,7 @@ Nick Mason's Saucerful of Secrets - Live at the Roundhouse (2020) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440733.jpg" />
 </div>
 
 
@@ -676,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440726.jpg" />
 </div>
 
 
@@ -702,7 +737,7 @@ Ego On The Rocks - Acid In Wounderland (1979) Special Limited Expanded Edition /
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440672.jpg" />
 </div>
 
 
@@ -716,35 +751,6 @@ Ego On The Rocks - Acid In Wounderland (1979) Special Limited Expanded Edition /
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5714724833C31DED966A9DBC7613267CF704140D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409917   (440582) от 19.09.2020
-
-Фёдор Чистяков - Последний из могикан (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Russky Rock'n'roll (04:16)
- 02.Trains Rolled Down The Street (04:44)
- 03. Little Corey (03:29)
- 04. Lenin Street (04:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FA79A35AFB2895A4A4C4F38AD7BE1F6B2B3876
 ```
 
 https://mybot314.ru/tekegram_catalog/

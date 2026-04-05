@@ -6,7 +6,7 @@ ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456112.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Foreigner - Rockin' At The Ryman (2010) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455837.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455669.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Rammstein - In Amerika (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455158.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455017.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454721.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ The Bacon Brothers - No Food Jokes Tour (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454126.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453773.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453750.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453574.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Galena ft Costi - Chik Chik (Mnogo mi otivash) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453457.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453324.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453319.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dirty Bad Unit ft. Mangu - Everyday We Lovin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453317.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453283.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Booba - Caramel (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453120.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453100.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Heaven And Hell - Live from Radio City Music Hall (2007) [H.264] BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452981.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Polina Griffith - Ain`t Givin Up (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451422.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ C.C.Catch - Catch The Hits - Ultimate video collection (2005) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451413.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451408.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Official UK Top 40 Video Chart (02-10-2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451364.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451185.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451085.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449051.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448936.jpg" />
 </div>
 
 

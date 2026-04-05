@@ -1,136 +1,3 @@
-###  Публикация: 1441405   (1037730) от 21.01.2021
-
-Лионел Гинсберг | Неврология для врачей общей практики (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037730.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном издании, написанном известным английским неврологом и выдержавшем в Великобритании девять изданий (с учетом ранних изданий другого автора И. Драпера), в сжатой форме представлена основная информация по клинической неврологии. Отражены самые последние достижения в области диагностики и лечения заболеваний нервной системы. Описаны клинические случаи из врачебной (   Читать дальше...   )Жанр: Клиническая медицина, Учебники и пособия для вузовПеревод: А.П. КамчатновФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006934300F53090C39FAA32BC4BFFED2D52486C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441269   (1037719) от 21.01.2021
-
-Сергей Холодов | История ОБХСС и экономическая преступность в России в ХХ веке (2021) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037719.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге известный историк милиции Сергей Холодов впервые представил летопись истории экономической преступности ХХ века. Сотни резонансных дел, многие из которых еще недавно пребывали под грифом «секретно». Кроме того, это исторические очерки спецслужб, которые успешно боролись с экономической преступностью, и прежде всего — легендарного ОБХСС. В конце книги (   Читать дальше...   )Жанр: Правоведение, История праваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4E26810849AAA882286213B0B0DB01DB4F8DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441525   (1037673) от 21.01.2021
-
-Татьяна Гартман | Слово не воробей. Разбираем ошибки устной речи (2020) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Слово не воробей» – вторая книга Татьяны Гартман, известного блогера, педагога, журналиста и радиоведущей, продолжение очень успешной первой книги «Речь как меч».
-
-«Слово не воробей» создана по мотивам блога «Училка vs ТВ» (50 тысяч подписчиков) и радиопроекта «Училка против Маяка», в которых автор анализирует речевые ошибки ведущих и медийных героев.
-(   Читать дальше...   )Жанр: Русский язык, ЯзыкознаниеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F558D1E23163C60030C7DA08FF63D36C6ED3F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441268   (1037666) от 21.01.2021
-
-Ричард Фейнман | Дюжина лекций: шесть попроще и шесть посложнее (2020) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приводятся избранные лекции выдающегося американского физика, лауреата Нобелевской премии Р. Фейнмана. В них рассматриваются этапы становления современной физики и ее концепций, связь физики с другими науками, теория тяготения, квантовая механика, симметрия законов физики, специальная теория относительности, искривленное пространство-время и другие важные вопросы, (   Читать дальше...   )Жанр: Естественные наукиПеревод: В.А. Носенко, Е.В. ФалёвФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EA6F04886779ADD7D5561F6BC0CD58BD592399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615499   (1037511) от 26.02.2023
-
-С.А. Пивоваренок, Д.В. Ситанов | Процессы микро- и нанотехнологий (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит описание базовых процессов планарной технологии изготовления интегральных микросхем в микро и наноэлектронике. Рассматриваются процессы очистки материалов, получение эпитаксиальных пленок на поверхности подложек, формирование защитных и пассивирующих покрытий, а также фотолитография, диффузия и изготовление печатных плат. Каждый раздел пособия (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87AF9FF562F9235BED213B3F0D965564F93434E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615540   (1037498) от 26.02.2023
 
 В.П. Пушкарев | Аналоговые и цифровые радиоприемные устройства (2018) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037498.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ C. Иванов | Галеры. Эпоха ренессанса 1470-1590 (2023)
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037496.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037493.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037408.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037396.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037395.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037263.jpg" />
 </div>
 
 
@@ -323,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037233.jpg" />
 </div>
 
 
@@ -349,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037227.jpg" />
 </div>
 
 
@@ -375,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037169.jpg" />
 </div>
 
 
@@ -402,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037163.jpg" />
 </div>
 
 
@@ -428,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037132.jpg" />
 </div>
 
 
@@ -454,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037128.jpg" />
 </div>
 
 
@@ -481,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037125.jpg" />
 </div>
 
 
@@ -508,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037116.jpg" />
 </div>
 
 
@@ -534,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037115.jpg" />
 </div>
 
 
@@ -560,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037113.jpg" />
 </div>
 
 
@@ -586,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037112.jpg" />
 </div>
 
 
@@ -612,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037076.jpg" />
 </div>
 
 
@@ -638,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036891.jpg" />
 </div>
 
 
@@ -665,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036852.jpg" />
 </div>
 
 
@@ -677,6 +544,143 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA64DD9006A601EAC89ABC65FB238A0B37E3ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442101   (1036851) от 24.01.2021
+
+Андрей Самцевич | Марш Смерти Русского охранного корпуса (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданный на территории оккупированной Сербии Русский охранный корпус Вермахта до сих пор остается малоизученной страницей истории Второй мировой войны на Балканском театре.
+Несмотря на то, что он являлся уникальным прецедентом создания властями Германии обособленного формирования из русских эмигрантов, российские и зарубежные историки уделяют крайне мало внимания (   Читать дальше...   )Жанр: Военная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302D928EE438FBF9256D60CC34BD78B8EB761B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442105   (1036842) от 24.01.2021
+
+Жан-Батист де Панафье | Сапиенс для пляжа. Изучаем происхождение человека (2020) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами история Homo sapiens, Человека разумного, рассказанная в необычной манере, непринужденно и увлекательно.
+Кто мы на самом деле, как происходила наша эволюция? Жан Батист де Панафье в своей книге дает нам возможность по-новому взглянуть на самих себя.
+Серия "Наука на отдыхе" предлагает новый подход к изучению науки. Девиз серии: отдых-солнце-книга. (   Читать дальше...   )Жанр: Образовательная литература, Научно-популярная литератураФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F37FC514D0606340314D081B081258E9D387DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442103   (1036840) от 24.01.2021
+
+Л.А. Терушкин, К.А. Пахалюк (ред.) | Собибор. Взгляд по обе стороны колючей проволоки [сборник] (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нацистский лагерь уничтожения Собибор…
+Более 250 тыс. евреев уничтожены за 1,5 года…
+14 октября 1943 г. здесь произошло единственное успешное восстание в лагерях смерти, которое возглавил советский командир Александр Печерский. Впервые публикуются последняя и наиболее полная версия его мемуаров, воспоминания многих соратников по борьбе и свидетельства «с другой стороны»: (   Читать дальше...   )Жанр: Биографии и мемуары, Военная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7BE1010EA5D1C2AF0A4B3E9341F579A93C70D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442241   (1036829) от 24.01.2021
+
+Евгений Качаровский | Иммунитет умнее мозга. Главная система нашего организма (2021) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вирусы, особенно некоторые, так плотно вошли в нашу жизнь и настолько ее осложнили, что игнорировать или отрицать их существование стало невозможным. Да и вообще, врага надо знать в лицо и надо знать о нем как можно больше, потому что знание — это сила. Правильное знание, а не та чушь, потоки которой ежедневно выливают на нас диванные вирусологи и некомпетентные (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно о медицинеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C1B599228DE24DEDC6184DC9CCE19BF2CAD6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442272   (1036828) от 24.01.2021
+
+Джон Херст | Краткая история Европы (2020) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами книга известного историка Джона Херста, переведенная на 12 языков. Она заменит много книг и будет полезна как тем, кто только начинает знакомиться с европейской историей, так и тем, кто уже разбирается в теме. Прочтете за один день, запомните на всю жизнь!
+
+Когда-то юная Европа в своем развитии отставала от многих древних и мощных цивилизаций. Из этой (   Читать дальше...   )Жанр: История, Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3608EBD0CC243A9F6E3E543250E7B432B31752
 ```
 
 https://mybot314.ru/tekegram_catalog/

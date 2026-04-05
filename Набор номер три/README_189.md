@@ -1,3 +1,160 @@
+###  Публикация: 1274859   (791473) от 09.01.2019
+
+T-FLEX CAD 16.0.32.0 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791473.jpg" />
+</div>
+
+
+###  Подробнее
+
+T-FLEX CAD - профессиональная конструкторская программа, объединяющая в себе мощные параметрические возможности 2D и 3D-моделирования со средствами создания и оформления чертежей и конструкторской документации. Технические новшества и хорошая производительность в сочетании с удобным и понятным интерфейсом делают T-FLEX CAD универсальным и эффективным средством 2D (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12ACA7D8088B73031049B20E29A066FEBB6F291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201511   (791406) от 26.01.2018
+
+Китайские учёные впервые клонировали обезьян по методике овечки Долли
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791406.jpg" />
+</div>
+
+
+###  Подробнее
+
+По словам учёных, клонированные животные развиваются без отклонений.Молекулярные биологи из Китая впервые получили двух мартышек Чжунчжун и Хуахуа, используя ту же методику, которую применяли при клонировании овечки Долли. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201830   (791360) от 26.01.2018
+
+Win 10 Tweaker 2.2 Portable by XpucT [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию Windows 10 в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и Windows 10, поэтому антивирусы не ругаются на Win 10 Tweaker.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A0D7A7AC99C2E67E1F9436302D4D005E3DBFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201577   (791349) от 26.01.2018
+
+Microsoft позволит пользователям Windows 10 просматривать телеметрию
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft выпустит инструмент, позволяющий просмотреть, какие именно данные отправляются на серверы производителя.Наряду с релизом крупного обновления ОС Windows 10, запланированного к выходу в апреле-мае 2018 года, компания Microsoft выпустит приложение Windows Diagnostic Data Viewer, которое позволит пользователям (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201765   (791347) от 26.01.2018
+
+Терминатор 2: Судный день / Terminator 2: Judgment Day (1991) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [Театральная версия]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло более десяти лет с тех пор, как киборг-терминатор из 2029 года пытался уничтожить Сару Коннор — женщину, чей будущий сын выиграет войну человечества против машин.
+ Теперь у Сары родился сын Джон и время, когда он поведёт за собой выживших людей на борьбу с машинами, неумолимо приближается. Именно в этот момент из постапокалиптического будущего прибывает новый (   Читать дальше...   )Производство: США, Франция / Canal+, Carolco Pictures Inc. Lightstorm Entertainment, Pacific Western, T2 ProductionsЖанр: Фантастика, Боевик, ТриллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Линда Хэмилтон, Эдвард Ферлонг, Роберт Патрик, Эрл Боэн, Джо Мортон, С. Ипейта Меркерсон, Кастуло Герра, Дэнни Кукси, Дженетт Голдстин, Ксандер БерклиПеревод: Профессиональный (многоголосый закадровый), Авторский (одноголосый, закадровый)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A88EF2DB81D5AE9867841D77519FF0DA57F9879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510049   (791270) от 16.11.2021
+
+Реальные опасности искусственного интеллекта
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда речь заходит об искусственном интеллекте, в голове мгновенно всплывает знакомым рефреном фраза про роботов, которые нас всех скоро заменят. Этот первобытный страх не очень обоснован, но в силу растиражированности в поп-культуре умело скрывает за собой реальные проблемы, которые может создать бурное развитие ИИ уже завтра. Дело в том, что до захвата нас роботами (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286830   (791227) от 16.11.2021
 
 Человек, который убил Гитлера и затем снежного человека / The Man Who Killed Hitler and Then The Bigfoot (2018) WEBRip [H.264/720p-LQ] [MVO]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791227.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791225.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791073.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790922.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790851.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790830.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790829.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ DayZ (2018) [Ru/Multi] (1.0.15) License DARKSiDERS
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790821.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790819.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ DESOLATE (2018) [Ru/Multi] (0.8.83/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790818.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ Dishonored 2 (2016) [Ru/En] (1.77.9/dlc) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790817.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790781.jpg" />
 </div>
 
 
@@ -318,7 +475,7 @@ Adobe Photoshop CC 2018 (19.1.0.38906) Portable by XpucT [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790779.jpg" />
 </div>
 
 
@@ -344,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790774.jpg" />
 </div>
 
 
@@ -370,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790773.jpg" />
 </div>
 
 
@@ -396,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790772.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790709.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ Microsoft анонсировала последний год расширенн�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790704.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ Navitel / Официальные карты релиза Q3 2021 v9
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790692.jpg" />
 </div>
 
 
@@ -505,7 +662,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.10.11.21) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790690.jpg" />
 </div>
 
 
@@ -519,168 +676,6 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.10.11.21) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E5B15B6AB324A28BCB31C5038CB89DDAD0BA223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 155180   (790688) от 17.11.2021
-
-Маргоша (2009-2010) PDTVRip (сезон 2, серии 1-90 из 90)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактор глянцевого журнала для мужчин Гоша - опытный ловелас, успешный человек и просто красавчик. Ради его благосклонности девушки готовы на всё... И даже на колдовство!
-Однажды одна из брошенных любовниц превратила его... в женщину. Будь осторожен, казанова со стажем! Ведь теперь ты больше не красавец Гоша, а красавица Марго, которая должна делать причёску, носить (   Читать дальше...   )Производство: Россия / Костафильм, Телеканал СТС, Студия 1+1Жанр: драма, мелодрама, комедияРежиссер: Андрей СилкинАктеры: Мария Берсенева, Елена Перова, Олег Масленников-Войтов, Владимир Стержаков, Анатолий Кот, Джульетта Геринг, Мария Бортник, Григорий Анашкин, Вячеслав Гришечкин, Янина КолесниченкоПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93EF4EA2ADC0DF7587461C4E076C981F9BDDFEFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227492   (790687) от 17.11.2021
-
-Маргоша (2010-2011) IPTVRip (сезон 3, серии 1-90 из 90)
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактор глянцевого журнала для мужчин Гоша - опытный ловелас, успешный человек и просто красавчик. Ради его благосклонности девушки готовы на всё... И даже на колдовство!
-Однажды одна из брошенных любовниц превратила его... в женщину. Будь осторожен, казанова со стажем! Ведь теперь ты больше не красавец Гоша, а красавица Марго, которая должна делать причёску, носить (   Читать дальше...   )Производство: Россия / КостафильмЖанр: драма, мелодрама, комедияРежиссер: Андрей СилкинАктеры: Мария Берсенева, Елена Перова, Олег Масленников-Войтов, Анатолий Кот, Владимир Стержаков, Эдуард Трухменёв, Дмитрий Курта, Мария Бортник, Янина Колесниченко, Григорий АнашкинПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DF29F7EF649FDC1EA08AC7FDB95400B4243EB5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387593   (790565) от 03.06.2020
-
-Total Commander PowerUser v.72 Portable by HA3APET [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощнейший программный комплекс на базе Total Commander 9.51 для системных администраторов и продвинутых пользователей, в котором грамотно подобраны программы и плагины. Две конфигурации в одной сборке для PowerUser и для HomeUser. Подробное описание и состав читайте ниже.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E78BA50375DE399E7F9DED954882574312103D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201796   (790234) от 28.01.2018
-
-Российские власти вычислят майнеров и обложат налогом
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_790234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майнеров планируют вычислять по счетам за электричество
-В Минкомсвязи подготовили концепцию регулирования майнинга — вычислительного процесса, обеспечивающего работу криптовалют. Предполагается, что легально "добывать" цифровые "монеты" смогут и частные лица, и компании, однако процесс власти хотят держать под полным контролем.О содержании документа (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202230   (790226) от 28.01.2018
-
-Windows 7 Enterprise SP1 x64 Elgujakviso Edition (v.28.01.18) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN:
-ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671.iso. (Original 12.05.2011)
-
-Система чистая, ничего не удалено, отключено и пропатчено. Интегрированы Internet Explorer 11 и все важные и рекомендуемые обновления по Декабрь 2017 года. Для получения полной информаций об интегрированных обновлениях и изменениях, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A32438E746B4FEB02D3B7908D0515C86FF91A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131627   (790224) от 28.01.2018
-
-Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0) Repack R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безграничное воображение Бенуа Сокаля воплотилось в нечто абсолютно новое - захватывающее приключение «Сибирь 3». Повествование игры стартует там же, где закончилась предыдущая часть: Кейт Уокер, отправившись на поиски таинственной Сибирии, едва не погибает на дрейфующей лодке, но небольшой караван добрых юколов успевает спасти её от верной смерти. Оказавшись в небольшом (   Читать дальше...   )Тип издания: RepackРазработчик: Anuman Interactive, MicroidsЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881E7AEA7F6E2D8AD88E9C0F188F7C71A35F30E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

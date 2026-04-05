@@ -6,7 +6,7 @@
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198453.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192206.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186015.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Золотые застольные песни (2006) [AAC|~300 Kbps] <Pop,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185904.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Shygirl - ALIAS (2020) [AAC|~312 Kbps] <Electronic, Grime, Experimental>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185478.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Shakatak - All Around The World - 40th Anniversary Edition (2020) [AAC|~315 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185416.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ BTS - BE (2020) [AAC|~318 Kbps] <kpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185392.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185278.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Parov Stelar - Voodoo Sonic (The Album) (2020) [AAC|~310 Kbps] <Electro, Jazz, S
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185247.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185084.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Koan - Munchausen Trilemma (Side A) (2020) [AAC|~325 Kbps] <Ambient, Chillout, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184520.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184518.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Koan - Munchausen Trilemma (Side B) (2020) [AAC|~320 Kbps] <Ambient, Chillout, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184484.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184474.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Deep Sleep Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184414.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Roxette - Bag Of Trix Vol. 3 (Music From The Roxette Vaults) (2020) [AAC|~336 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184354.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Wayne Static - Pighammer (2011) [AAC|~344 Kbps] <Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184314.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184216.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Loudblast - Manifesto (2020) [AAC|~337 Kbps] <Death Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183606.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ DJ Sven, Marc Hartman - The Revival (2018) [AAC|~335 Kbps] <Electro, Techno/Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183564.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ The Smashing Pumpkins - CYR (2020) [AAC|~318 Kbps] <Alternative, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183535.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Echelon, vol. 1 (2020) [AAC|~291 Kbps] <Rap, Hip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183530.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Blue Notes & Jazzy Grooves (2020) [AAC|~319 Kbps] <Chillout, Trip-hop, Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183524.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Sodom - Genesis XIX (2020) [AAC|~333 Kbps] <Thrash Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183514.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Chillson, Marc Hartman - Little Bit of Jazz (2020) [AAC|~322 Kbps] <Chillout, Tr
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183510.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Marc Hartman - Set You Free (2015) [AAC|~345 Kbps] <Lounge, Ambient, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182529.jpg" />
 </div>
 
 

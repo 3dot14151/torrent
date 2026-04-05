@@ -1,3 +1,55 @@
+###  Публикация: 1749436   (22444) от 05.04.2025
+
+Зимородок / Yali Capkini (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-28 (74-101) из 28) turok1990
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудные времена бросают Сейран и Ферита в разные стороны жизни. Чувствуя себя счастливее благодаря Синану, Сейран всех удивит, сделав ему предложение. Хоть Суна и пытается объяснить сестре насколько серьезный это шаг, но Сейран уверена в своем решении. А Ферит хоть немного, но отошел от своего прошлого, когда в его жизни появилась Дияр. Однако ему будет нелегко узнать (   Читать дальше...   )Производство: Турция / OGM PicturesЖанр: драма, мелодрамаРежиссер: Бурджу Алптекин, Алптекин БозкуртАктеры: Афра Сарачоглу, Мерт Рамазан Демир, Гюльчин Сантырджиоглу, Эмре Алтуг, Берил Позам, Гёзде Кансу, Пелин Акил, Дирен Полатогуллары, Эрсин Арычи, Сезин Бозаджи, Джем Сёкут, Айшен Сезерел, Хюлья Дуяр, Сериф Сезер, Четин Текиндор и др.Перевод: Одноголосый любительский (turok1990)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD00562897C0B833B1ACF2A7403149BF13FA39C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789045   (22428) от 05.04.2025
+
+Госдума запретила навязывать потребителям дополнительные товары, работы и услуги
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Госдума приняла во втором и третьем чтении закон, который с 1 сентября 2025 года запрещает навязывать потребителям любые дополнительные товары, работы и услуги.Потребитель будет вправе отказаться от оплаты навязанных ему дополнительных товаров (работ, услуг), а если они уже оплачены, то потребовать от продавца (исполнителя, владельца агрегатора) возврата денег. Требование (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680242   (22336) от 06.04.2025
 
 OpenVPN for Android 0.7.55 (Обновляемая) [Ru/En]
@@ -6,7 +58,7 @@ OpenVPN for Android 0.7.55 (Обновляемая) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22336.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22122.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21914.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21913.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21912.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21896.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21820.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21811.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21807.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21705.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21704.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21619.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ MInstAll v.07.04.2025 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21605.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21602.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21599.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21494.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21493.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21478.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21368.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Navitel / Официальные карты релиза Q1 2025 v9 от 16.04.2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21082.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21080.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Google.ru уйдёт в прошлое: поисковик переведёт п
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21061.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20869.jpg" />
 </div>
 
 
@@ -613,65 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20779.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Китайские технологические гиганты Huawei и China Unicom совместно реализовали пилотный проект сверхскоростного интернета 10G в новом районе Сюнъань. Внедрение технологии основано на инновационном решении 50G PON, которое модернизирует архитектуру оптоволоконных сетей, повышая пропускную способность на абонента до 10-гигабитных показателей и сокращая задержку до миллисекундного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785085   (20663) от 22.04.2025
-
-Колесо времени / The Wheel of Time (2025) WEB-DL [H.264/1080p] (сезон 3, серии 1-8 из 8) LostFilm, HDRezka, TVShows, NewComers, WStudio, LE-Production
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20663.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 3 сезоне сериала «Колесо времени» опасные и увлекательные приключения бесстрашной Морейн из организации «Айз Седай» и ее помощника Лана продолжаются. Напомним, в предыдущем сезоне герои отправляются на поиски группы деревенских молодых ребят, считая, что кто-то из них олицетворяет собой реинкарнацию Дракона. Речь идет о мифическом существе, которое, согласно поверью, (   Читать дальше...   )Производство: США / Amazon Studios, Little Island Productions, Radar Pictures Inc.Жанр: фэнтези, боевик, драма, приключенияРежиссер: Киаран Доннелли, Томас К. Нэппер, Санаа ХамриАктеры: Розамунд Пайк, Дэниэл Хенни, Зои Робинс, Мадлен Мэдден, Джоша Страдовски, Маркус Рутерфорд, Хаммед Анимашон, Донал Финн, Кейт Флитвуд, Ceara CoveneyПеревод: Многоголосый (LostFilm, HDRezka, TVShows, NewComers, WStudio, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: ~01:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECF47E35B3FE59DF017A245D0B6942EAB7F79C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792910   (20568) от 23.04.2025
-
-300 лет полураспада и заправка без остановки: Китай запустил ториевый реактор нового поколения
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20568.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пустыне Гоби завершились успешные испытания первого в мире промышленного ториевого реактора на расплавленных солях. Установка мощностью 2 мегаватта, разработанная китайскими учёными, работает с июня 2024 года и уже продемонстрировала возможность перезагрузки топлива без остановки реактора — ранее недостижимый технологический рубеж.Торий, используемый в качестве (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

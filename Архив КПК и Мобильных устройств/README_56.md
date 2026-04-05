@@ -6,7 +6,7 @@ Link2SD Plus v3.4.2 - перенос установленных приложен
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569988.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569794.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Motivation - Каждый день v3.8.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568611.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ I am — ежедневные аффирмации v4.3.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568597.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Go Translator Premium v1.47 [Ru/Multi] - для мгновенного пере�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566709.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566134.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565675.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565150.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565138.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565051.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565021.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sms Parser Full v3.2.2 [Ru/Multi] - обработка USSD запросов и 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564911.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Simpsons: Tapped Out 4.16.2 [Ru] MegaMod
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564248.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564153.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564150.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Shift Schedule - График Работы v10.8.01.b [Ru] - График раб
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562960.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Fast Pro for Facebook 3.6.2 [Ru/Multi] - Приложение для Facebook
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562629.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562575.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Lingvist - Languages in 200h 1.1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562529.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Hotspot Shield VPN for Android 3.7.7 [Ru/Multi] - Прокси и VPN для And
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562191.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561488.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Android Delete History PRO 1.5 (rus) - Удаление историй [Прог
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_560320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_560320.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dolphin Browser HD 8.7.0 Final - Браузер /обновлено 03.08.12/[П
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_560218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_560218.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Astro Player 1.154 (Unlocked)  - Медиа-плеер [Программа](Andr
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_560128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_560128.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_560113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_560113.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559398.jpg" />
 </div>
 
 

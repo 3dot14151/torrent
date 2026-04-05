@@ -1,3 +1,29 @@
+###  Публикация: 1570709   (440500) от 18.08.2022
+
+SideFX, Krishna Bala | Staggered Fracture (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот учебный курс посвящен тому, как я создавал трещины и разрывы в моем последнем видео под названием «Blow the Logs». Надеюсь, вам понравится.Производство: SideFXЖанр: Houdini 18Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B46A13CFEE96416D430A876C60278F31701A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570714   (440488) от 18.08.2022
 
 SideFX, Robert Magee | Smashing Wine Glass (2021) PCRec [EN, RU]
@@ -6,7 +32,7 @@ SideFX, Robert Magee | Smashing Wine Glass (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440488.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ SideFX, Simon Verstraete | Realtime FX with Niagara (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440348.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ CGcircuit, Chad Vernon | Applied 3d Math (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440344.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ CGcircuit, Florian Bard | Disintegration Effect II - The Skull (2020) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440220.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Pluralsight, Beau Garcia | Practical Houdini Math Tips (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440214.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ SideFX, Rob Stauffer | Solaris in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440213.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Blender Bros, Josh Gambrell, Ponte Ryuurui | Hard Surface Modeling in Blender 3 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439656.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Oleg Lav | Загрузка  WinPE 10-8 Sergei Strelec с жесткого ди�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438678.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Jeffrey Way | Perfect Workflow in Sublime Text 2 [2012] PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438173.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438087.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Ryan Hawkins | Фотоколлажирование на основе рефер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438071.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438059.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Yiihuu, Picasso Horse | TV Channel Packaging Creative Design (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438022.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437924.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Ashish Dani | Mетт - пейнтинг зимнего пейзажа с эле
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437913.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437912.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Udemy | Моделирование и текстурирование ассет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437909.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437735.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Sam Nielson | Освещение иллюстраций и концепт-арт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437730.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ ITVDN | React Essential (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437727.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437725.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437568.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437317.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437316.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437315.jpg" />
 </div>
 
 
@@ -668,33 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6BC7CD9EFB6F446CB336EBF467BB0AB4EA95011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944825   (437314) от 08.10.2015
-
-Ирина Калмыкова | Урок №9 " Волшебный лес" (2015) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный урок создан для закрепления и отработки полученных знаний
-и механизмов обработки из прошлых уроков еще на одном примере.Жанр: Обработка фотоПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594A33D28D4F05AC1DBB16E179A32C6A9F03721C
 ```
 
 https://mybot314.ru/tekegram_catalog/

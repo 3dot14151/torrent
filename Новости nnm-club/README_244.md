@@ -1,3 +1,55 @@
+###  Публикация: 354706   (186124) от 24.09.2023
+
+Рухнувшие небеса / Сошедшие с небес / Falling Skies (2011) HDTVRip (сезон 1, серии 1-10 из 10) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186124.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате инопланетного вторжения на Землю один из сыновей профессора истории Тома Мэйсона попадает в плен, а его жена гибнет. Она оказалась одной из миллионов людей, погибших от рук пришельцев. Люди, которым посчастливилось остаться в живых, вступают в партизанские отряды, объединяются для оказания сопротивления захватчикам. Землю атакуют два вида инопланетян (   Читать дальше...   )Производство: США, Канада, DreamWorks Television, TNT Originals, Invasion ProductionsЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Грег Биман, Олатунде Осунсанми, Серджо Мимика-ГеззанАктеры: Ноа Уайли, Мун Бладгуд, Дрю Рой, Коннор Джессап, Максим Найт, Сейшелл Гэбриел, Уилл Пэттон, Сара Картер, Колин Каннингэм, Питер СинкодаПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AA73EABD1866BFE48195D5E8B5999635F0AF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647491   (186123) от 24.09.2023
+
+Хемлок Гроув / Hemlock Grove (2013) WEBRip (сезон 1, серии 1-13 из 13) NewStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186123.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городке Хемлок Гроув, выросшем вокруг сталелитейного завода Годфри, находят изувеченное тело девушки. Некоторые подозревают беглеца из «Белой Башни», биотехнологической лаборатории, принадлежащей бывшим владельцам завода. Другие полагают, что убийца — Питер, семнадцатилетний цыган, который рассказывает одноклассникам, что он оборотень. Третий подозреваемый — Роман (   Читать дальше...   )Производство: США, Gaumont International Television, Mad Hatter Entertainment, ShineBox SMCЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Дэвид Стрейтон, Деран Сарафян, Рассел Ли ФайнАктеры: Фамке Янссен, Пенелопа Митчелл, Фрея Тингли, Лили Тейлор, Билл Скарсгард, Лэндон Либуарон, Дюгрэй Скотт, Николь Буавен, Аарон Дуглас, Лори Фортье и др.Перевод: Профессиональный многоголосый - NewStudioЯзык озвучки: Русский, английскийПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079B4733ABCBBDFDEAC096A23EFC366B2BD21C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663195   (185703) от 25.09.2023
 
 Пароль не нужен (1967) DVDRip [H.264/1080p] (серии 1-2 из 2) [Handmade Upscale AI]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185703.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185650.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ HAYDEE (2016) [Ru/Multi] (1.09.11) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185645.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185568.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185555.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184986.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184971.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184696.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184645.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184623.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (2.8.0.4/1.0.111.0/dlc) Rip X-NET
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184616.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_184046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_184046.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183626.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ LEX LIVE 10 2022 v.22.10.25 RC FIX 5 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183321.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Modern Tweaker 1.6 Portable [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183312.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183296.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182649.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182639.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182617.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181751.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181694.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181683.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181659.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181384.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592905   (181295) от 25.11.2022
-
-Astra Linux Special Edition 1.7.3 [amd64] 1xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181295.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОС Astra Linux Special Edition 1.7.3 на базе Debian 10 (buster).
-Astra Linux Special Edition 1.7.3 успешно прошла комплекс испытаний в системе сертификации СЗИ ФСТЭК России по первому, высочайшему, уровню доверия. Продукт в полной мере соответствует самым строгим критериям, изложенным в «Требованиях по безопасности информации, устанавливающих уровни доверия к средствам (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58C80DBF9529DE679C9EF7305A6B94E68C31723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428025   (180997) от 30.11.2020
-
-System USB-Flash 10 v.15.0.0.3636 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная утилита является "конструктором" и рассчитана на людей, которые не умеют делать загрузочные USB-устройства. С помощью "конструктора" вы сможете создать любой загрузочный USB-накопитель как на 1 Gb так и на 8, 16, 32, 64 Gb и так далее. Данный "конструктор" будет полезен как простым пользователям так и системным администраторам.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889214AB8109472FE225CF6ABC1BBDF116F6C703
 ```
 
 https://mybot314.ru/tekegram_catalog/

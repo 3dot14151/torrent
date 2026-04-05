@@ -1,55 +1,3 @@
-###  Публикация: 1148892   (602924) от 08.07.2017
-
-Николай Соколов | Убийство царской семьи (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602924.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1918 году в Екатеринбурге было совершено зверское преступление. Мать, отец и их дети - четыре девочки и маленький мальчик - были жестоко убиты. Их достреливали в упор, добивали штыками. Стены комнаты, забрызганные кровью, расчлененные тела, попытка скрыть следы преступления... Наверное, появись такое сообщение в прессе, даже в наше криминальное время, оно заставило (   Читать дальше...   )Жанр: ИсторияПродолжительность: 18:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4565BE3319DE1DAAFC0E34DE0D9362837921FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232105   (602731) от 22.06.2018
-
-Андрей Васильченко | Сумрачный гений III Рейха. Карл Хаусхофер. Человек, стоявший за Гитлером (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Карла Хаусхофера была в равной мере загадочной и трагичной. Хотя бы по этой причине она обрастала огромным количеством мифов. Баварский кадровый офицер фактически создал новую научную дисциплину - геополитику. Сейчас ее изучают во многих российских университетах, хотя еще недавно она считалась «реакционной концепцией, использующей извращенно истолкованные данные (   Читать дальше...   )Жанр: ИсторияПродолжительность: 09:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16023210380B8E5A4D212C7EF4873170A019588D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232237   (602304) от 23.06.2018
 
 Агата Кристи | Автобиография (2011) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602304.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599529.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598964.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597846.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597418.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595277.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594584.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593393.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593344.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593197.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593136.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592761.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590149.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586742.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586741.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586392.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584170.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581883.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578462.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575466.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574299.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572800.jpg" />
 </div>
 
 
@@ -644,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572793.jpg" />
 </div>
 
 
@@ -670,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572757.jpg" />
 </div>
 
 
@@ -682,6 +630,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A77A11E5543EF07E03A1383857790C8A760E65F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303304   (572728) от 21.05.2019
+
+Алексей Варламов | Шукшин (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба Василия Макаровича Шукшина (1929–1974) вобрала в себя все валеты и провалы русского XX века. Сын расстрелянного по ложному обвинению алтайского крестьянина, он сумел благодаря огромному природному дару и необычайной воле пробиться на самый верх советской общественной жизни, не утратив корневого национального чувства. Крестьянин, рабочий, интеллигент, актер, (   Читать дальше...   )Жанр: ЖЗЛПродолжительность: 18:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6B36B898425A9D9EDA2D2B90A90D98D1C17DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303309   (572184) от 21.05.2019
+
+Ричард Шеперд | Неестественные причины. Записки судмедэксперта: громкие убийства, ужасающие теракты и запутанные дела (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тело человека – это безмолвный свидетель случившейся смерти, оно ничего не скрывает и всегда несет в себе правду. Когда смерть внезапна и необъяснима, доктор Ричард Шеперд обязательно выясняет ее причину. Каждое вскрытие – это отдельная детективная история, и автор с помощью проницательности разрешает головоломку, чтобы ответить на самый насущный вопрос: как этот (   Читать дальше...   )Жанр: Истории из жизниПродолжительность: 13:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E680330893F3D5B6236D083ED0135CA021DBEFB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1520814   (730323) от 09.02.2022
+
+Не смотрите наверх / Don't Look Up (2021) WEB-DL [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астрономы открывают новую комету и, рассчитав её траекторию, узнают, что через полгода она столкнётся с Землёй, что положит конец существованию человечества и всего живого на планете. Двое учёных с трудом добиваются аудиенции у президента США, но там к их предупреждению относятся с недоверием, тогда они выступают в популярной телепередаче, но большинство всё равно (   Читать дальше...   )Производство: CША / Bluegrass Films, Hyperobject IndustriesЖанр: Драма, фантастика, комедияРежиссер: Адам МакКейАктеры: Леонардо ДиКаприо, Дженнифер Лоуренс, Мэрил Стрип, Джона Хилл, Кейт Бланшетт, Роб Морган, Марк Райлэнс, Тайлер Перри, Тимоти Шаламе, Рон ПерлманПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские (forced х2, full), украинские (forced х2, full), английские, французские, немецкие, испанские, китайскиеПродолжительность: 02:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6EF035AEED1DD4BDEC24AB2B8A5B7CD29C29CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127209   (730264) от 22.04.2017
+
+Проекты - VideoHive - Made of Love - Romantic Slideshow - 19654947 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот романтический шаблон AE может помочь вам создать винтажный свадебный фильм, видеоролик о любви, поздравление с Днем рождения или любое другое ретро-слайд-шоу. С его модульной структурой и подробным видео-уроком вы можете сделать это с легкостью.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FBE39333FA4DE2E9E062A4179FD4DCDA7CF9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127312   (730256) от 22.04.2017
+
+Microsoft не разрешили искать пиратские копии своего ПО на российских ПК
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суды отказали Microsoft в проверке факта пиратства в российских компаниях
+Несколько российских судов отклонили просьбы Microsoft на проверку компьютеров российских компаний на предмет пиратства, где число сотрудников превышает количество выданных лицензий на программное обеспечение корпорации, пишут «Известия».По мнению российских судов, несоответствие количества (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127727   (730247) от 22.04.2017
+
+Набор обновлений UpdatePack7R2 для Windows 7 SP1 и Server 2008 R2 SP1 17.4.20 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6D7384F67B1C216DB0762C109E5E6F9FB1924C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127624   (730241) от 22.04.2017
+
+Adobe After Effects CC 2017.2 14.2.0.198 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730241.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE797B579F350570CB3D0C4F8ED9C07D14A42F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127566   (730239) от 22.04.2017
+
+CorelDRAW Graphics Suite 2017 19.0.0.328 (x64) Retail [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непревзойденные возможности CorelDRAW Graphics Suite 2017 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам самых разных уровней (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8B5F56805AC0DA4DAF64E15C8E18C4294F5448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936366   (730235) от 22.04.2017
 
 The Forest (2015) [En] (0.59b) Repack Mr.Weegley
@@ -6,7 +163,7 @@ The Forest (2015) [En] (0.59b) Repack Mr.Weegley
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730235.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730233.jpg" />
 </div>
 
 
@@ -61,7 +218,7 @@ Windows 7 Home Premium SP1 (x86/x64) Elgujakviso Edition (v.22.04.17) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730231.jpg" />
 </div>
 
 
@@ -90,7 +247,7 @@ Microsoft Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 04.2017 2 DVD [Ru
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730228.jpg" />
 </div>
 
 
@@ -116,7 +273,7 @@ Tor Browser Bundle 6.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730224.jpg" />
 </div>
 
 
@@ -142,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730210.jpg" />
 </div>
 
 
@@ -168,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730208.jpg" />
 </div>
 
 
@@ -194,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730204.jpg" />
 </div>
 
 
@@ -221,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730194.jpg" />
 </div>
 
 
@@ -247,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730192.jpg" />
 </div>
 
 
@@ -273,7 +430,7 @@ The Witcher 3: Wild Hunt Blood and Wine [Ru] (2016) (1.21) Official GOG [patch/d
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730190.jpg" />
 </div>
 
 
@@ -299,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730188.jpg" />
 </div>
 
 
@@ -328,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730125.jpg" />
 </div>
 
 
@@ -354,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729489.jpg" />
 </div>
 
 
@@ -380,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729454.jpg" />
 </div>
 
 
@@ -406,7 +563,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729447.jpg" />
 </div>
 
 
@@ -432,7 +589,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 02.2019 by OVGorskiy® 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729445.jpg" />
 </div>
 
 
@@ -458,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729434.jpg" />
 </div>
 
 
@@ -484,7 +641,7 @@ Windows 11 Pro x64 21Н2 (build 22000.469) by ivandubskoj 07.02.2022 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729430.jpg" />
 </div>
 
 
@@ -510,7 +667,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729419.jpg" />
 </div>
 
 
@@ -521,162 +678,6 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6571B9B84916E9BA49A109A6EFA98E3D6892CD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127616   (729365) от 23.04.2017
-
-В Microsoft появилась дисциплина? Windows 10 будет обновляться строго в марте и сентябре
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729365.jpg" />
-</div>
-
-
-###  Подробнее
-
-До сегодняшнего дня трудно было угадать, когда Microsoft выкатит обновления с новыми функциями (feature upgrade) для Windows 10. С сентября 2017 года график выхода станет более стабильным: компания объявила, что большие обновления Windows 10, Office 365 ProPlus и System Center Configuration Manager будут выходить дважды в год по установленному графику: в сентябре (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127962   (729363) от 23.04.2017
-
-Sandboxie 5.18 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie - небольшая, но достаточно интересная программа, которая расценивается как дополнение для веб-браузеров, призванное повысить безопасность ПК при работе с "неблагонадежными" сайтами. Sandboxie защищает компьютер ото всех нежелательных изменений, которые могли бы быть совершены активным содержимым сайтов (например, установка нежелательного ПО). (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF02FDBD93E8F5D3E7E2A03D56E4C36BE822839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022210   (729314) от 01.06.2016
-
-Суперкомпьютер рассчитал самое большое математическое доказательство, объем данных которого составил 200 терабайт
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое ученых, Мэриджн Хеул (Marijn Heule) из Техасского университета, Оливер Куллман (Oliver Kullmann) из университета Суонси и Виктор Марек (Victor Marek) из университета Кентукки загрузили суперкомпьютер задачей поиска доказательства одной из известных математических проблем. Для поиска этого доказательства суперкомпьютеру требовалось "перемолотить" более (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128073   (729293) от 23.04.2017
-
-Стоимость бензина в России превысила цены на топливо в США
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бензин в США в первом квартале 2017 года стал в среднем дешевле, чем в России. Таковы результаты исследования агентства Bloomberg.Разница в цене заметна, если за единицу измерения взять американский галлон, который составляет 3,785 литра. По состоянию на 19 марта его средняя стоимость за три месяца в США составила 2,57 доллара, а в России — 2,58 доллара, что эквивалентно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127695   (729289) от 23.04.2017
-
-Adobe Audition CC 2017.1 10.1.0.174 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FBFBD8582A340C5554070363230597BD13C23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021926   (729230) от 01.06.2016
-
-Компания General Atomics начинает разработку корабельного рельсового орудия, мощностью 10 МДж
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729230.jpg" />
-</div>
-
-
-###  Подробнее
-
-На симпозиуме Navy League's 2016 Sea-Air-Space, который проходил в середине мая этого года, представители известной оборонной компании General Atomics объявили о том, что они выделили 50 миллионов долларов из собственных средств и направили их на разработку нового рельсового орудия, энергия выстрела которого будет равняться 10 МДж (мегаджоулям). Таким образом руководство (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

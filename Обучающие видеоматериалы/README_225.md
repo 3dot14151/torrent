@@ -1,3 +1,29 @@
+###  Публикация: 1638846   (197211) от 10.06.2023
+
+PolskieCentrumKLD, Томаш Оманьски | Полный курс польского языка (2019) WEB-DL [AD] [RU, PL]
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс польского языка от знаменитого польского преподавателя Томаша Оманьски, включающий в себя 44 лекции.Производство: PolskieCentrumKLDЖанр: польский языкЯзык озвучки: польский, русскийПродолжительность: 32:28:58Реклама: сторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85524749B5A8989C70A1058DB85E2EE1AF0D0925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638790   (197201) от 10.06.2023
 
 Apeiron, Алексей Арестович | Семинар «Безжалостность» (2022) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@ Apeiron, Алексей Арестович | Семинар «Безжалост
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197201.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197190.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197123.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Foxford (Фоксфорд), Ольга Булатицкая |  Chitty-Chitty, Ba
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197113.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Wingfox, Jose Moreno | Stylized Texturing for Video Games with Blender (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197101.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Udemy, Yassine Larayedh | Create Realistic Highlands in Blender (2023) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197087.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Wingfox, Pierre Schiller | Stylized 2D Toon Shader in Blender (2021) PCRec [EN /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197084.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197056.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197012.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196957.jpg" />
 </div>
 
 
@@ -283,7 +309,7 @@ Apeiron, Алексей Арестович | Семинар «Картина м�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196941.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ Foxford (Фоксфорд), Алла Васильева | Курс по англ
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196929.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ FlippedNormals, Emiel Sleegers | Ultimate Weapons Masterclass (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196888.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ English with Mary, Mary Serebriakova | Pronunciation with Mary (2022) WEB-DL [AD
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196847.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ MasterClass.com, Гарри Каспаров | Garry Kasparov Teaches Chess / Г
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196739.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196610.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196608.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ Udemy, Denis Panjuta | Complete C# Masterclass (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196589.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196469.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196365.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196342.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196341.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196327.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Foxford (Фоксфорд), Валерия Савина | Практически
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196313.jpg" />
 </div>
 
 
@@ -664,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196280.jpg" />
 </div>
 
 
@@ -678,34 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37ABA3E4D08830A99311A1F6A3E739479CDA9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643796   (196246) от 03.07.2023
-
-Udemy, David Makowski | Modern Unity UI with UI Toolkit (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196246.jpg" />
-</div>
-
-
-###  Подробнее
-
-This course is a deep dive into Unity's UI Toolkit. You will learn most of the components that make up UI Toolkit and be able to create complex UI Systems for your games or apps.
-
-This course uses a mix of theory and practice. We will create dozens of little UI-Components and examples. Furthermore, we will have a course project on which we will practice what we learned (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DDD296CD1D47747A3CFA37D6566B1527986DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

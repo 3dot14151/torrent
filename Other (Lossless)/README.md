@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1863365   (1063946) от 
+
+VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gobi Desert Collective - Assez (5:02)
+02. Dj Renat - Busindre Reel (7:11)
+03. ARTYDAL - Viajero (Vocal Mix) (6:05)
+04. Marga Sol - Orolalo (4:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BD3FDA152DC097CAB0D0D093A1DE4E8FBFB239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863092   (1063684) от 
+
+VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Suvorov - Orchard (5:43)
+02. Ildar Bik - Talika (5:49)
+03. Gavr - Kamishek (7:22)
+04. Noyan Music - Moyo (5:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41AAE91F46233549F4BD1CAED0FA1BA7203FC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859699   (1061238) от 
 
 Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-classical, New Age, Nordic Folk>
@@ -7,7 +65,7 @@ Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061238.jpg" />
 </div>
 
 
@@ -36,7 +94,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050748.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050661.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030590.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030589.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030581.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030578.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030401.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030368.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Ins
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030357.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030334.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030107.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030098.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029932.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ The Best of Paul Mauriat 10 CD
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027979.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indi
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026120.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Deep Forest - 15 альбомов (1992-2020) [FLAC|Lossless|image + .cue|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025688.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010005.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006219.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [F
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002263.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <Ne
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001252.jpg" />
 </div>
 
 
@@ -622,7 +680,7 @@ Sacred Spirit (Claus Zundel) 11 альбомов (1994 - 2003) [APE|lossless|ima
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000731.jpg" />
 </div>
 
 
@@ -651,7 +709,7 @@ V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993423.jpg" />
 </div>
 
 
@@ -686,7 +744,7 @@ Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989089.jpg" />
 </div>
 
 
@@ -702,61 +760,6 @@ Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
 08. La Vie En Rose (contains exerpts performed by Edith Piaf)
 09. Corcovado (duet with Nelly Furtado)
 10. Sara Settembre (September Morn)(   Читать дальше...   )Жанр: Vocal, BalladПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434927   (985265) от 11.01.2012
-
-Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005) [FLAC|Lossless]<Indian Classical, Bansuri Flute, Meditation, Relax>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indian Classical, Meditation, RelaxПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168685   (967578) от 23.01.2010
-
-Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossless]<Krautrock, Ambient, Jazz Noir, Drone>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ta Grenier (4:14)
-02 - Une Cellier (11:08)
-03 - La Boudoir (4:18)
-04 - Aucun Cave (6:49)(   Читать дальше...   )Жанр: Krautrock, Ambient, Jazz Noir, DroneПродолжительность: 01:11:14
 
 ## Скачать торент
 ```bash

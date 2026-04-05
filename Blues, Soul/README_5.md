@@ -6,7 +6,7 @@ Colin Pollock - Three Cherries Red (2014) [MP3|320 кб/с] <Blues, Rockin' Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840187.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Geoff Achison - Another Mile, Another Minute (2017) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840108.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Izzo Blues Coalition - Take It or Leave It (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839590.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Henrik Freischlader Trio - Openness (2016) [MP3|320 кб/с] <Blues, Rhythm & Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838397.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ripoff Raskolnikov Band - Odds and Ends (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838389.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jeff Jensen - The River City Sessions (Live) (2016) [MP3|320 кб/с] <Electric 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838290.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jane Lee Hooker - No B! (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836669.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Static Shift - Common Bliss (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835288.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bill Wyman's Rhythm Kings - Kings of Rhythm, Vol. 1: Jump Jive and Wail (2016) [
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834450.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ David Edwin Townson - Modality (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833467.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Debbie Bond - Enjoy the Ride (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832714.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Pee Wee Crayton - Pee Wee's Blues: The Complete Aladdin & Imperial Recordings (1
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832705.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bill Wyman's Rhythm Kings - Kings of Rhythm, Vol. 2: Keep on Truckin (2016) [MP3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832631.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jake Chisholm - No More Sorrow (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831069.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jocelyn & Chris Arndt - Edges (2016) [MP3|320 кб/с] <Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830922.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Troy Redfern - Werewolf Etiquette (2013) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830059.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Shrapnel Records Presents: The Best of Blues Rock (2016) [MP3|320 Kbps] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829791.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Stan Webb's Chicken Shack - Stan's Blues (2012) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828154.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Shrapnel Records Presents: The Best of Modern Blues (2015) [MP3|320 Kbps] <
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826540.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ San2 And His Soul Patrol - Hold On (2016) [MP3|320 кб/с] <Rhythm & Blues, Sou
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825484.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Justin Johnson - Smoke & Mirrors (2014) 2CD [MP3|320 кб/с] <Acoustic, Electri
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823125.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Clube de Patifes - Casa de Marimbondo (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821613.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820812.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Roy Rogers & Norton Buffalo - Travellin' Tracks (1992) [MP3|320 кб/с] <Harmon
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819813.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bluebone - Devil Keep Chewin' (2009) [MP3|320 кб/с] <Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819808.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - I Feel Blues In My Roots (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815449.jpg" />
 </div>
 
 

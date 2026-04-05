@@ -1,3 +1,134 @@
+###  Публикация: 895796   (697079) от 07.05.2015
+
+Царь сновидений / Joseph: King of Dreams (2000) WEB-DL [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зависть братьев столкнула его в рабство. Божий дар видеть лес за деревьями приблизил его к фараону. Насыщенная событиями и моралью история производства студии DreamWorks подает хорошо известную библейскую притчу в лучших традициях предыдущего хита аниматоров - мультфильма «Принц Египта».Производство: США, DreamWorks Animation, DreamWorks Home Entertainment, Universal Home VideoЖанр: Мультфильм, Мюзикл, Драма, Приключения, Семейный, Биография, ИсторияРежиссер: Роб ЛаДука, Роберт С. РамирезПерсонажи: Бен Аффлек, Марк Хэмилл, Ричард МакГонагл, Джефф Беннетт, Джесс Харнелл, Дэн Кастелланета, Том Вирту, Ричард Херд, Стивен Уэбер, Рене Обержонуа, Мэтт Левин, Джоди Бенсон, Дэвид Кэмпбелл, Джудит Лайт, Морин МакГоверн, Пьера Коппола, Джеймс Экхаус, Кен Хадсон КэмпбеллПеревод: Двуголосый закадровый, профессиональныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7B2209E7996E9264BA0738527AFBDA9B112D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192261   (697057) от 10.03.2019
+
+Малыш Элиас / Elias: Rescue Team Adventures (2014-2015) WEB-DLRip [H.264/720p-LQ] (Серии: 1-56 из ??) Капуки Кануки [Обновляемая]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказочная история о жизни в крошечной рыболовецкой деревушке, расположенной в живописной Уютной Бухте. Занимательный детский мультсериал от норвежских аниматоров. Зрители попадают в мир оживших траулеров, спасательных кораблей, катеров, рыбных магазинчиков, амбаров и маяков, которые принимают активное участие в решении самых сложных проблем.
+Спасательный кораблик (   Читать дальше...   )Производство: НорвегияЖанр: Компьютерная анимация, Детский, Минисериал, ПриключенияРежиссер: Эспен ФиксенПеревод: Полный дубляж, вкл. песниОзвучка / Автор перевода: Капуки КанукиСубтитры: отсутствуютПродолжительность: 00:13:00 х серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEA9FF86A1151AF3B9B09B3A00820B49E13F503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220808   (696470) от 23.04.2018
+
+Смурфики / The Smurfs (2011) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696470.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сюжету, спасаясь от злого волшебника Гаргамеля, крошечные смурфики оказываются за пределами родной деревни. Из своего волшебного мира они попадают прямиком в наш мир, а именно в Центральный парк города Нью-Йорк. Теперь маленьким отважным смурфикам предстоит отыскать дорогу домой и не попасть в лапы Гаргамеля.Производство: США / Columbia PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Раджа ГоснеллАктеры: Хэнк Азария, Нил Патрик Харрис, Джейма Мейс, София Вергара, Джонатан Уинтерс, Алан Камминг, Кэти Перри, Фред Армизен, Джордж Лопез и др.Перевод: Дублированный (Лицензия)Субтитры: Русские (Forced, Full), Украинские (Forced), Английские (Forced, Full, Commentary)Продолжительность: 01:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A900DD88CF85B4ED84F022ED4F1CE4EFBF50DCA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120699   (696359) от 11.05.2017
+
+Пора Приключений (Время Приключений) / Adventure Time (2010-2012) BDRip [H.264/1080p] (Сезон: 1-3, Серии: 1-39 из 39) [EN, RU Sub] [Обновляемая]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пора Приключений - американский анимационный сериал, созданный Пендлтоном Вордом. Сериал повествует о необыкновенных и весёлых приключениях двух лучших друзей: мальчика Финна и его собаки Джейка. Действие сериала происходит в волшебной стране Ууу. Финн - 13-летний мальчик, который обожает путешествовать и спасать принцесс из лап ужасных монстров и злодеев, населяющих (   Читать дальше...   )Жанр: Рисованная анимация, Приключения, КомедияРежиссер: Ларри ЛэйчлитерПерсонажи: Jeremy Shada - Finn the Human, John DiMaggio - Jake the Dog, Hynden Walch - Princess Bubblegum, Niki Yang - Lady Rainicorn, Tom Kenny - The Ice King, Olivia Olson - Marceline the Vampire QueenПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельным файлом), перевод Павел Самойлов aka TanisПродолжительность: ~00:22:00 х Серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC217B44C1443217E0EF590944A21D82C6104FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 210545   (696328) от 19.06.2010
+
+Серебряное копытце (1977) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка про то, как старик Кокованя взял к себе девочку-сиротку, и вместе в лесу они увидели необыкновенного козлика. — Тот козел особенный. У него на правой передней ноге серебряное копытце. В каком месте топнет этим копытцем — там и появится дорогой камень. Раз топнет — один камень, два топнет — два камня, а где ножкой бить станет — там груда дорогих камней.Жанр: Рисованая анимация, ДетскийРежиссер: Геннадий СокольскийПерсонажи: сиротка Дарюша, старик КокованяПродолжительность: 00:09:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027541   (696098) от 19.06.2016
 
 Маленький принц / The Little Prince (2015) Blu-ray
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696098.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696097.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696024.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695957.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695954.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695786.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695643.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695538.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695516.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695508.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695405.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695340.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695339.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695176.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694502.jpg" />
 </div>
 
 
@@ -400,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694087.jpg" />
 </div>
 
 
@@ -426,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694049.jpg" />
 </div>
 
 
@@ -452,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693908.jpg" />
 </div>
 
 
@@ -478,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693866.jpg" />
 </div>
 
 
@@ -504,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693760.jpg" />
 </div>
 
 
@@ -530,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693738.jpg" />
 </div>
 
 
@@ -541,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30E802970FAB6C8C7BCFDA059FB57214BD7961EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674547   (693009) от 30.06.2013
-
-Специальный агент Фредди / Freddie as F.R.O.7. (1992) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давным-давно во Франции жил принц по имени Фредерик. И быть бы принцу королем, если бы злая тетка Фредерика - колдунья Мессина - не превратила его в лягушонка, ростом с человека. Но Фредди недолго пребывал в унынии. С помощью магического дара, унаследованного от своего отца-короля, Фредди начал новую жизнь в облике супершпиона на службе у правительства Франции! (   Читать дальше...   )Жанр: мультфильм, мюзикл, фэнтези, приключенияРежиссер: Джон Асевски / Jon AcevskiПеревод: Двуголосый закадровый, профессиональныйЯзык субтитров: РусскиеПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147D111A8A68E932B955B65741CDB7AEDAD05EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674454   (692809) от 30.06.2013
-
-Звезда Лоры и таинственный дракон Нянь / Lauras Stern und der geheimnisvolle Drache Nian (2009) BDRip 720p
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка по имени Лора, у которой есть настоящая живая звезда, едет со своей семьей в Китай, где ее мама будет давать концерт. Звездочка рашает отправиться вместе с Лорой, но в пути внезапно пропадает. Оказывается ее нашла и взяла с собой китайская девочка по имени Лин-Лин. Встреча Лоры и Лин-лин, начавшаяся со ссоры, вскоре перерастает в настоящую дружбу, особенно (   Читать дальше...   )Жанр: Мультфильм, семейныйРежиссер: Пьет де Рикер / Piet de Rycker, Тило Роткирч / Thilo RothkirchПеревод: Многоголосый закадровый, любительскийЯзык субтитров: немецкиеПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F56CDDB2F17862475961D5769BE6EC3013CB5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674490   (692601) от 30.06.2013
-
-Лев, Колдунья и волшебный шкаф / The Lion, the Witch & the Wardrobe (1979) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нарния – это сказочный мир, созданный для детей англо-ирландским автором Клайвом Стэйплзом Льюисом. Животные там умеют разговаривать, а магия является привычным для всех ремеслом. Однажды четверо детей обнаруживают дверь, ведущую в эту удивительную страну. Но власть в Нарнии теперь принадлежит злой колдунье, наславшей на всю страну вечную зиму. Только детское бесстрашие (   Читать дальше...   )Жанр: мультфильм, фэнтези, драма, приключенияРежиссер: Билл МелендесПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBADF95BFE9662BA67CCAC49B7B930939E52289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403314   (692351) от 19.08.2020
-
-Обезьяньи мелодии / Monkey Melodies (1930) DVDRip [H.264] [hand made colored] [EN]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обезьяны качаются на лианах и к их песням и танцам присоединяются другие существа из джунглей. А две влюбленные обезьяны гоняются друг за дружкой и целуются. Но голодные крокодилы поджидают их...Производство: США, Walt DisneyЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Берт ДжиллеттПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: вшитые отключаемые на английскомПродолжительность: 00:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF6B3753F8AB19C3188CA1377D962B3F9AA9C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403251   (692215) от 19.08.2020
-
-Тайна гориллы / The Gorilla Mystery (1930) DVDRip [H.264] [hand made colored]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбежала горилла. Микки в панике звонит Минни, но она играет песню, чтобы показать, что она не боится. То есть, пока горилла не подойдет к ней сзади и не схватит ее. Микки бросается к ней, чтобы спасти.Производство: США, Walt DisneyЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Берт ДжиллеттПеревод: ДублированныйСубтитры: вшитые отключаемые на английскомПродолжительность: 00:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C42F09CC7FE245EA47ADE857A02CE0F144A707
 ```
 
 https://mybot314.ru/tekegram_catalog/

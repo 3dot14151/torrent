@@ -1,3 +1,32 @@
+###  Публикация: 1072291   (352397) от 13.11.2016
+
+Lenny Kravitz - Another Life (2004) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uncharted Terrain (4:27)
+02. Spinning Around Over You (3:37)
+03. Confused (6:47)
+04. Another Life (3:59)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4FECD92770E74F8AB07AA57F884885AA189FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072504   (352385) от 13.11.2016
 
 Dog 'N' Style - Pub's Calling (2016) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
@@ -6,7 +35,7 @@ Dog 'N' Style - Pub's Calling (2016) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352385.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Stryper - The Covering (2011) [APE|Lossless|image + .cue] <Hard Rock, Heavy Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352384.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ ESP (Eric Singer Project) - ESP (1999) [APE|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352382.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Electric Light Orchestra - Mr. Blue Sky: The Very Best Of Electric Light Orchest
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352348.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Maggie Lindemann - Suckerpunch (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352311.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Death Cab for Cutie - Asphalt Meadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Indi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352310.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Biopsyhoz (Биопсихоз) - Касание (2016) [MP3|320 Kbps] <Alternati
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352303.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Dirkschneider - Live - Back To The Roots (2016) 2CD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352270.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Black Marble - Bigger Than Life (2019) [FLAC|Lossless|tracks + .cue] <Indie-Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352263.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Flying Colors - Third Degree (2019) 2CD Limited Edition [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352251.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Nick Cave & The Bad Seeds - Ghosteen (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352248.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ VA - Воскресение - Юбилейный концерт (10 лет гр�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352210.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ Gogol Bordello - Solidaritine (2022) [FLAC|Lossless|WEB-DL|tracks] <Gipsy Punk. 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352191.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352161.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ Brief Respite - Lullaby to the Moon (2005) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352107.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ Tarja & Alissa White-Gluz - Demons In You (2016) Single [MP3|320 Kbps] <Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352018.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ LaScala - Repeat (2016) EP [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352010.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ David Eugene Edwards & Alexander Hacke - Risha (2018) [FLAC|Lossless|image + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352000.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Shadow Of Sadness - SOS (2015) [MP3|320 кб/с]<MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351790.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psyc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351787.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ Sniff 'n' The Tears - No Damage Done (1992) [FLAC|image+.cue]<Pop Rock & Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351783.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351693.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Juicy Lucy - Juicy Lucy (1969) / 2006, Air Mail Archive / [MP3|320 кб/с]<Blue
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351548.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Sniff 'n' the Tears - A Best Of (1991) [FLAC|image+.cue]<Pop Rock & Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351545.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Exarsis - New War Order (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351525.jpg" />
 </div>
 
 
@@ -724,35 +753,6 @@ Exarsis - New War Order (2017) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0735A82B24D54DA207B744E4E8FAD8FA4CFE18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418097   (351488) от 23.10.2020
-
-Hexx - Entangled In Sin (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watching Me Burn (4:33)
-02. Entangled in Sin (3:24)
-03. Vultures Gather Round (3:28)
-04. Beautiful Lies (5:06)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C7C6912D84807EF4735D92923F8976EA6142EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

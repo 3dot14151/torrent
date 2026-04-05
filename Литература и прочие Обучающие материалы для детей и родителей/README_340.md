@@ -1,3 +1,55 @@
+###  Публикация: 735589   (277971) от 17.12.2013
+
+В. Б. Муравьев, Л. Г. Чудова | Эхо. Предания, сказания, легенды, сказки (1973) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277971.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны предания, сказания, легенды и сказки, сложенные разными народами и в разную пору: и в глубокой древности, и в не столь отдаленное от наших дней время. Объединяет их общее для всех народов уважение к людям труда, к самоотверженным защитникам родины, к борцам против несправедливости. В них нашли отражение оптимизм народа, его вера в торжество добра над злом.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BA1214CE2EC2C498F31084DB4D21D4D6D77AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264559   (277915) от 25.11.2018
+
+Сергей Иванов | Ольга Яковлева (1976) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть об Ольге Яковлевой, ученице второго класса, об её сложном внутреннем мире, о тонкости её чувств, о долге перед людьми.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D5923BAA51D88D640B0F4B6CA5074DF08257758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264558   (277914) от 25.11.2018
 
 Арнольд Кулик | Белый голубь (1963) [FB2]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277914.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277579.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277254.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277251.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276971.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276945.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276922.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276579.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276526.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276429.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276399.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276029.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275907.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275638.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274907.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274892.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274860.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274839.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274837.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274736.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274733.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274496.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274426.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274251.jpg" />
 </div>
 
 
@@ -633,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:390DB32B856B41FB8CAE5E51113DB1EC5F6B5BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083741   (273782) от 16.12.2016
-
-Наталья Колпакова | Скок-поскок (1974) [DJVU, PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавные небольшие стихотвореньица про молодого дрозда, томимого жаждой, и про семь котят из семи городов и про старичка-лесовичка, свернувшего с тропинки.Жанр: Детская проза, СказкаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F311B91E62B55101DFB72F6479185C89F0C2A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083582   (273639) от 16.12.2016
-
-Корнелия Функе | Ведьмочка Альма и заколдованная картошка (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды юной колдунье Альме захотелось на обед картошки. Прихватив котёл, она отправилась в огород. Но вот незадача: картошка там выросла не крупнее гороха! Придётся Альме добывать себе обед колдовским способом. Но что произойдёт, если, произнося заклинание, ведьма всё перепутает и полетит на метле не в ту сторону? Правильно, колдовство сработает, но совсем не так, (   Читать дальше...   )Жанр: Детская проза, СказкаПеревод: Татьяна ЗборовскаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E6FA2D922E6C66F3EC01744B5AD3C78662DA6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

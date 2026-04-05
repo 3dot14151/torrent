@@ -6,7 +6,7 @@ George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_94891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94891.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Tierney Sutton Band - American Road (2011) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_94889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94889.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Billie Holiday - Easy To Love (2009) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_94860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94860.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lester Young - The Lester Young Story (1936 - 1949) 4CD, 2000, Proper Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94731.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Larry Coryell & Emily Remler - Together (1985) [FLAC|Lossless]<Concord Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_94367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94367.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Delizioso - Italian Swing Sisters (2004) [FLAC|Lossless]<Vocal Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_94354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94354.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Jazz for Lovers vol.6 (2002) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_94176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94176.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_94076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94076.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93763.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93708.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93707.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93559.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93531.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93524.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93517.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Hilde Louise Asbjornsen - Eleven Nights (2005) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93453.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93441.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93408.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Ndidi Onukwulu - Move Together (2009) [FLAC|Lossless]<Vocal Jazz, Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93363.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Jacques Loussier - The Best of Play Bach (1985) [FLAC|Lossless]<Chamber Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91047.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Eric Marienthal - It's Love (2012) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90801.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Bebo Best & Super Lounge Orchestra - Saronno On The Rocks (2011) [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90582.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ Renaud Garcia-Fons - Solo: The Marcevol Concer (2012) [FLAC|Lossless]<Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89632.jpg" />
 </div>
 
 
@@ -785,7 +785,7 @@ Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89381.jpg" />
 </div>
 
 
@@ -820,7 +820,7 @@ Yehudi Menuhin &  Stephane Grappelli - Menuhin & Grappelli Play... 2CD (2004) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88949.jpg" />
 </div>
 
 
@@ -846,7 +846,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88157.jpg" />
 </div>
 
 

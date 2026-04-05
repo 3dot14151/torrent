@@ -6,7 +6,7 @@ Discovery: Путешествие в Долину Царей / Journey Through t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252393.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252043.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252018.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251547.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Discovery. Суперфабрики любимая еда / Super Factories Food
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249776.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Discovery. Экспедиция: Назад в будущее / Expedition: Back
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249466.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC. Охота на Питера Тобина / The Hunt for Peter Tobin (2025)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249415.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG. Настольная книга диктатора / The Dictator's Playbook
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249402.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248315.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ PBS. American Experience: Осуждение Роберта Оппенгейме
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247864.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG: Запреты / Табу / Taboo (2002-2012) HDTVRip [H.264/720p-LQ] (се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247757.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246960.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NG. Салли / Sally (2025) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246110.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ NG. Салли / Sally (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246107.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244578.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ BBC: Любовница и жена / The Mistress and the Wife (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244286.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244262.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242619.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NG: Шершни из ада / NGS: Hornets From Hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242292.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Discovery: Разрушители автолегенд / Motor MythBusters (2021
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240464.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240048.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239974.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239810.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ NG. Затерянные города с Альбертом Лином / Lost Ci
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239478.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239345.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NG. Смертельно опасные монстры Австралии / Aust
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239120.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 792390   (699605) от 07.06.2014
+
+School.php | Пошаговое создание сайта от А до Я (для новичков) (2013) [PCRec]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс подготовлен на молодого бойца, отличия от других курсов это полное построение сайт от А до Я. Автор курса Inpost, человек зарекомендовавший как опытный программист в WEB структуре, рассказывает нюансы построения сайта, ошибки часто встречающие. Начинающему и опытным WEB программиста данный курс будет полезен, они найдут для себя очень много полезной информации, (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 89:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD8D6F49EC2080A60DEE99ADE37E44ACDF2A0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402635   (699118) от 15.08.2020
 
 [Udemy] Evgen Marfel | Figma для веб дизайнера с 0 до профессионала (2020) PCRec
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699118.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Skillbox | Как делать контент для YouTube (2020) CamRip
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699116.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ FXPHD.com | Introduction to After Effects Scripting (2010) PCRec [H.264/720p-LQ]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698281.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ Andrew Conroy | The Anatomy of an Expression for Facial Animation in Maya (2013)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697425.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694660.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693303.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part E (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692186.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692121.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Nathan Glemboski | Animating a Short Film in Maya and Unreal Engine (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691911.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691801.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691039.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690962.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690956.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Sean Allen | iOS Dev Launchpad (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690328.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690018.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ learn.nestjs.com | Основы NestJS / NestJS Fundamentals (2020) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690012.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689997.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689849.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689390.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ moytrafic.ru | Конференция: Найди свой трафик (2016) H
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688102.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688098.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688097.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688089.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688030.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688020.jpg" />
 </div>
 
 
@@ -670,39 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DD5A446A574E22CE67555FC6B985700901D73DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504372   (687290) от 06.06.2012
-
-Е. Мороз | Рисуем за 7 Дней с Нуля [2012] Flash Video
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоуроки. Я знаю, что Вы давно мечтаете научиться рисовать!
-Но в то же время я точно знаю, что самые лучшие рисунки получаются у тех, кто... РИСУЕТ!
-Поэтому все наши Тренинги и Мастер-Классы ПРАК-ТИ-ЧЕС-КИЕ!
-И мы с Вами уже начинаем создавать наши произведения. ПРЯМО СЕЙЧАС!
-Так что вооружайтесь вдохновением и вперед!
-Наслаждайтесь Творчеством!!!
-Главное: не просто скачивайте, а рисуйте!
-И очень скоро Вашими шедеврами восхитятся Ваши родные, близкие, друзья и коллеги!Жанр: СамоучительПродолжительность: 05:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD819BAA32B09EAFCEC1E1B5D4700AECD9FFEDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1277302   (775489) от 21.01.2019
+
+"Правила хорошей жены" из американского журнала Housekeeping Monthly, 13 мая 1955 года.
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_775489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ужин должен быть готов. Об этом стоит позаботиться заранее, порой даже за ночь до ужина, чтобы вкусные и разнообразные блюда были готовы к приходу мужа. Это способ показать супругу, что ты думаешь о нем и заботишься о его потребностях. Большинство мужчин голодны, когда возвращаются домой, и вид хорошей еды (особенно любимого блюда) – неотъемлемая часть теплого (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277468   (775487) от 21.01.2019
+
+Windows 10 x64 USB Project Release by StartSoft 05-2019 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры операционной системы Windows 10 с разрядностью x64-bit. Загрузочный образ, который входит в состав сборки, предназначен для записи на Flash накопитель размером от 16 Гигабайт. Сборка поддерживает установку операционной системы на компьютеры жесткие диски которых имеют разметку стандартов GPT или MBR при помощи модифицированного (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA63A9E71EB50CBB598B464F645AA120D09C5A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095545   (775483) от 21.01.2019
+
+Warhammer 40,000: Sanctus Reach (2017) [Ru/Multi] (1.2.4/dlc) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Sanctus Reach переносит игроков в темную эпоху резни и бесконечной войны. Мира нет – Империум осаждают со всех сторон, и одной из главных угроз являются Орки. Один из могущественных отрядов зеленокожих направляется в систему Sanctus Reach и миры один за одним склоняются под натиском миллиардов кровожадных захватчиков.Тип издания: LicenseРазработчик: Straylight EntertainmentЖанр: Strategy (Turn-based, Tactical), IsometricЯзык субтитров: Русский, Немецкий и другиеЯзык интерфейса: Русский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7E592E2701FE2A8BFA321A671BE0711E49681C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276187   (775482) от 21.01.2019
+
+Windows 10 32in1 (x86/x64) + LTSC +/- Office 2019 by SmokieBlahBlah 14.01.19 [Ru/En]
+
+>>3
+>>36
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775482.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 редакций Windows 10 (русские и английские) с обновлениями по декабрь 2018, основанных на оригинальных образах Redstone 5 (1809) и интегрированными системными библиотеками
++8 таких же редакций со встроенным MS Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС.
+
+Ничего не вырезано (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B07FE311BA37A90AF5898F06C97EF367EB9B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014933   (775411) от 09.05.2016
+
+Kerish Doctor 2016 4.60 DC 07.05.2016 Final Repack by Alker [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kerish Doctor 2016 — комплексное решение для автоматического ухода за компьютером под управлением ОС Windows. Программа предлагает два режима работы. В режиме работы в реальном времени Kerish Doctor 2016 в фоновом режиме защищает систему и автоматически исправляет ошибки автоматически, показывает уведомления о проделанной работе. Программа запускается вместе со стартом (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF319DD7110AFE826F576A505F05E6346F42049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009060   (775403) от 09.05.2016
+
+P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775403.jpg" />
+</div>
+
+
+###  Подробнее
+
+P·O·L·L·E·N, атмосферная и таинственная игра, в которой вам предстаит исследовать огромную космическую станцию. У планеты Сатурн есть спутник Титан. На Титане – исследовательская станция. На станции пропал человек.Тип издания: LicenseРазработчик: Mindfield GamesЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2909D1B939B3E08795D1E23EE390D4E3140461B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941608   (775398) от 09.05.2016
 
 Thief (2014) [Ru/En] (1.7 build 4158.21/upd8/dlc) Repack =nemos= [Master Thief Edition]
@@ -6,7 +165,7 @@ Thief (2014) [Ru/En] (1.7 build 4158.21/upd8/dlc) Repack =nemos= [Master Thief E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775398.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Need For Speed: The Run (2011) [Ru] (1.1.0.0) Repack =nemos= [Limited Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775397.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775252.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775049.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775042.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ Windows 7 LEX-PEX.NET™ v1.0 [русский]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775040.jpg" />
 </div>
 
 
@@ -169,7 +328,7 @@ NVIDIA подозревается в использовании монополь
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774975.jpg" />
 </div>
 
 
@@ -195,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774870.jpg" />
 </div>
 
 
@@ -222,7 +381,7 @@ World of Tanks: Merkava ModPack (2017) [Ru] (0.9.22.0.1/14.2) Mod
 >>26
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774869.jpg" />
 </div>
 
 
@@ -248,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774788.jpg" />
 </div>
 
 
@@ -275,7 +434,7 @@ Windows 7 Ultimate SP1 (x86/x64) Elgujakviso Edition (v.21.01.19) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774786.jpg" />
 </div>
 
 
@@ -304,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774785.jpg" />
 </div>
 
 
@@ -330,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774685.jpg" />
 </div>
 
 
@@ -358,7 +517,7 @@ C праздником великой Победы!
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774683.jpg" />
 </div>
 
 
@@ -384,7 +543,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774681.jpg" />
 </div>
 
 
@@ -410,7 +569,7 @@ Bombshell (2016) [En] (1.2/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774679.jpg" />
 </div>
 
 
@@ -436,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774344.jpg" />
 </div>
 
 
@@ -462,7 +621,7 @@ Windows 7 PROFESSIONAL X64 VL OEM [PRE SP1 v 172] v.7601 16556 [русский]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774167.jpg" />
 </div>
 
 
@@ -495,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774158.jpg" />
 </div>
 
 
@@ -522,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774119.jpg" />
 </div>
 
 
@@ -534,164 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277616   (774027) от 23.01.2019
-
-Роскосмос сформирует отряд женщин-космонавтов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскосмос сформирует отряд женщин-космонавтов для полётов на орбиту, сообщил агентству ТАСС анонимный источник в ракетно-космической отрасли: «Будет сформирован полноценный отряд космонавтов из числа молодых женщин — специалистов ракетно-космической отрасли». Источник добавил, что «госкорпорация будет вести поиск кандидаток в инициативном порядке, а не ждать, когда (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277599   (774024) от 23.01.2019
-
-Rolls-Royce строит самый быстрый в мире электросамолет
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аэрокосмическая компания Rolls-Royce Pls (не имеет прямого отношения к автопроизводителю Rolls-Royce Motor Cars, принадлежащему BMW) работает над самым быстрым в мире электрическим самолетом. Проект носит название Accelerating the Electrification of Flight (ACCEL).Самолет разрабатывается в рамках совместного предприятия, созданного Rolls-Royce, британским производителем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212881   (774007) от 14.03.2018
-
-TinyPNG and TinyJPG Photoshop Plugin 2.3.9 (x64-x86) [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин оптимизирует изображения прямо из Photoshop с идеальным балансом качества и размера файла.
-Используются интеллектуальные методы сжатия с потерями. Уменьшая количество цветов 24-битные PNG-файлы преобразоваваются в гораздо меньшие 8-битные индексированные цветные изображения. Все ненужные метаданные также удаляются. Разница в большинстве случаев мало заметна (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188EFA6F18D6918F4C31AE04193C2492BBEE0A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212981   (774004) от 14.03.2018
-
-Смерть Сталина / The Death of Stalin (2017) BDRemux [H.264/1080p] [AVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774004.jpg" />
-</div>
-
-
-###  Подробнее
-
-СССР, 1953 год. Страна трепещет от страха перед одним человеком. 5 марта Генсек умер. Когда уходит великий вождь, наступает время борьбы за власть. Гонка началась!Производство: Франция, Великобритания, Бельгия, eOne, Gaumont, Quad Productions, Main Journey, France 3 Cinema, Canal+, Panache ProductionsЖанр: КомедияРежиссер: Армандо ИаннуччиАктеры: Ольга Куриленко, Андреа Райзборо, Руперт Френд, Джейсон Айзекс, Стив Бушеми, Джеффри Тэмбор, Ричард Брэйк, Пэдди Консидайн, Майкл Пэйлин, Джонатан АрисПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: Михаил ЯроцкийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5F5903F0BE5326AC75C613A8F4899934520CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212601   (774003) от 14.03.2018
-
-Почту России подозревают в воровстве смартфонов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посылки со смартфонами для жителей Омска нашли вскрытыми и выброшенными в Москве
-Пользователи соцсетей уличили сотрудников предприятия в краже большой партии гаджетов, заказанных из-за рубежа.Пользователь "Пикабу" под ником downpr заявил об обнаружении доказательств того, что Почта России ворует посылки клиентов. Мужчина нашёл свалку вскрытых бандеролей (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212787   (774000) от 14.03.2018
-
-Adobe Photoshop CC 2018 19.1.2.45971 RePack by KpoJIuK  [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB51B49E6047283D9F503BD7DCB903D75CE365B
 ```
 
 https://mybot314.ru/tekegram_catalog/

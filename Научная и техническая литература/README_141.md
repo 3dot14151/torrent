@@ -1,137 +1,3 @@
-###  Публикация: 1113805   (832084) от 15.03.2017
-
-К. Каутский | Экономическое учение Карла Маркса (1956) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию читателей книга написана одним из лидеров и теоретиков германской социал-демократии и II Интернационала, идеологом центризма Карлом Каутским. Впервые опубликованная в 1886 году, она стала одним из самых известных трудов по экономике капитализма. Автор не только дает популярное изложение "Капитала" Маркса (главным образом в пределах (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58DC8B9D2B079E4E7F1CD4514B433C1689B4C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114415   (832083) от 15.03.2017
-
-Н. К. Крупская | Воспитание молодежи в ленинском духе (1925) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие:
-
-Когда, после долгих лет эмиграции, в апреле 1917 г. я вернулась в Россию и приехала в Ленинград, движение рабочей молодежи носило уже широкий размах. Я стала внимательно присматриваться к нему, ходить на собрания молодежи. Революционная волна захватила рабочую молодежь с необычайной силой. Она кипела, рвалась к борьбе, к новой жизни. Рабочая молодежь (   Читать дальше...   )Жанр: История, политология, педагогика, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCDC7FA34A345B89F5DCE171791CB7E86470FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114138   (831967) от 15.03.2017
-
-А.С. Козерук | Технология оптического приборостроения (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный учебно-методический комплекс, предназначен для самостоятельного изучения дисциплины «Технология оптического приборостроения» студентами приборостроительных специальностей. Может быть использован преподавателями сходных дисциплин для подготовки к лекциям и организации лабораторных и практических занятий.
-В состав комплекса входят следующие разделы: теоретический (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A662116D8A3FE7F67823415B5AC1B019C0E9CCD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113639   (831847) от 15.03.2017
-
-С.Л. Калачев | Теоретические основы товароведения и экспертизы (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий учебник подготовлен в соответствии с требованиями Федерального государственного образовательного стандарта высшего профессионального образования третьего поколения и предназначен для освоения учебной дисциплины «Теоретические основы товароведения и экспертизы».
-Для студентов высших и средних специальных образовательных учреждений, обучающихся по специальностям (   Читать дальше...   )Жанр: Товароведение, маркетинг, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C35E11ACB76C81EEA01E0BEB7E87D274030006A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113652   (831834) от 15.03.2017
-
-Ю.П. Петров | Как получать надежные решения систем уравнений (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необходимость вычислять решения систем алгебраических уравнений встречается во многих задачах техники и физики, и без точных оценок возможной погрешности решения не надежны. В книге изложены методы и алгоритмы, впервые позволяющие дать точную оценку погрешности каждой из составляющей вектора решений системы линейных алгебраических уравнений, тогда как ранее были (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9165C125662EBAF929B690F66D03B22490AA00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113724   (831767) от 15.03.2017
 
 М.А. Горюнова и др. | Интерактивные доски и их использование в учебном процессе (2010) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831767.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831745.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831681.jpg" />
 </div>
 
 
@@ -218,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831677.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831392.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831388.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831346.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831191.jpg" />
 </div>
 
 
@@ -350,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831070.jpg" />
 </div>
 
 
@@ -378,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831068.jpg" />
 </div>
 
 
@@ -404,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831064.jpg" />
 </div>
 
 
@@ -430,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831061.jpg" />
 </div>
 
 
@@ -456,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831060.jpg" />
 </div>
 
 
@@ -482,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830954.jpg" />
 </div>
 
 
@@ -508,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830923.jpg" />
 </div>
 
 
@@ -534,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830916.jpg" />
 </div>
 
 
@@ -560,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830737.jpg" />
 </div>
 
 
@@ -586,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830717.jpg" />
 </div>
 
 
@@ -612,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830349.jpg" />
 </div>
 
 
@@ -638,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830054.jpg" />
 </div>
 
 
@@ -664,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829926.jpg" />
 </div>
 
 
@@ -675,6 +541,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4292C89E30770A445A71E64C1123D7F089888FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502263   (829900) от 13.10.2021
+
+Джеффри Уильямсон, Ларри Нил (ред.) | Кембриджская история капитализма [2 тома] (2021) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том «Кембриджской истории капитализма» содержит подробный рассказ о развитии капитализма с самых ранних его этапов. Начиная с его далеких истоков в Древнем Вавилоне, главы тома одна за другой прослеживают его путь до «земли обетованной» капитализма в Америке. Авторы из разных стран рассуждают о вкладе цивилизаций Греции, Рима и Азии, а также империй Китая, (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Общая история, История экономикиПеревод: Анна Шоломицкая, Алексей ГусевФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57E5CD8DA9B7D6264AF527E87984FCCBC70F514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416909   (829891) от 13.10.2021
+
+Виталий Шаповалов | Методы психологической оценки достоверности сообщаемой информации (2016) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829891.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем методическом пособии представлен обзор зарубежных психологических методик, используемых в целях психологической оценки достоверности сообщаемой информации или так называемой неинструментальной детекции лжи. Данные методики активно используются в разных странах экспертами-психологами, сотрудниками полиции, службами безопасности предприятий, полиграфологами, (   Читать дальше...   )Жанр: Психология, ПолиграфияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26D49A43B1B69113E297D9E362ADE2C0458FF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502101   (829882) от 13.10.2021
+
+Н. А. Бобринский | Животный мир и природа СССР (1960) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга профессора Н.А. Бобринского "Природа и животный мир Советского Союза" представляет собой одни из немногих научно-популярных очерков, посвященных географии животных нашей страны. После выхода первого издания в 1949 году книга стала библиографической редкостью.Жанр: ПриродаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57941D22A14C4CA10333954A8703F76E10350004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502225   (829682) от 13.10.2021
+
+Кирилл Галанкин | Практическая кинезиология. Как перевоспитать мышцы-халтурщицы (2021) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы быть здоровым, двигаться нужно правильно. Правильными мышечными движениями являются движения, в процессе которых все мышцы сокращаются и расслабляются должным образом – так, как их запрограммировала природа. Наш опорно-двигательный аппарат представляет собой хорошо выверенную и отлично сбалансированную конструкцию из сотен мышц и суставов.
+
+Знаете ли вы, что (   Читать дальше...   )Жанр: Здоровье, Научно-популярная литература, Популярно о медицинеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDB838C1B31E11F772C49AC4DC120E2F1651F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114789   (829571) от 16.03.2017
+
+Джонс Морган | Ламповые усилители [2-е изд.] (2011) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829571.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге известного английского автора поставлена задача научить читателя теории и практике построения высококачественных ламповых усилителей звуковой частоты класса качества High-End Поскольку на сегодняшний день «ламповый звук» становится все более популярным, причем не только среди меломанов и аудиофилов, но и среди рядовых слушателей музыки, интерес к подобной (   Читать дальше...   )Жанр: РадиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD34B03FA31030AEB1BA7202B1B94FBA5E1F2E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

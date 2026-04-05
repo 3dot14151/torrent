@@ -1,32 +1,3 @@
-###  Публикация: 1384850   (800849) от 22.05.2020
-
-Ёлка - Past Perfect (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я не такая, как вы!
-2. Синтетический мир
-3. Изоляция
-4. Красная роза(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17788CDA0B3AD45DFAECE9EF9D1F709EBA805DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384900   (800338) от 23.05.2020
 
 23:45 - Новое время (2013) [MP3|320 Kbps] <Pop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800338.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Айсберг (1999-2001) 6CD [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799204.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798651.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Трибьют t.A.T.u. "200 по встречной" (2021) [MP3|320 Kbps]
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798244.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - 13 друзей Билана (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794887.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794829.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793947.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Айсберг. Каникулы с Андреем Губиным (2001) [M
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793432.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793398.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Айсберг. Дискотека 1-2 (2001) 2CD [MP3|image + .cue|320 Kbp
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793314.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793004.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792373.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792335.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792101.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791365.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790493.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Burito - Небесный ампир (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789737.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Hi-Fi - Лучшее (2015) LP [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787560.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786825.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786691.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783458.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781845.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780397.jpg" />
 </div>
 
 
@@ -698,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780039.jpg" />
 </div>
 
 
@@ -724,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779742.jpg" />
 </div>
 
 
@@ -738,6 +709,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFAD4AC422649C16379F50A808029E79A5C23327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209002   (779619) от 24.02.2018
+
+Алиса Вокс - Новая Алиса Вокс (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новая
+02. Нить
+03. Фейерверк
+04. Не хочу(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0BE65AAB1ADED865A9D5F8D8D6DCD488C1F0021
 ```
 
 https://mybot314.ru/tekegram_catalog/

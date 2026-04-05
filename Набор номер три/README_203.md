@@ -1,3 +1,160 @@
+###  Публикация: 1207806   (778739) от 02.03.2018
+
+Кровавая барыня (2017) SATRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778739.jpg" />
+</div>
+
+
+###  Подробнее
+
+XVIII век. Российская империя. Начало царствования Екатерины II.Рассказ о судьбе печально известной русской помещицы Дарьи Салтыковой, прозванной в народе «Салтычихой».«Салтычиха» вошла в историю как одна из самых жестоких убийц.Производство: Россия / киностудия "Маркес" / кинокомпания "Русское"Жанр: историяРежиссер: Егор АнашкинАктеры: Юлия Снигирь, Марта Тимофеева, Федор Лавров, Сергей Шеховцов, Александр Никольский, Николай Лунин, Марина Дианова, Александр Соколовский, Сергей Шаталов, Мария Дубина и др.Продолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED25E56D7697B180A2320B9F38C34FAE1778F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210107   (778737) от 02.03.2018
+
+AAct 3.8.5 Portable [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778737.jpg" />
+</div>
+
+
+###  Подробнее
+
+AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013, 2016. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. Программе (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2448FDB9CE4F5587541673A96977B59350AC69FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096743   (778736) от 02.03.2018
+
+Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack Other s [Digital Deluxe Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливый хакер Маркус объединяется с хакерской группой DedSec, чтобы противостоять системе глобального контроля ctOS 2.0, которую криминал использует, чтобы отслеживать и манипулировать жизнью горожан.Тип издания: RepackРазработчик: UbisoftЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE43CECD6B634D082A25F62E4051E8BE54AFE2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158210   (778733) от 02.03.2018
+
+DiRT 4 (2017) [Multi] (1.8/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778733.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiRT 4 игроков ожидает новый революционный режим Your Stage, в котором вы сможете создать бесконечное количество уникальных трасс, нажатием одной кнопки - достаточно выбрать локации и характеристики маршрута, и игровой движок сделает все за вас - создаст уникальный уровень по вашим параметрам.Тип издания: RepackРазработчик: CodemastersЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76E87EFA3C96B31951499ABDCDC4D6588D5910A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210267   (778732) от 02.03.2018
+
+Webformyself | PHP-Мастер. От теории до собственной CMS интернет-магазина (2018) [unpacked]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пройдите этот курс, построив собственную кастомную CMS для интернет-магазина. Вы новичок в PHP, опытный разработчик или просто интересуетесь возможностями языка? Этот курс будет полезен всем без исключения.Производство: Андрей КудлайЖанр: Программирование, PHPФормат: unpackedПродолжительность: 53:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E229BE2B1CDF8CFC2C2182335A9BEAD723776279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210025   (778731) от 02.03.2018
+
+Navitel / Навител: Официальные карты релиза Q1 2018 [Ru/Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользователям Навител Навигатор доступно обновление карт все страны релиза Q1 2018.
+В карты всех стран включена жилая и промышленная инфраструктура городов и населенных пунктов с адресным поиском, подробная дорожная сеть, включающая все улицы и дороги с учетом направленности движения, развязок, кругового движения и прочей навигационно-значимой информацииПоддерживаемая ОС: Android / Windows Phone / iOS / BlackBerryЯзык интерфейса: Мульти / РусскийФормат: nm7
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D966CDC420B914FBAC7194B4022D8C888C870A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210387   (778593) от 03.03.2018
 
 Сбор таможенных платежей за интернет-покупки могут поручить «Почте России»
@@ -6,7 +163,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778593.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.03.02 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778576.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Grass Valley Edius 8.53.2808 (x64) [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778571.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Microsoft Visual Studio 2017 Enterprise 15.5.7 (Offline Cache, Unofficial) [Ru/E
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778570.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack R.G. Механики
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778569.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778451.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778413.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778412.jpg" />
 </div>
 
 
@@ -219,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778410.jpg" />
 </div>
 
 
@@ -245,7 +402,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778132.jpg" />
 </div>
 
 
@@ -271,7 +428,7 @@ BELOFF 2016.5 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778129.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778127.jpg" />
 </div>
 
 
@@ -323,7 +480,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778126.jpg" />
 </div>
 
 
@@ -349,7 +506,7 @@ The Evil Within (2014) [Ru] (1.5/upd5/dlc) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778125.jpg" />
 </div>
 
 
@@ -375,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778124.jpg" />
 </div>
 
 
@@ -401,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778123.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778058.jpg" />
 </div>
 
 
@@ -453,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778038.jpg" />
 </div>
 
 
@@ -479,7 +636,7 @@ Symantec Endpoint Protection 14.0.1 RU1 MP1 Build 3897 (14.0.3897.1101) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778035.jpg" />
 </div>
 
 
@@ -505,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778018.jpg" />
 </div>
 
 
@@ -516,162 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BA3F327BABE4BB6ABB97578A9E01FD0DE4508E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013302   (777767) от 03.05.2016
-
-Linux Deepin 15.1.1 [x86-64] 2xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китайский дистрибутив основанный на Debian 8.3. Красивый и лаконичный дизайн обеспечивает собственное окружение рабочего стола "Deepin Desktop Environment" и оконный менеджер "Gala". Включает ряд приложений домашней разработки:  Deepin Software Center, DPlayer, Dmusic.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68878DF52853367ADEA18FEE9CDE4521A221A910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990677   (777764) от 03.05.2016
-
-American Truck Simulator (2016) [Ru/En] (1.2.1.1s/dlc) Repack R.G. Catalyst
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777764.jpg" />
-</div>
-
-
-###  Подробнее
-
-American Truck Simulator – продолжает серию автосимуляторов Truck Simulator, перенося действия в США. Разработчики подготовили подборку самых легендарных тягачей, прокатиться на которых можно по огромной территории с большим количеством известных мест. Игроку предстоит начать свой путь с водителя, постепенно расширяя свои возможности, чтобы в итоге создать самую (   Читать дальше...   )Тип издания: RepackРазработчик: SCS SoftwareЖанр: Simulator, Racing, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D63B6FA65144833514914F16009C4BCB8EF474A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924444   (777755) от 03.05.2016
-
-The Forest (2014) [Ru/En] (Alpha 0.37) SteamRip MarkusEVO (R.G. Games)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой игры остается в живых после крушения самолета на необитаемом острове. Основная задача - выжить: рубите деревья, чтобы построить себе убежище, охотьтесь на диких животных или ищите и садите плоды, чтобы не умереть с голоду, а также не забывайте поддерживать очаг, чтобы не замерзнуть.Тип издания: Steam-RipРазработчик: SKS GamesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1BBB3688A81D022B3B674513315CF7935D49D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942620   (777754) от 03.05.2016
-
-Области тьмы / Limitless (2015) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-22 из 22) (NewStudio)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777754.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о человеке, которому удаётся максимально раскрыть возможности своего мозга. Главный герой Брайан Финч открывает для себя фантастическую силу препарата NZT и пытается использовать её для раскрытия запутанных дел на службе в ФБР. Дженнифер Карпентер сыграет Ребекку — агента ФБР, которая стремительно поднимается по карьерной лестнице, но всё ещё не смирилась (   Читать дальше...   )Производство: СШАЖанр: фантастика, триллер, драмаРежиссер: Марк Уэбб, Дуглас Арниокоски, Гильермо НаварроАктеры: Джейк Макдорман, Дженнифер Карпентер, Хилл Харпер, Мэри Элизабет Мастрантонио, Брэдли Купер, Генри Джальярди, Рон Рифкин, Дэниэл Эрик Голд, Майкл Джеймс Шоу, Арджун Гупта и др.Перевод: Профессиональный многоголосый закадровый - NewStudioФормат: MKVПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2960854006C0CD1FD5E347A5344D0CB80CD182F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973872   (777753) от 03.05.2016
-
-ARK: Survival Evolved (2015) [Ru/En] (239.2) Repack MAXAGENT
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная на движке Unreal Engine 4, ARK: Survival Evolved является игрой в жанре выживания с уникальной смесью мультиплеерного, кооперативного и соревновательного режимов. Игроки просыпаются голыми и голодными на пляже таинственного острова, среди множества других обескураженных людей. В ARK: Survival Evolved вы должны: охотится, собирать урожай, осваивать ремесло, (   Читать дальше...   )Тип издания: RepackРазработчик: Studio WildcardЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D16D7C33BA1ABF1E1917AD936669A586FAC802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924501   (777752) от 03.05.2016
-
-Tomb Raider (2013) [Ru] (1.1.748.0/dlc) Repack =nemos= [Survival Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomb Raider — это современное приключение, где свирепый экшен совмещается с прокачкой, а использование гаджетов перемежается с бескомпромиссными перестрелками. История древнего острова и стереотипные персонажи порой делают игру похожей на перепевку «Кинг-Конга», но энергичный сюжет и оригинальный сеттинг не дают заскучать. Игра постоянно меняет темп, задает новый (   Читать дальше...   )Тип издания: RePackРазработчик: Crystal DynamicsЖанр: Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C017EAA5E9AFA22CE5AFC49A81230E1D9C2F0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

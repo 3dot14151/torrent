@@ -1,3 +1,30 @@
+###  Публикация: 1774150   (71570) от 19.01.2025
+
+Оноре де Бальзак | Шагреневая кожа (2023) [MP3, Александр Воробьев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71570.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Шагреневая кожа» – философский роман знаменитого французского писателя Оноре де Бальзака из цикла "Человеческая комедия".
+Главный герой, молодой аристократ Рафаэль де Валантен, оставшись без единого су в кармане, решает свести счёты с жизнью. Бесцельно блуждая по улицам Парижа, он забредает в лавку древностей, где старик-хозяин предлагает ему магический (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИДДКПродолжительность: 12:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF46AC7930BD3098D90B7C4844793987D1BF0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774146   (71555) от 19.01.2025
 
 Оноре де Бальзак | Блеск и нищета куртизанок (2023) [MP3, Алексей Багдасаров]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71555.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71554.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71553.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71552.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71551.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71353.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71350.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71342.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71339.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71217.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71107.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71104.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71000.jpg" />
 </div>
 
 
@@ -358,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70999.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70997.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70978.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70972.jpg" />
 </div>
 
 
@@ -469,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70965.jpg" />
 </div>
 
 
@@ -496,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70963.jpg" />
 </div>
 
 
@@ -523,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70961.jpg" />
 </div>
 
 
@@ -550,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70953.jpg" />
 </div>
 
 
@@ -579,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70937.jpg" />
 </div>
 
 
@@ -606,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70677.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70672.jpg" />
 </div>
 
 
@@ -660,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70661.jpg" />
 </div>
 
 
@@ -672,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45A82B2D2062BCC18EC9A4BD3F08BB554BCC4B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779924   (70587) от 15.02.2025
-
-Александр Куприн | Яма (2023) [MP3, Татьяна Бондаренко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Иванович Куприн (1870—1938) — один из самых известных и ценимых во всём мире русских прозаиков XX века, писатель трагической судьбы: раннее сиротство, обучение в военном училище, служба в российском захолустье. Над повестью «Яма» Куприн работал шесть лет и создал произведение, потрясшее предельной правдивостью. Однако книга вызвала не сочувствие и понимание, (   Читать дальше...   )Жанр: повести, русская классикаИздательство: ЭксмоПродолжительность: 11:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDB159E7510C9DF9CAC448C58A7607B2A2A21E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

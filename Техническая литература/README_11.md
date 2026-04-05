@@ -1,3 +1,56 @@
+###  Публикация: 1131926   (704528) от 07.05.2017
+
+И.В. Малеткин | Внутренние электромонтажные работы (2012) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описывается весь цикл производства внутренних электромонтажных работ. Подробно рассмотрены все организационные мероприятия(планирование, контроль, техника безопасности, сдаточная документация и т.д.), а также все современные технологии, используемые в монтаже.
+   Книга предназначена для руководителей, инженерных работников и электромонтажников. Издание также будет полезно (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47AABF12004D369EBEF22D64F876639F9D84BF1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132398   (702586) от 08.05.2017
+
+В.В. Штыков | Букварь молодого радиста или введение в радиоэлектронику (2012) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагаются современные представления о радиотехнике как средстве передачи, приема, обработки и хранения информации. Описаны исторические папы развития информационных технологий в их неразрывном единстве с развитием средств связи. Формируются начальные представления о сигнала и их математических моделях. Рассмотрены наиболее важные свойства гармонических колебаний (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCE60DC549A7639A6B832F9867CB670082C6EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026525   (702078) от 16.06.2016
 
 В.С. Верба, А.П. Курочкин (ред.) | Антенно-фидерные и оптоэлектронные устройства (2014) [DJVU]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702078.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701839.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701826.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700925.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700226.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699009.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698587.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698582.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698580.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698038.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698012.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697917.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697901.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697489.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696605.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693240.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693139.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692985.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692955.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692840.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690997.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689617.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686679.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686014.jpg" />
 </div>
 
 
@@ -623,62 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A46A41C14121A27EC89624D9D56120F19000D4EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222485   (684943) от 29.04.2018
-
-Владимир Ушаков | Радиационные приборы. Эксплуатация (2018) [PDF, RTF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684943.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем  материале  рассматриваются  основы  эксплуатации  радиационных
-приборов,  использующихся  для  решения  задач  обеспечения  радиационной  безопасности.
-Отдельно  излагаются  вопросы  метрологического  обеспечения  измерения  ионизирующих
-излучений, а также методы отбора и обработки радиоактивных проб.(   Читать дальше...   )Жанр: БезопасностьФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AB540F41FE7FE7AF505750F42390BB1DC3057F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222340   (684818) от 29.04.2018
-
-Texas Instruments | Руководство по выбору компонентов для аналоговых схем (2011) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684818.jpg" />
-</div>
-
-
-###  Подробнее
-
-В руководстве по выбору компонентов для аналоговых схем компании TI приведены таблицы по выбору и обзоры устройств широчайшей номенклатуры, предназначенные для применения в промышленных, медицинских, коммуникационных, аудио, потребительских и компьютерных системах.
-Представлены усилители и компараторы, компоненты для контроля и управления, источники опорного напряжения, (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3984B9D0E96DF35D35B7459FAE12B00F254E2893
 ```
 
 https://mybot314.ru/tekegram_catalog/

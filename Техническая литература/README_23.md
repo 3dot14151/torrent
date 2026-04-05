@@ -1,3 +1,55 @@
+###  Публикация: 1160831   (464937) от 29.08.2017
+
+Саймон Монк | Мейкерство. Arduino и Raspberry Pi. Управление движением, светом и звуком (2017) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказано, как самостоятельно создавать устройства на основе популярных платформ Arduino и Raspberry Pi. Излагаются принципы работы описываемых устройств. Сложные задачи решаются последовательно, через выполнение экспериментов и реализацию увлекательных проектов. Рассказано, как управлять светодиодными индикаторами, электродвигателями различных типов, соленоидами, (   Читать дальше...   )Жанр: РобототехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A0B20917F941240CDBB9628764F1D33BCF8104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941362   (462407) от 27.09.2015
+
+П.А. Коновалов (ред.) | Фундаменты стальных резервуаров и деформации их оснований (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен обзор мирового опыта проектирования и строительства стальных цилиндрических резервуаров в сложных инженерно-геологических условиях. Рассмотрены способы устройства оснований, типы фундаментов для резервуаров большой вместимости в условиях слабых грунтов. Дан экономический анализ вариантов оснований и фундаментов. Описана методология проведения инженерно-геологических (   Читать дальше...   )Жанр: СтроительствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884497033E8B7D260B09C9531E3ED87EA704E868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941132   (461587) от 27.09.2015
 
 Джереми Блум | Изучаем Arduino: инструменты и методы технического волшебства (2015) [DJVU]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461587.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459619.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448211.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447637.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443643.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441989.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433116.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429561.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425809.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423596.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415485.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415457.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413923.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413685.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411766.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409779.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408649.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402235.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402155.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398389.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394616.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393052.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393049.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391964.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89B3D79E7C50540C6B2870970C74AB54EA16A06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172917   (391853) от 09.10.2017
-
-Герман Шрайбер | Инфракрасные лучи в электронике (2009) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электроника – взаимодействие заряженных частиц (электронов, ионов) с электромагнитными полями, на котором основана работа электронных приборов и устройств, – не воспринимается ни одним из наших органов чувств. Она позволяет управлять механизмами посредством невидимой для глаза связи, дает службам безопасности возможность вести незаметное наблюдение, выполнять неакустическую (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA32B2ED6F0AB8398360BCE61AD9AF1822420E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172900   (391710) от 09.10.2017
-
-А.С. Храмушин | Hi-end-усилители на «военных» лампах (2017) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Александра Сергеевича Храмушина «Hi-end-усилители на военных лампах» написана для всех любителей «лампового» звука, как умеющих держать в руках паяльник, так и тех, кто только пользуется ламповой аудиотехникой. Не секрет, что ламповая аудиотехника, имеющаяся в продаже, стоит совсем недешево. Расходы можно существенно снизить, если собрать усилитель самому или (   Читать дальше...   )Жанр: АудиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA650B55281DF110CAECAD1E681F468B3B9B81D
 ```
 
 https://mybot314.ru/tekegram_catalog/

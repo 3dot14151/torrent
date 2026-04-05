@@ -6,7 +6,7 @@ The Smurfs - Mission Vileaf (2021) [Ru/Multi] (0.17.8) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803989.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Type Final 2 (2021) [Multi] (1.07/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803854.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skullgirls 2nd Encore (2016) [En/Multi] (1.0) License PROPER - PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803302.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Not A Hero (2015) [En/Multi] (1.0) License GOG [GLOBAL MEGALORD EDITION]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802030.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Death's Gambit (2018) [Ru/En] (1.2/dlc) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800739.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Fury Unleashed (2020) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800698.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Super Lucky's Tale (2018) [Ru/En] (5.6.2.35228/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800560.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Snake Pass (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799964.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Plants vs. Zombies (2009) [En] (1.2.0.1095) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799422.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Happy Game (2021) [Ru/Multi] (1.0rls) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799310.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Danger Scavenger (2020) [Ru/Multi] (2.0.8) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798495.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Too Many Humans (2021) [Multi] (2020.1.17.10049454) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798206.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Injustice 2 (2017) [Ru/Multi] (1.1.21.0/dlc) License FAIRLIGHT [Legendary Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798187.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Demon Turf (2021) [En] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798072.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Garden Paws (2018) [En] (1.5.2e/dlc) License PLAZA [Human Characters]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797387.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ My Night Job (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797351.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Curved Space (2021) [Ru/Multi] (1.0.10.11/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797329.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Demons with Shotguns (2016) [En] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797292.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Street Fighter V (2016) [Ru/Multi] (3.002/dlc) Repack =nemos= [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797252.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Full Metal Furies (2018) [Ru/Multi] (1.0.0-22R) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796786.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Lumini (2015) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796718.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Kill to Collect (2016) [En/Multi] (1.1.0.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796673.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Jet Lancer (2020) [Ru/Multi] (1.0.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796489.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Dead or Alive 5: Last Round (2015) [Ru/Multi] (1.10c/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796082.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Trial by Viking (2016) [En] (1.0.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795895.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Collider 2 (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795858.jpg" />
 </div>
 
 

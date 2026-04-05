@@ -1,3 +1,30 @@
+###  Публикация: 1285729   (716438) от 28.02.2019
+
+Робот "Федор" и его четвероногий друг
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зарубежные компании отказались поставлять комплектующие для робота "Федора" в Россию после того, как узнали, что он научился стрелять из пистолетов, сообщил в интервью РИА Новости исполнительный директор НПО "Андроидная техника" Евгений Дудоров.
+"Возможно, мы бы и дальше продолжили пользоваться зарубежной продукцией, но после того, как наши (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285917   (716437) от 28.02.2019
 
 Ракета «Союз» вывела на орбиту британские спутники связи OneWeb
@@ -6,7 +33,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716437.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716308.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Volvo и Google выпустили конкурента Tesla Model 3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716282.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (1.2.5/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716265.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716233.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715748.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715235.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ OneWeb выбрал российские «Протоны» для запуск�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715225.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715123.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715115.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714960.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.04.12 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714954.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 12.04.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714952.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714950.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ Endless Space 2 (2017) [Ru/En] (1.5.30.S5/dlc) Repack xatab [Digital Deluxe Edit
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714533.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ Dead or Alive 6 (2019) [Ru/Multi] (1.01/dlc) License CODEX [Digital Deluxe Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714365.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714358.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714348.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714194.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713924.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ Adguard 6.2.357.1887 Beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713923.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ Serious Metal Detecting (2017) [Ru/En] (010517) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713922.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713916.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713914.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_713058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_713058.jpg" />
 </div>
 
 
@@ -653,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024808   (713030) от 10.06.2016
-
-Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybrid x86 & x64 (сборка от 09.06.2016) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Microsoft Visual C++ Redistributable Package устанавливает компоненты среды выполнения библиотек Visual C++, необходимых для запуска приложений, разработанных с помощью Visual C++, на компьютере без установленной среды Visual C++.
-Способ интеграции - SVCPACK (T13) и также можно устанавливать на "живую" систему.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA448FAC49B7CF7E0C15AB138C9AF7CA6186313
 ```
 
 https://mybot314.ru/tekegram_catalog/

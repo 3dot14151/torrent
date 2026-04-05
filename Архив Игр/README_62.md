@@ -1,3 +1,57 @@
+###  Публикация: 579190   (349967) от 22.11.2012
+
+Hitman Absolution: Professional Edition [Ru] (RePack/1.0.433.1) 2012 l DangeSecond
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hitman: Absolution – долгожданное продолжение серии стелс-экшенов Hitman. Агент 47, преданный своим начальством, оказывается в центре зловещего заговора. Теперь ему предстоит отправиться на поиски истины по коррумпированному и испорченному миру. Игра создана на движке Glacier 2, который позволяет добиться невероятного качества изображения и отображения в одной сцене до нескольких тысяч персонажей. Благодаря этому реализованы самые безумные идеи дизайнеров, а Агент 47 может буквально слиться с толпой в людных местах. Большое количество режимов сложности позволяют настроить игровой процесс под свой уровень мастерства. На самом легком пройти сюжет смогут даже люди, первый раз севшие за видеоигры, а самый высокий уровень сложности бросит вызов даже хардкорным геймерам. Кроме однопользовательского режима, состоящего из множества вариативных миссий, в Hitman: Absolution представлен режим контрактов, где каждый игрок выступает в роли сценариста. Выбрав цели и убрав ее с определенными условиями, можно предоставить другим игрокам шанс добиться лучших результатов в ваших миссиях.(   Читать дальше...   )Тип издания: RePackРазработчик: IO InteractiveЖанр: Action (Shooter) / 3D / 3rd Person / StealthЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4AF17B76AD046C622D22207435199643CC4F72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579193   (349957) от 22.11.2012
+
+Family Guy: Back to the Multiverse [En/Multi4] (RePack) 2012 l R.G. ILITA
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Гриффинов возвращается в новой игре Family Guy: Back to the Multiverse. История основана на 1 серии 8 сезона, Road to the Multiverse, а главными героями выступают Стьюи и Брайан, которым предстоит спасти город от Бертрама, злобного двойника Стьюи. На своем пути они сразятся с другими персонажами сериала, используя уникальные умения и оружие.
+
+В Family Guy: Back to the Multiverse присутствуют многопользовательские уровни как для кооперативного, так и соревновательного прохождения.Тип издания: RepackЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Испанский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA52B04EDC103EFD78C80DD0044BD1C23F92E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579466   (349928) от 22.11.2012
 
 Doom 3 BFG Edition [En/Ru] (P) 2012
@@ -6,7 +60,7 @@ Doom 3 BFG Edition [En/Ru] (P) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349928.jpg" />
 </div>
 
 
@@ -38,7 +92,7 @@ Hitman Absolution [PS3] [ENG] [PAL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349792.jpg" />
 </div>
 
 
@@ -66,7 +120,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349747.jpg" />
 </div>
 
 
@@ -96,7 +150,7 @@ Hitman: Absolution [Ru/En/Multi8] (RePack/1.0.433.1) 2012 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349668.jpg" />
 </div>
 
 
@@ -126,7 +180,7 @@ Wolfenstein II (2017) [Ru/Multi] (1.0/u1) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348498.jpg" />
 </div>
 
 
@@ -152,7 +206,7 @@ Domino Rally [Wii] [ENG] [NTSC] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348102.jpg" />
 </div>
 
 
@@ -178,7 +232,7 @@ Gray Matter / Gray Matter: Призраки подсознания [En] (L) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_348081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348081.jpg" />
 </div>
 
 
@@ -205,7 +259,7 @@ Tom Clancy's H.A.W.X. 2 [Multi6\-] (L) 2010 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347678.jpg" />
 </div>
 
 
@@ -231,7 +285,7 @@ Family Guy: Back to the Multiverse [En/Multi4] (Repack/1.0) 2012 |  R.G. ReCodin
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347501.jpg" />
 </div>
 
 
@@ -257,7 +311,7 @@ Devil May Cry [XBOX360] [Ru] [Region Free] [DEMO] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347385.jpg" />
 </div>
 
 
@@ -283,7 +337,7 @@ Noita (2019) [Ru/Multi] (01.10.19) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347305.jpg" />
 </div>
 
 
@@ -309,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347249.jpg" />
 </div>
 
 
@@ -335,7 +389,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.019854) Repack FAIRLIGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347153.jpg" />
 </div>
 
 
@@ -361,7 +415,7 @@ Outlast (2013) [Ru/Multi] (1.0.11795.0) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347140.jpg" />
 </div>
 
 
@@ -389,7 +443,7 @@ Hitman: Absolution (Crack/1.0) 2012 | POSTMORTEM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347075.jpg" />
 </div>
 
 
@@ -416,7 +470,7 @@ Medal Of Honor.Warfighter:Digital Deluxe [Ru] (Repack/1.0.0.2/3 DLC) 2012 | Yell
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347062.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ Runes of Magic [Ru] (L) 2009
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345014.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ Torchlight II [Ru/En/Multu1] (Steam-Rip/1.18.5.1) 2012 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_344990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344990.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ SCP - Containment Breach / SCP - Нарушение условий содерж�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_342035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342035.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340178.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ Anomaly: Warzone Earth / Аномалия: Поле битвы Земля [Ru/En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339489.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ Fallout Collection [Ru/En] (Steam-Rip) 1997 - 2010 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339382.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ King's Bounty Dark Side / King's Bounty Темная Сторона (2014) [Ru/M
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339065.jpg" />
 </div>
 
 
@@ -638,7 +692,7 @@ Lethis - Path of Progress (2015) [En/Multi] (1.2) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338957.jpg" />
 </div>
 
 
@@ -649,60 +703,6 @@ Lethis – Path of Progress это олдскульная 2D-шная градо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6494F5EE6E4076D96148F4FFACF66335B46848E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581679   (337295) от 27.11.2012
-
-Far Cry 3 [xbox 360] [eng] [Region Free] [XGD3] [LT+ 3.0] (2012)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача - выжить любой ценой.
-
-Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец и наркотики льются рекой. Одни психопаты сражаются с другими, и вскоре главный герой уже не в силах отличить опиумный сон от безумной яви. Сумасшедший остров сводит с ума всех, кто ступит на его берега и нужно быть психом, чтобы здесь остаться. А ты в своем уме?Жанр: Action/ShooterЯзык интерфейса: eng
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3E54975AD2C3F9081AE5FF079A57936E26F4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954839   (336550) от 09.11.2015
-
-Anno 2205 (2015) [Ru/Ml] (1.1.2124.38702/dlc) Repack R.G. Games [Gold Edition]
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anno 2205™ – полюбившийся игрокам симулятор городского строительства выходит в космос! В Anno 2205™ вы поможете человечеству сделать очередной шаг в светлое будущее. Покорив Землю, вы построите богатые, кипящие жизнью города и огромные промышленные комплексы – но для того, чтобы по-настоящему обеспечить благополучие человечества, необходимо выйти в космос. Научный (   Читать дальше...   )Тип издания: RepackРазработчик: Blue ByteЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Испанский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18C0C8D8625819B34C44D3C6B9D8D803B007352
 ```
 
 https://mybot314.ru/tekegram_catalog/

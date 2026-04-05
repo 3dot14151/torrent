@@ -6,7 +6,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608494.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608492.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608489.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608361.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608245.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607510.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery: 11 Сентября - Звонки из небоскрёбов / 9/11
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607319.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607130.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Discovery. Гигантские хабы / Giant Hubs (2018) HDTVRip (серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606000.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Discovery. Дома на деревьях / Treehouse Masters (2014-2015) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604857.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Discovery: Невероятные бассейны / Insane Pools Off the Deep E
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604236.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Discovery. Чудо на Гудзоне / Miracle of the Hudson Plane Crash (200
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603413.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Discovery. Москиты / Mosquito (2017) HDTVRip [H.264/720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603403.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Discovery: Вся жизнь - завод / Factory city (2011) HDTV [H.264/1080
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602875.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Discovery: Как устроена Земля / How the Earth Works (2013) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602236.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601658.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Discovery. Почему пал Древний Египет? / Why Ancient Egypt 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601565.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Discovery. Природа человека / Human Nature (2012) SATRip [Сер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601139.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Discovery. Преступники Третьего рейха / Hitler's Most Wa
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599121.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Discovery. Преступники Третьего рейха / Hitler's Most Wa
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599116.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Discovery. Игра на жизнь / Survive That! (2013) HDTVRip [Сезон 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598337.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Discovery. Игра на жизнь / Survive That! (2014) HDTVRip [Сезон 2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598331.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Discovery. Встречи на краю света / Encounters at the End of th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597663.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Discovery: Крушение Concordia: Взгляд изнутри / Cruise Ship
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597294.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Discovery: Внутри планеты Земля / Inside Planet Earth (2009) B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597136.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Discovery. Уличные гонки: Новый Орлеан / Discovery. Stree
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597090.jpg" />
 </div>
 
 

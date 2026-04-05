@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775090.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774832.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774054.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772825.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Plazma - Indian Summer (2017) [FLAC|Lossless|tracks + .cue] <Pop, Europop, Synth
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768082.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767684.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766904.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765348.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_760426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_760426.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758726.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758724.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758558.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748912.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746005.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Русское застолье (2001) [FLAC|Lossless|tracks + .cue]<Pop, F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739825.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738468.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737556.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Дискотека Адмирал - Disco 80/90 по-новому! (2010) [
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732831.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732396.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728672.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728661.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726367.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726250.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726205.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Nu Virgos (ВИА Гра) - Stop! Stop! Stop! (single) (2003) [FLAC|Lossless|ima
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724228.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723838.jpg" />
 </div>
 
 

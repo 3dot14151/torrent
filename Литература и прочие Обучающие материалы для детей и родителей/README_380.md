@@ -1,3 +1,55 @@
+###  Публикация: 1591684   (186853) от 19.11.2022
+
+Различные | Сборник сказок и стихов для младшего школьного возраста [14 книг] (1972-1989) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами уникальный пример самодельной советской книги, изготовленной в единственном экземпляре для личного использования. В уже далеком 1989 году несколько богато иллюстрированных известными советскими художниками детских книжек со сказками, стихами и рассказами издательства «Детская литература» были обрезаны в один размер и переплетены в книгу в твердой обложке (   Читать дальше...   )Жанр: сказки, стихи, рассказыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3408C9FA86372866BEFD6EE4E29092731B994D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591791   (186844) от 19.11.2022
+
+Вильгельм Гауф, Оскар Уайльд | Новые старые сказки [2 книги] (2021-2022) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как здорово перечитывать любимые с детства сказки снова и снова, каждый раз открывая для себя что-то новое. И нет ничего более интересного и захватывающего, чем увидеть знакомые сюжеты глазами современных художников. Свежий взгляд на классические произведения с новой неожиданной стороны – это серия редакции «Вилли Винки» «Новые старые сказки».Жанр: СказкиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7F920DE06094ECAC20F38ED5D3670765B13ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663458   (186763) от 21.09.2023
 
 А.Д. Александров, А.Л. Вернер, В.И. Рыжик | Геометрия. 6 класс (1984) [DJVU]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186763.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186726.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186559.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186375.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186347.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186005.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185955.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185850.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185819.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185707.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185591.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185422.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185381.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185281.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185279.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185264.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185256.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185087.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185063.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184958.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184788.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184345.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183988.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183890.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A011D9E366B859D651A2EA051AE6A448E69D3D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008445   (183685) от 27.11.2020
-
-Подборка журналов | "Юный художник" (216 номеров)] (1978-2006) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный иллюстрированный журнал по вопросам искусства. Издавался в Москве в 1936-41, вновь выходит с 1978. В популярной, доступной учащимся форме излагает актуальные проблемы искусства, знакомит с историей мирового и русского искусства, творчеством великих мастеров, публикует советы начинающим художникам.Жанр: Изобразительное искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531553C5895ABA7C1CC23E2F261E0B1C9E5198D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427518   (183574) от 28.11.2020
-
-Сергей Еремеев | Смешные вы ребята! (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда семья переезжает в новую квартиру – это значит, что теперь всё будет по-другому! Вундеркинд Тёма идёт в первый класс и ради шутки делает вид, что не умеет ни читать, ни писать и абсолютно ничего не смыслит в математике. Его старший брат поддерживает эту затею, и начинается чехарда событий, недопониманий и очень смешных ситуаций. Только бабушка, приехавшая из (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CBBBED33DB958C5DF6CC4369DD85D631084DEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

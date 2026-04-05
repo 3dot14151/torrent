@@ -1,3 +1,55 @@
+###  Публикация: 1128603   (322713) от 02.11.2018
+
+Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) License CODEX
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outlast 2 представляет вашему вниманию Sullivan Knoth и его последователей, которые оставили наш грешный мир позади, чтобы положить начало Вратам Храма, городу, скрытому от цивилизации, в далекой глуши. Knoth и его группа, готовятся к испытаниям конца света, и вы находитесь прямо в центре этих событий. Вы - Blake Langermann, оператор работающий со своей женой, Lynn.Тип издания: LicenseРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D87C4BB4D0F9D528115F267AE0F6D07FFCC0441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 263798   (322191) от 28.11.2010
+
+Battlestrike: Shadow of Stalingrad / Battlestrike: Тень Сталинграда [Ru/En] (P) 2009
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942 августа. Нацисты захватили всю Европу и сейчас их взгляд направлен на единственную могущественную сверхдержаву - Советский Союз. Немецкие ученые создают новое смертельное химическое оружие. Ключ к победе нацистов – это падение Сталинграда и Нацисты планируют напасть, как только они завершат свой секретный проект. Вам отведена роль сотрудника советской спецразведки, а задачей будет – проникнуть в тыл врага, совершить ряд диверсий и остановить разработку смертельного химического оружия. Спасите город и измените ход войны.Тип издания: ПираткаРазработчик: CITY InteractiveЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F18C32D03A40BFC664BA25906F063F44BCFE29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311865   (320144) от 17.10.2019
 
 Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
@@ -6,7 +58,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320144.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Project R.I.P. (2019) [Ru/Multi] (1.05) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320036.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319932.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dark Shadows - Army of Evil [En] (L) 2012 | SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319303.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Gun [Ru/En] (RePack) 2005 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319301.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) License RELOADED [Digital Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318432.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Prodeus (2022) [Ru/Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318163.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Kingpin: Life of Crime [Ru] (RePack) 1999 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317695.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ PositronX (2020) [En] (1.0.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317011.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Crimson Earth 2 (2017) [En] (2.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316178.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3.1.15989/mp) Repack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316153.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ In Sound Mind (2021) [Ru/Multi] (1.016) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315835.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Get Even (2017) [Ru/Multi] (1.0/Upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315597.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ NecroVisioN: Lost Company / NecroVisioN: Проклятая рота (2010) [Ru/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311426.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ NecroVision (2009) [Ru/En] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311293.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ The Dark Occult (2018) [Ru/Multi] (1.0.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311091.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311055.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305972.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304579.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304575.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Agony UNRATED (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304435.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Breaking Bones (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303817.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ One Day For Ched (2012) [En] (1.0.5/dlc) Repack Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303751.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302570.jpg" />
 </div>
 
 
@@ -621,60 +673,6 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B38E4AA21EDB55A5D8897FD8E212BE0616CB8E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585586   (302151) от 06.12.2012
-
-Homefront [Ru/En] (Rip/1.0.384501) 2011 | R.G. Games
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Homefront – сюжетно-ориентированный кинематографический боевик, в котором сценарий играет важную роль. В работе над сюжетом игры принимали участие известный голливудский сценарист Джон Милиус («Апокалипсис сегодня», «Красный рассвет») и бывший сотрудник американской разведки. Авторы придумали реалистичный геополитический сценарий, согласно которому к 2025 году экономика США будет окончательно уничтожена второй волной кризиса, а набравшая политической и военной мощи Новая Корея (образовавшаяся в результате объединения северной и южной Корей) взорвёт над ослабленными Штатами ядерный боезаряд и оккупирует запад страны. Народ Америки, лишившийся регулярной армии, но не сломленный, продолжит сражаться с захватчиками, ведя против них бескомпромиссную партизанскую войну. Их главная задача – поднять восстание в Сан-Франциско, который стал базой оккупационных сил.
-
-(   Читать дальше...   )Тип издания: RipРазработчик: Digital ExtremesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский/АнглийскийЯзык интерфейса: Русский/Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A889442516289C812C6E181E0D14380E834056CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078360   (301668) от 30.11.2016
-
-Radiation Island (2016) [Ru/Multi] (1.0) License HI2U
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Radiation Island — приключенческая игра, где вам придется выживать в огромном открытом мире. Вы принимали участие в Филадельфийском эксперименте, и вас выкинуло в другую параллельную реальность. Исследуйте новый и опасный мир, раскройте все его секреты. Ищите предметы, чтобы выжить, и разгадайте тайну острова, чтобы вернуться домой.Тип издания: LicenseРазработчик: Atypical GamesЖанр: Adventure, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652F739BC9D622E022447A1722D8CEDFD4BF8680
 ```
 
 https://mybot314.ru/tekegram_catalog/

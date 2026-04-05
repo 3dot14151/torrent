@@ -6,7 +6,7 @@ Bill Evans - Jazzhouse (1969) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Pian
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425263.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Elvin Jones - Live At The Lighthouse Vol. 1 (1972) /2013, EMI Music/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425256.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Elvin Jones - Live At The Lighthouse Vol. 2 (1972) /2013, EMI Music/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425252.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jonathan Fritzen - Fritzenized (2015) [FLAC|image + .cue]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425250.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Freddie Roach - Brown Sugar (1964) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425159.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Louis Armstrong - The Complete RCA Victor Recordings (1932 - 1956) 1997, 4CD, BM
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425076.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Doug Raney & Thorgeir Stubo - Everything We Love (1983) 1998, Prevue [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424872.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jimmy Raney & Doug Raney - Duets (1979) 1986, SteepleChase [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424870.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Clayton-Hamilton Jazz Orchestra - Live at MCG (2005) MCG Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424742.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Norman Connors - Take It To The Limit & Mr. C (2010) Expansion Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424733.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lee Ritenour - Masterpieces: Best Of The GRP Years (2012) Jazzclub [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424193.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Benny Golson And His Orchestra - Walkin' (1957) 1997, Fresh Sound [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423683.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kenny Dorham Quintet with Jackie McLean - Complete Recordings (1961, 1962) 2007,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423682.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Gerry Mulligan - The Art Of Gerry Mulligan: The Final Recordings (2000) Telarc [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423678.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Fred Hersch Trio - Live In Europe (2018) Palmetto Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423218.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Leny Andrade - Maiden Voyage (1994) Chesky Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423214.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Random Midi Quartet - Pordenone (2018) [FLAC|Lossless|Web-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423165.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Pearl Bailey - 16 Most Requested Songs (1945 - 1950) 1991, Columbia [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423109.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Miles Davis - Rubberband (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423091.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ David Newman - The Weapon (1972) /2013, Warner/[FLAC|tracks+.cue]<Hard Bop, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422804.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Jimmy Raney - Four Classic Albums Plus (1953 - 1956) 2CD, 2012, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422772.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Ricardo Silveira - Small World (1992) Verve Forecast [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422770.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Don Ewell - Man Here Plays Fine Piano! (1957) 1995, Good Time Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422171.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Kumquat - Quick & Dirty (2008) Zig-Zag [FLAC|Lossless|image + .cue] <Modern Crea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422070.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Andre Manoukian - So In Love {ECD} (2010) EMI[FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421902.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Count Basie & Harry James - Basie Rhythm (1937-1939) 1991, Hep[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421899.jpg" />
 </div>
 
 

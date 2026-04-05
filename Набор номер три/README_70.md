@@ -1,3 +1,161 @@
+###  Публикация: 619973   (965862) от 17.02.2013
+
+Mipko Employee Monitor 7.6.3.1814 [Русский, Английский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Mipko Employee Monitor перехватывает все нажатия клавиш, периодически делает снимки экрана рабочего стола сотрудника, сохраняет запускаемые и закрываемые программы, а также записывает все посещаемые сайты. Доступ к этим записям можно получить локально или удаленно; нет никакой нужды оставлять свое кресло, чтобы проверить, чем занимаются сотрудники. Mipko (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358289   (965829) от 10.02.2020
+
+Xiaomi, Huawei, Oppo и Vivo решили создать свой аналог Google Play Store.
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китайские производители Xiaomi, Huawei Technologies, Oppo и Vivo решили совместно создать платформу для разработчиков за пределами Китая, которая сможет конкурировать с Google Play. Инициатива производителей получила название «Глобальный альянс разработчиков услуг» (GDSA — Global Developer Service Alliance).По мнению компаний, создание платформы позволит использовать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358993   (965823) от 10.02.2020
+
+Бесстрашные / Deliler (2018) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XV века. Расцвет Османской империи. Преданный империи Влад Цепеш одобрен султаном Фатихом Мехмедом II на правление в вассальской Валахии. Но вскоре молодой господарь начал жестоко расправляться с турками и вытеснять их со своих земель, а отправленного разгневанным султаном гонца возвращает с колом в голове. Фатих создал специальный отряд, прозванный отрядом (   Читать дальше...   )Производство: Турция / Angel Film YapimЖанр: история, военныйРежиссер: Осман КаяАктеры: Джем Учан, Эркан Петеккая, Нур Феттахоглу, Йеткин Дикинджилер, Гюльшах Шахин, Исмаил Филиз, Batin Deniz Ucan, Namik Rüstem Khanli, Берат Эфэ Парлар, Камиль ГюлерПеревод: Многоголосый профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623180E60F313B072098607056AB88C7D81E7C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 169312   (965426) от 25.01.2010
+
+Официальная конференция клуба
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы рады сообщить, что у клуба появилась своя конференция.
+Конференция реализована на стороннем сервере, поэтому если вдруг что-то (*постучал по дереву*) - всю информацию о происхдящем можно будет получить там.Свой сервер нам любезно предоставил evadim, за что ему большое спасибо.
+Он же является главным админом конференции.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977241   (965407) от 21.01.2016
+
+Китай ускоряет программу реализации миссии на "темную сторону" Луны
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно информации китайского государственного агентства Цинхуа, на прошлой неделе руководство китайского Государственного оборонного управления науки, технологий и промышленности (State Administration of Science, Technology and Industry for National Defence, SASTIND) в лице директора Луи Джижонга объявило о своих планах по запуску в 2018 году исследовательской (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977842   (965298) от 21.01.2016
+
+Акулосьминог против птеракуды / Sharktopus vs. Pteracuda (2014) BDRip [H.264/1080p] [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский гениальный ученый хотел как лучше (как обычно), создавая наполовину птеродактиля, наполовину барракуду: получилась Птеракуда. Когда существо неизбежно ускользает, остановить его может только ранее выведенный Шарктопус, он же акулоосьминог. Предстоит смертельная битва.Производство: США, New Horizons PictureЖанр: Ужасы, ФантастикаРежиссер: Кевин О’НиллАктеры: Роберт Кэрредин, Акари Эндо, Тони Евангелиста, Марио Артуро Эрнандес, Райб Хиллс, Алан Надал Пиантини, Конан О’Брайен, Аманда ФилипсонПеревод: Одноголосый закадровый любительский ( Хихикающий доктор)Продолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5279A3B22D443748EAFCE79FB0CC6752C995717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977878   (965251) от 21.01.2016
 
 Bandicam 3.0.2.1014 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +164,7 @@ Bandicam 3.0.2.1014 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965251.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965247.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965237.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Project CARS (2015) [Ru/Multi] (8.0.0.0.1156/dlc) SteamRip Let'sРlay [Digital E
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965235.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Adobe Photoshop CC 2015 (v16.1.2) x86-x64 RUS/ENG Update 4
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965234.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965233.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ Divinity: Original Sin Enhanced Edition (2015) [Ru/Multi] (2.0.104.737/dlc) Stea
 >>21
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965232.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ MultiBoot HDD 2020 09.02.2020 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964866.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>28
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964865.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ Navitel / Навител Навигатор 9.12.67 Full для карт рел�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964864.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ Crysis 3 [XBOX360] [PAL] [RUSSOUND] [LT+ 3.0] (XGD3 / 15574) (2013) | R.G. X360C
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964774.jpg" />
 </div>
 
 
@@ -292,7 +450,7 @@ Mirror's Edge [Ru/En] (RePack/1.0.1.0/DLC) 2009 | z10yded
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964771.jpg" />
 </div>
 
 
@@ -319,7 +477,7 @@ The Lord of the Rings Online: Rise of Isengard / Властелин колец �
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964764.jpg" />
 </div>
 
 
@@ -346,7 +504,7 @@ Mipko Personal Monitor 7.6.3.1814 [Русский, Английский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964762.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_964500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_964500.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ NeoSpy PRO 4.8.7 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964498.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964420.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ Hotspot Shield Elite 5.20.12 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964286.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 890 RePack by KpoJIu
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964219.jpg" />
 </div>
 
 
@@ -505,7 +663,7 @@ Marvelous Designer 5 Personal 2.3.153 (r16257) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964218.jpg" />
 </div>
 
 
@@ -516,162 +674,6 @@ Marvelous Designer - одна из лучших программ по конст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:720837683BBACB3153391D7A250E5FE2214E17AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977649   (964217) от 22.01.2016
-
-Последний охотник на ведьм / The Last Witch Hunter (2015) BDRip[H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный мир скрывает множество секретов, но самым удивительным из них является то, что ведьмы до сих пор живут среди нас. Это злобные сверхъестественные существа, чья цель — наслать на мир смертоносную чуму. Армии охотников на ведьм сражались с ними на протяжении многих веков. В наши дни остался всего лишь один охотник на ведьм, Колдер, которому однажды удалось (   Читать дальше...   )Производство: США / Summit Entertainment, Lionsgate CompanyЖанр: Фэнтези, боевик, приключенияРежиссер: Брек ЭйснерАктеры: Вин Дизель, Роуз Лесли, Элайджа Вуд, Оулавюр Дарри Оулафссон, Рина Оуэн, Юли Энгельбрехт, Майкл Кейн, Джозеф Гилган, Исаак Де Банколе, Майкл Халсли, Слоун Кумбс, Лотте Вербеек, Доун Оливери, Инбар Лави, Армани Джексон, Эйми Карреро, Бекс Тейлор-Клаус, Дэвид Уэйлен, Джэк Эрди, Туссэн Рафаэль АбессолоПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC26345978F3CCAA04664230B478E93A74EFD1E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942507   (964213) от 22.01.2016
-
-Armikrog (2015) [Ru/Multi] (1.04 b20161201) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armikrog – это уникальное пластилиновое приключение в жанре ""point and click"" от создателей таких шедевров, как Earthworm Jim и The Neverhood. Составьте компанию космическому разведчику Томминоту и его слепому говорящему псу-инопланетянину по кличке Бик-Бик – они как раз должны сбежать из таинственной крепости, попутно решая загадки и головоломки!Тип издания: ЛицензияРазработчик: Doug TenNapel / Pencil Test StudiosЖанр: Adventure (Puzzle), LogicЯзык озвучки: АнглийскийЯзык субтитров: Русский,  Немецкий, Французский, Итальянский, Испанский, ПольскийЯзык интерфейса: Русский,  Немецкий, Французский, Итальянский, Испанский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8AF315A6C8660954AA3C8542FB7AC57DB296E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949954   (964212) от 22.01.2016
-
-The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота [patch] (2015) (1.12.1) Official GOG
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный патч позволяет обновить игру до версии 1.12.1 . Вносит ретро-активные исправления на некоторые достижения, которые не были внесены в поправки патча 1.12.Тип издания: Официальный патчРазработчик: CD Projekt RED и CD Projekt RED KrakwЖанр: RPG, AdventureЯзык озвучки: -/-Язык интерфейса: -/-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B5E7D626703B1D459784AFD6C807232B886695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978078   (964210) от 22.01.2016
-
-Лунная афера / Moonwalkers (2015) WEB-DLRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайный агент ЦРУ отправляется в Лондон, чтобы разыскать там Стэнли Кубрика и заказать ему фильм про высадку астронавтов на лунную поверхность на случай провала реальной миссии. Но вместо Кубрика агент нарывается на афериста Джонни, который устраивает съемки сверхсекретного видео на стремной студии порнофильмов, где невесомость достигается благодаря крепкому косяку…Производство: ФранцияЖанр: КомедияРежиссер: Антуан Бардо-ЖакеАктеры: Руперт Гринт, Рон Перлман, Роберт Шиэн, Джинн Абрахам, Керри Шейл, Джей Бенедикт, Эрик Лёмпарт, Дэн Пул, Том Ауденарт, Джон ФландерсПеревод: Любительский одноголосый (kim-de-form_jr)Субтитры: ОтсутствуютПродолжительность: 01:36:22Реклама: Oтсутствует какая-либо реклама
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8C5DE52CE56406FB4FD826CEC7B51D31E600D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977765   (964209) от 22.01.2016
-
-Лунная афера / Moonwalkers (2015) WEB-DL [H.264/720p-LQ] [VO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964209.jpg" />
-</div>
-
-
-###  Подробнее
-
-А что если «Аполлон 11» никуда не высаживался? А знаменитое видео о высадке людей на Луну на самом деле снято Стэнли Кубриком по заказу правительства США, в обстановке строжайшей секретности. Эта вполне правдоподобная теория заговора и легла в основу «Гуляющих по Луне». Страдающий расстройствами психики агент Кидман отправляется в хиппующий Лондон, чтобы поручить (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Антуан Бардо-ЖакеАктеры: Руперт Гринт, Рон Перлман, Роберт Шиэн, Стивен Кэмпбелл Мур, Том Ауденарт, Кевин Бишоп, Эрик Лёмпарт, Эрика Сэйнт, Джей Бенедикт, Джон ФландерсПеревод: Одноголосый закадровый, любительский (kim-de-form_jr)Продолжительность: 01:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60DAB9D5942AAB0455FAAA6029C66C07FA955F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359211   (963951) от 12.02.2020
-
-Ученые открывают новую квазичастицу: Пи-Тон
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователи находят ранее неизвестную квазичастицу в компьютерных симуляциях. Получивший название pi-ton, он содержит 2 электрона и 2 отверстия. Некоторые эксперименты, проведенные на материале титаната Самария, дают убедительные доказательства существования pi-ton.уществует несколько типов частиц, например, элементарные частицы, которые классифицируются в соответствии (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

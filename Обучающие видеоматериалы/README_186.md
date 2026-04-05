@@ -1,3 +1,29 @@
+###  Публикация: 1833992   (248612) от 02.11.2025
+
+Школа критического мышления, Никита Непряхин | Критическое мышление (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школа критического мышления была основана культовым бизнес-тренером, писателем, исследователем теории аргументации Никитой Непряхиным. Школа занимается исследованием и популяризацией одной из самых актуальных компетенций современного делового человека – критического мышления. Сильная методологическая база, научный, но при этом прикладной, подход, самые компетентные (   Читать дальше...   )Производство: Школа критического мышленияЖанр: видеокурс, обучающий курс, психология, саморазвитие, логикаЯзык озвучки: русскийПродолжительность: 06:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AE41CF66E2BA66F4CE0667B2191A914AF13783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833993   (248608) от 02.11.2025
 
 Vertex, Дмитрий Зиновьев | Основы конструирования в Компас - 3D v19 (2020) PCRec [RU]
@@ -6,7 +32,7 @@ Vertex, Дмитрий Зиновьев | Основы конструирова�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248608.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ ProFinansy, Наталья Котовская, Иван Пунга | Банкр�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247898.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247740.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapter
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247698.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Foxford (Фоксфорд), Валерия Петросян | Курс по не
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247693.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Udemy, Neville Adams | The Unreal Arsenal: Learn C++ and Unreal Engine (2023) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247679.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Slurm (Слёрм), Всеволод Севостьянов, Павел Сели
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247543.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ Udemy, Sean Bradley | Zabbix 6 Application and Network Monitoring (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247532.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247525.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ Udemy, Ardit Sulce | Python Mega Course: Learn Python in 60 Days, Build 20 Apps 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247409.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ HiEng, Ирина Кузьмина | Базовый английский для 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247372.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247369.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247322.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ Udemy, Андрей Кудлай | Telegram bot интернет-магазин.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247151.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ Udemy, Rob Tuytel | Creating a fir and pine forest in Blender (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247072.jpg" />
 </div>
 
 
@@ -420,7 +446,7 @@ Stepik, Герман Янгалин | Экспресс-курс по Arduino, э
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247023.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246968.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246933.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Udemy, Stanislav Gorchakov | Автоматизированный Telegram-ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246925.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246910.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ TOAnimate, Brian Kouhi, Simona Baranovicova, Vladimir Mokhov | Blender Animation
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246889.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246651.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ Astra Linux Team, Александр Соболев, Сергей Третьяк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246356.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ it-black, Виктор Черемных | Администрирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246352.jpg" />
 </div>
 
 
@@ -678,7 +704,7 @@ Rafa Souza Academy, Rafa Souza | Anatomia de Personagens 2.0 (2021) PCRec [RU, P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246264.jpg" />
 </div>
 
 
@@ -691,32 +717,6 @@ Rafa Souza Academy, Rafa Souza | Anatomia de Personagens 2.0 (2021) PCRec [RU, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010049A27EFC70C69FA95D15A14C5DDE36C2CA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833169   (246261) от 01.11.2025
-
-Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это востребованный курс по скульптингу в ZBrush. Вы создадите законченного гипердетализированного динозавра. Поскольку произведение невозможно отделить от автора, на занятиях вы разберёте процесс работы, научитесь видеть мир и искусство по-новому, а также справляться с тяготами творчества — беспокойством, фрустрацией и другими вызовами.Производство: Rafa Souza AcademyЖанр: 3D моделирование, СкульптингЯзык озвучки: Русский, ПортугальскийПродолжительность: 23:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEA17574E054CB20DB2B9A45B9B15F78ADA35A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

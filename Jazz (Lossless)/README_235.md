@@ -6,7 +6,7 @@ David Ian - Vintage Christmas Trio (2017) Prescott Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263252.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mike Moreno - 3 For 3 (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263247.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Esperanza Spalding - Exposure & Undeveloped (2017) 2CD, Concord Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263180.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Djabe & Steve Hackett - Life Is A Journey: The Sardinia Tapes (2017) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263159.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chris Lightcap - SuperBigmouth (2019) Pyroclastic Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262948.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nat Adderley Quintet - Blue Autumn 1983 (1992) Evidence [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262947.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ralph Moore - Round Trip (1985) 1987, Reservoir [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262846.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ralph Moore - Images (1989) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262845.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Les McCann - Live at Montreux (1972) 2014, Warner [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262833.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Charlie Haden & Antonio Forcione - Heartplay (2006) Naim Label [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262807.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Konstantin Klashtorni - Kool & Klean (Volume VII) (2017) [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262755.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Milt Jackson - Four Classic Albums Plus 1954 - 1957 (2009) 2CD, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262636.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ralph Moore - Furthermore (1990) Landmark Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262536.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tim Warfield - Tim Warfield's Jazzy Christmas (2012) Self-Released [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262534.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Toots Thielemans - Collage (1980) 2017, Sony Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262528.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Herb Alpert with Symphony and Choir - The Christmas Wish (2017) Herb Alpert Pres
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262496.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jay Thomas - The Cats: Neo-Boogaloo (2012) Pony Boy Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262356.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Yusef Lateef - Lost in Sound (1961) 2003, Fresh Sound [WavPack|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262278.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ David Bubba Brooks - Smooth Sailing (1998) TCB Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262277.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ralph Moore - Who It Is You Are (1994) Nippon Columbia [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262276.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Beegie Adair & Friends - Christmas & Cocktails (2011) Green Hill Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262129.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Harry James - Things Ain't What They Used To Be (1948, 1949) 1989, Object Enterp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262001.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lewis Nash - Rhythm Is My Business (1993) Evidence Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262000.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Eric Alexander & Vincent Herring - Friendly Fire: Live At Smoke (2012) HighNote 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261999.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Clark Terry & Bob Brookmeyer Quintet - Gingerbread Men (1966) 1991, Mainstream R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261998.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261997.jpg" />
 </div>
 
 

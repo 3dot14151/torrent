@@ -6,7 +6,7 @@ CleanMyMac X 4.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455292.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VMware Fusion Professional 8.0.1 (3094680) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455266.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ TotalFinder 1.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455261.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ WinX DVD Ripper for Mac 4.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454906.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Nimble Commander 1.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454905.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Audio Hijack 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454898.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Airmail 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454895.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Lyn 1.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454862.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ iMazing 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454847.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ TG Pro (Temperature Gauge Pro) 2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454822.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Movist 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454612.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Wondershare Recoverit 9.0.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453774.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Network Radar 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453710.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Jettison 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453708.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ MindNode 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453550.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ DayLite 6.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453539.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Airmail 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453413.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ DaisyDisk 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453402.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ One Chat - All In One Messenger 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453230.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Tuxera NTFS 2015 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452829.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ OS X El Capitan 10.11 (15A284) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452819.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Aurora HDR 2017 v1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452776.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ PullTube 0.10.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452716.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Cocktail Sierra Edition 10.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452710.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Serial Box 09-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452408.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ GrandTotal 6 v6.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451837.jpg" />
 </div>
 
 

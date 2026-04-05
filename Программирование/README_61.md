@@ -1,112 +1,3 @@
-###  Публикация: 1816547   (4215) от 06.09.2025
-
-Валентин Арьков | Скрипты. Сценарии автоматизации (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практическое руководство поможет вам освоить автоматизацию рутинных задач в популярных операционных системах. Создавая скрипты и пакетные файлы, вы не только оптимизируете свою работу, но и познакомитесь с основами программирования. Скрипты работают в командной строке и в оконном интерфейсе, предоставляя универсальные инструменты для автоматизации. Используя скрипты (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Издательские решения по лицензии RideroФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A03CA96CEFAD971E314FA21ED42392D602DA532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816564   (4214) от 06.09.2025
-
-Д.А. Бакалов | Программируем финансы на Python: криптовалюта, биржа, торговые и Телеграм боты (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет Вам стать реально богаче используя автоматизацию финансов с помощью Python: Вы не только создадите прототип биржи и собственные скринеры в Телеграм, но и научитесь грабить популярные биржи с помощью ими же
-предоставленных средств.
-Вам НЕ потребуются знания в области программирования, т.к. всё необходимое для базового навыка программиста Вы получите (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Наука и техникаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E94A83DCA88B2A72490EFF1DFD28399F859233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 92914   (3992) от 07.09.2025
-
-Подборка книг Веб-мастеру [129 книг] (1998-2006) [PDF, DjVu, HTM, DOC, CHM, 7Z] [RU, EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3992.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной подборке вы познакомитесь с:
-Web-программирование:
-Базы данных:
-Языки разметки:(   Читать дальше...   )Жанр: ПрограммированиеЯзык: Русский, английскийИздательство: РазличноеФормат: PDF, DjVu, HTM, DOC, CHM, 7ZКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301FD2945568611049389FB48ED09296223E6584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817672   (3239) от 12.09.2025
-
-Аарон Плоетц | Программируем на Java [2 книги] (2024, 2025) [PDF, EPUB, MOBI, AZW3] [RU, EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — практическое руководство по одному из самых распространенных в мире языков программирования Java 21. На июль 2025 года Java 21 остается одной из самых актуальных и широко используемых версий Java. Хотя с момента ее выхода появились последующие релизы — Java 22 (март 2024), Java 23 (сентябрь 2024) и Java 24 (18 марта 2025), — они являются краткосрочными (   Читать дальше...   )Жанр: ПрограммированиеПеревод: И. ДонченкоЯзык: Русский, английскийИздательство: БХВ-Петербург, BPB PublicationsФормат: PDF, EPUB, MOBI, AZW3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333B3B4F3DACDEF8A88B8903B069A62D59E9F3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818258   (2681) от 15.09.2025
 
 С.С. Константинов | API как искусство: Разработка, поддержка, интеграция (2025) [PDF]
@@ -115,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2681.jpg" />
 </div>
 
 
@@ -141,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2221.jpg" />
 </div>
 
 
@@ -169,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2214.jpg" />
 </div>
 
 
@@ -197,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2067.jpg" />
 </div>
 
 
@@ -225,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1895.jpg" />
 </div>
 
 
@@ -251,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1891.jpg" />
 </div>
 
 
@@ -280,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1020.jpg" />
 </div>
 
 
@@ -306,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_874.jpg" />
 </div>
 
 
@@ -332,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_870.jpg" />
 </div>
 
 
@@ -358,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_588.jpg" />
 </div>
 
 
@@ -384,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_354.jpg" />
 </div>
 
 

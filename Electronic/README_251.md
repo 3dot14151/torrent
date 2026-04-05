@@ -1,3 +1,119 @@
+###  Публикация: 1300805   (588038) от 08.05.2019
+
+Asura - Atmosphere (2017) Altar Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frontiers (Final Mix) (05:57)
+ 02. Always (LS Vintage Edit) (05:08)
+ 03. The Bhaktas - Pitre Purus (Asura Remix) (05:54)
+ 04. Eternal Sunshine (Ambient Mix) (06:54)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBA6A06D89E17EE3634BF28F77CB1A19381EA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918038   (587983) от 14.07.2015
+
+VA - Chillaxing: 24 Chillout Classics  (2015) [MP3|320 кб/с]<Lounge, Chillоut, Deep>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passenger 10 - All I Have (03:49)
+02. Jerome Isma-Ae - Underwater Love (06:15)
+03. Nora En Pure - Come with Me (Satin Jackets Radio Edit) (05:51)
+04. Blondee & KRTO - Something About You (feat. Silk) (05:41)(   Читать дальше...   )Производство: Nero BiancoЖанр: Lounge, Chillоut, DeepПродолжительность: 01:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A8B129EE48746CBD33E964D0B361B4D6A6A4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918116   (587937) от 14.07.2015
+
+VA - Compiled & Mixed (By Ewan Rill And Milos Miladinovic) - 2015 [FLAC|Lossless|WEB-DL]<Tech House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ewan Rill - Compiled And Mixed (continuous DJ mix)
+02. Michael A - 23 59 Am (original mix)
+03. Marcelo Vasami - City Reflections (original mix)
+04. Mehmet Akar - A Kind Of Panic (Kintar remix)(   Читать дальше...   )Жанр: Tech House, Progressive HouseПродолжительность: 09:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A9FB7724A901085CF0D5F2BD4CC35FEAAF7C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552342   (587660) от 20.05.2022
+
+Giuseppe Ottaviani - Horizons (Part 1) (2022) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani & Monika Santucci - With You (4:17)
+02. Giuseppe Ottaviani & Dan Soleil - Hero (4:21)
+03. Giuseppe Ottaviani & April Bender - Something I Can Dream About (4:10)
+04. Giuseppe Ottaviani & Mila Josef - Fade Away (4:21)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C393182958EA0AC9E1F3202339C4298C8BEAE1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040391   (587354) от 04.08.2016
 
 Arcane - Automaton (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Berlin-School, Ambient, Experimental>
@@ -6,7 +122,7 @@ Arcane - Automaton (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Berlin-School, Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587354.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Emmanuel - Stamina EP (2019) ARTS / Darkmatter Inc. [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587304.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587301.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Samuel Kerridge - Discography 11 Releases (2012-2019) Downwards, Contort, Bluepr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587008.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ DJ Mixx - Check It Out (Euphoria Of Sound Guest Mix) (2012) [FLAC+cue|Lossless] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586907.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Chemical Brothers - Born In The Echoes (2015) [MP3|320 кб/с]<Breakbeat, E
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586768.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Bedtime Baby - Bedtime Baby Music (2016) [MP3|320 Kbps] <New Age, Easy Listening
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586540.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586492.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Insove - Beyond the Invisible (2016) [MP3|320 kbps] <Electronic, Ambient>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586441.jpg" />
 </div>
 
 
@@ -270,7 +386,7 @@ VA - Record SUPERCHART #196 с DJ Feel (25.06.2011) [MP3|192-320 kbps]<House, El
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586282.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Flowers Of May (2019) [MP3|320 Kbps] <Ambient, Downtempo>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586268.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Ibiza Chillhouse Party (2015) [MP3|320 кб/с]<Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585950.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585898.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ VA - Las Vegas Chillout Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585534.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ VA - 50 Greatest Chillout And Lounge Classics (3CD) (2016) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585532.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ VA - The Best of Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585524.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ VA - Cafe Del Mar XXII (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585421.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ VA - House Music Anthems '19 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585351.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ VA - Total Disco House, Vol.1 (2019) [MP3|320 Kbps] <Nu Disco, Indie Dance,  Jac
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585349.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ VA - Ibiza Summer (2011) [MP3|320 kbps]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585310.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ Professor Trance & The Energisers - Shaman's Breath (2002) [FLAC|Lossless|image 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585269.jpg" />
 </div>
 
 
@@ -627,7 +743,7 @@ VA - Romantic Dinner Lounge (2019) (Chillout Your Mind) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585263.jpg" />
 </div>
 
 
@@ -641,122 +757,6 @@ VA - Romantic Dinner Lounge (2019) (Chillout Your Mind) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22382C1DA5EBEF6CF915CC943F119B7A9366C2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040768   (585051) от 06.08.2016
-
-VA - Space Ibiza (2016) [MP3|320 Kbps] <Funky, Minimal, Soulful, UK Garage>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apexape - Joy & Pain (Club mix) 05:19
-02. Jamie XX - SeeSaw (feat Romy - Nic Fanciulli remix) 08:31
-03. Elias - Enigma (Elias Short edit) 04:42
-04. Whitesquare - Folded Reality 06:47(   Читать дальше...   )Жанр: Funky, Minimal, Soulful, UK GarageПродолжительность: 08:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7035B0B20CBC23E789E8B9F5C610AD616A0155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919004   (584879) от 17.07.2015
-
-VA - Sound of Nature, Vol. 1 (Pure Chill out & Meditation Grooves) (2015) [MP3|320 кб/с]<Lounge, ChillOut, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - On the Beach (Castaway) (06:07)
-02. Marga Sol - Since You're Gone (04:42)
-03. Peter Pearson - Slowly Does It (06:04)
-04. Ingo Herrmann - Tokyo Gardens (03:03)(   Читать дальше...   )Жанр: Lounge, ChillOut, Easy ListeningПродолжительность: 01:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95877667A0F3EA1B5040845B315B989124C8F24D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552901   (584751) от 23.05.2022
-
-VA - Anjunabeats Worldwide 10 (Mixed By Fatum) (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584751.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:56] 01. Tinlicker - You Take My Hand
-[5:25] 02. Luccio - Try
-[3:29] 03. Rodg - Sola
-[4:05] 04. Genix - I'm Awake (Anden Remix)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AEF700ABBA3E8C81B4806FA3D371BE221389C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918889   (584713) от 17.07.2015
-
-The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [MP3|320 кб/с]<Electronic, Breakbeat, Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes I Feel So Deserted
-02. Go
-03. Under Neon Lights
-04. EML Ritual(   Читать дальше...   )Жанр: Electronic, Breakbeat, Big BeatПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2DC8B6A55CA46E82864DD190445C4394AB25E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

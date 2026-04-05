@@ -6,7 +6,7 @@ NG: Секретное оружие Гитлера / Hitler's Secrets Weapon (19
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829565.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Инстинкт выживания / Primal Survivor (2017) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829185.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Скорость жизни / Speed of Life (2010) Blu-Ray [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828481.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828273.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG: Панорама 360° Объект всемирного наследия / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827896.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827764.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC: Горизонт. Плутон. Восставший из мёртвых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824632.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824387.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG: Пропавшая колония Колумба / Columbus's cursed colony 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824018.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Discovery. Техногеника. Царь-Бомба (2017) HDTVRip [H.264/720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822317.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822187.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821958.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821481.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ BBC: Парк извращенцев / Pervert Park (2014) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820974.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ BBC: Факты о вымирании видов с Дэвидом Аттенб�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820971.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ BBC: 9/11. Я там был / 9/11: I Was There (2021) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820961.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ NGW: Супер-змея Америки / America's Super-Snake (2019) WEBRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819260.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ BBC Horizon: Вкусная еда без вреда для планеты / Fea
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819248.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819162.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ BBC: Содержанки: настоящая цена спонсорских о
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819087.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ BBC. Панорама: Неонацизм в Германии. Новая вол
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818801.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818774.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ NG: Дикий Секс / WILD Sex (2005) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818561.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Discovery: Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818527.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ NG. Жизнь до рождения. Близнецы. Двойни, тройн
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817592.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ BBC: Признания серийного убийцы: Сэмюэл Литтл
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817504.jpg" />
 </div>
 
 

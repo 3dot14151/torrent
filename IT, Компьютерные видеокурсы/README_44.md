@@ -1,32 +1,3 @@
-###  Публикация: 1020858   (732308) от 29.05.2016
-
-Максим Фартусов | Супер Проектировщик в AutoCAD (2016) CamRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732308.jpg" />
-</div>
-
-
-###  Подробнее
-
-УРОК ПОЛНЫЙ!!!
-БЫСТРО И ПРОСТО:
-  -Научитесь проектировать в AutoCAD за 24 часа по самому понятному видео-руководству
-ЭКОНОМНО:(   Читать дальше...   )Жанр: Проектирование, дизайнПродолжительность: ~21:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3849DAA6418D87104CFB1D18DF46F40D283902A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529944   (731378) от 08.02.2022
 
 МИФ.Курсы, Ренат Шагабутдинов | Магия Excel  (2021) WEB-DL [RU] [AD]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731378.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Udemy, Dzianis Matveyenka | SQL (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731371.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729304.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ Udemy | Metasploit - программа для взлома в хакерско�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729168.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728099.jpg" />
 </div>
 
 
@@ -174,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728011.jpg" />
 </div>
 
 
@@ -200,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728001.jpg" />
 </div>
 
 
@@ -226,7 +197,7 @@ kts.studio, Александр Опрышко | Асинхронное прог�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727158.jpg" />
 </div>
 
 
@@ -253,7 +224,7 @@ Udemy, Dzianis Matveyenka | JDBC (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727152.jpg" />
 </div>
 
 
@@ -279,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727150.jpg" />
 </div>
 
 
@@ -307,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726288.jpg" />
 </div>
 
 
@@ -335,7 +306,7 @@ OTUS | Framework Laravel [Часть 1-3] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726119.jpg" />
 </div>
 
 
@@ -361,7 +332,7 @@ OTUS | React.js разработчик (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726118.jpg" />
 </div>
 
 
@@ -390,7 +361,7 @@ OTUS | Архитектура и шаблоны проектирования [Ч
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726117.jpg" />
 </div>
 
 
@@ -418,7 +389,7 @@ OTUS | Product Manager IT-проектов (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726116.jpg" />
 </div>
 
 
@@ -444,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726110.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ Slurm (Слёрм), Всеволод Севостьянов, Тигран Хан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725847.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ ProfIT | PHP-1: Введение в профессию (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725465.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723350.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ ITVDN | Видео курс C# Starter Express (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723339.jpg" />
 </div>
 
 
@@ -582,7 +553,7 @@ ProfIT | PHP (1-3 уровень): Введение в профессию/Про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723338.jpg" />
 </div>
 
 
@@ -608,7 +579,7 @@ Front-end Science | ReactJS (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722827.jpg" />
 </div>
 
 
@@ -634,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722035.jpg" />
 </div>
 
 
@@ -663,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722016.jpg" />
 </div>
 
 
@@ -691,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721595.jpg" />
 </div>
 
 
@@ -702,6 +673,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0AD08D093A6A199A6707FFA2663C525E60DC2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400388   (720729) от 04.08.2020
+
+[Udemy] Lev Gorfel | Основы Linux для QA инженеров (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите узнать, как использовать Linux и сделать следующий шаг в своей карьере, но у вас не хватает на это времени, то этот курс именно для вас! Всего за 60 минут вы познакомитесь с Линуксом, узнаете самые используемые команды и сможете попрактиковаться в написании простых скриптов.
+Операционные системы на базе LinuxOS являются сегодня неотъемлемой частью (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E7C408B7B130F65684292ED951D8BE4DC04CB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Star Trek: The Video Game [PS3] [USA] [En] [4.31 CFW] (2013)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854328.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mushroom Men: The Spore Wars [Wii] [PAL] [Multi 5] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852456.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ The Last Remnant (2008) [Xbox360] [Region Free] Freeboot / 7371 [Unofficial] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851720.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Overlord: Raising Hell (2008) [Xbox360] [Region Free] Freeboot / 7371 [Unofficia
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851712.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sonic Unleashed (2008) [PS3] [USA] 2.40 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849072.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sonic Unleashed (2008) [PS3] [EUR] 2.40 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849056.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ромы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848065.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Saints Row IV: Game of the Century Edition (2014) [Xbox360] [Region Free] 16537 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847929.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Never Alone / Kisima Ingitchuna (2015) [PS3] [EUR] 4.21+ [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846421.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Labyrinth Legends  (2012) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846419.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Watchmen: The End Is Nigh. Parts 1 and 2 (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846334.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Monopoly Plus (2014) [Xbox360] [RegionFree] 16537 [FreeBoot] [XBLA / 2 DLC] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846212.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ LittleBigPlanet: GOTY Edition / Little Big Planet: GOTY Edition [PS3] [USA] [RUS
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844897.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Robert Ludlum's The Bourne Conspiracy / Конспирация Борна (2008)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844658.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Infernal: Hell's Vengeance / Infernal: Дьявольщина (2007) [Xbox360] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844654.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ The Nameless Game (2008) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844495.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Active Life: Explorer [Wii] [NTSC] [ENG] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843505.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Disney Princess: Enchanted Journey [Wii] [NTSC] [ENG] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843433.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Tom Clancy’s Rainbow Six: Vegas (2007) [PS3] [USA] 1.70 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841942.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Kidz Sports: Ice Hockey [Wii] [English] [NTSC-U] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840155.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Ace Combat: Assault Horizon [PS3] [+3D] [EUR] [RUS/ENG] [3.70] [Cobra ODE / E3 O
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839715.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Tales from Space: Mutant Blobs Attack (2014) [Xbox360] [FreeRegion] 16537 [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839430.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ The Bridge (2013) [Xbox360] [RegionFree] 16537 [FreeBoot] [XBLA] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839421.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Far Cry 3: Blood Dragon [Xbox360] [RUS] [FreeBoot] (2013)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839118.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Naruto Shippuden: Ultimate Ninja Storm 4 Road To Boruto (2020) [Switch] [EUR] 9.
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838916.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837969.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 958933   (321095) от 22.11.2015
+
+Hand of Fate (2014) [Ru/Multi] (1.3.0) Repack R.G. Catalyst
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый раз - новая история. Собирайте карты, составляйте колоду и попробуйте сыграть против нее. За тринадцатью вратами, на самом краю вселенной идет игра жизни и смерти. Вытягивайте карты по одной и узнайте свою судьбу. "Рука судьбы" - это гибрид roguelike, action-RPG и карточных игр на составление колоды. Игрок сам собирает колоду из карт.Тип издания: RepackРазработчик: Defiant DevelopmentЖанр: Logic (CCG) / RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Испанский, ВенгерскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Венгерский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE65A8F7D8229B986AD2529B52D1B47AC19147DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181663   (320829) от 08.11.2017
+
+Hand of Fate 2 (2017) [Ru/Multi] (1.0.0) License RELOADED
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hand of Fate 2 — это «ползание по подземельям» в стилистике темного фэнтези, живая настольная игра, каждый уровень которой составляется из карт встреч, подобранных вами! Выбирайте с умом: ваш соперник, загадочный Дилер, не собирается нежничать, превращая вас в инструмент отмщения.Тип издания: LicenseРазработчик: Defiant DevelopmentЖанр: Action (RPG), Roguelike, Board Games, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27002979D30D851F404FD2AADA2408F561B92514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181670   (320818) от 08.11.2017
 
 Wolfenstein II (2017) [Ru/Multi] (1.0/u2) License CODEX [patch]
@@ -6,7 +58,7 @@ Wolfenstein II (2017) [Ru/Multi] (1.0/u2) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320818.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_319787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319787.jpg" />
 </div>
 
 
@@ -64,7 +116,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318630.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ Spider-Man: Shattered Dimensions (Р) [Ru]  2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317710.jpg" />
 </div>
 
 
@@ -120,7 +172,7 @@ Metroid Prime 3: Corruption [Wii] [PAL] [ENG, DE] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315925.jpg" />
 </div>
 
 
@@ -147,7 +199,7 @@ The Banner Saga (2014) [Ru/Multi] (2.58.17) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315765.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315403.jpg" />
 </div>
 
 
@@ -203,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315212.jpg" />
 </div>
 
 
@@ -233,7 +285,7 @@ Mass Effect 3 [Ru/En] (RePack/1.04.5427.111/7 DLC) 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314614.jpg" />
 </div>
 
 
@@ -260,7 +312,7 @@ Assassin's Creed III [Ru] (Rip/1.01 /4 DLC) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_314598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314598.jpg" />
 </div>
 
 
@@ -290,7 +342,7 @@ FIVE: Guardians of David (2015) [En] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313830.jpg" />
 </div>
 
 
@@ -316,7 +368,7 @@ Dreamcast Collection (2011-2012) [Multi] License TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313014.jpg" />
 </div>
 
 
@@ -342,7 +394,7 @@ Marvel Super Heroes 3D: Grandmaster's Challenge [Wii] [PAL] [Multi 9] [2010]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312914.jpg" />
 </div>
 
 
@@ -369,7 +421,7 @@ ARAYA (2016) [En/Thai] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312908.jpg" />
 </div>
 
 
@@ -395,7 +447,7 @@ Torchlight II [Ru/En/Pl] [Steam-Rip/1.19.5.7] 2012 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_312454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_312454.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Road to Fame / Двойной фор$аж [Ru] (L) 2005
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311948.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Baldur's Gate: Enhanced Edition [En] (RePack/1.0) 2012 | Rick Deckard
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311775.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Minecraft [Ru/En/Multi56] (L/1.4.5) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311584.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ FTL: Faster Than Light [Ru] (RePack/1.0.2.8) 2012 l Dark@ssassin
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311581.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.196) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309060.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repa
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309013.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Satellite Reign (2015) [Ru/Multi] (1.06) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309006.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ All Star Cheerleader 2 [Wii] [PAL] [En] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308909.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308622.jpg" />
 </div>
 
 
@@ -642,64 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F812789AE3B8B87963710DE0A6E1F5FF697579A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265990   (308322) от 04.12.2010
-
-[Repack] Spider-Man: Shattered Dimensions [Ru/Multi6+] 2010 | cdman
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поклонников серии игр о легендарном супергерое ждут приключения нового поколения – приключения в четырех мирах, объединенных сюжетом и главным героем.
-
-История за авторством известного художника комиксов Дэна Слотта (Dan Slott) отправит игроков на поиски осколков таинственного артефакта — Скрижали порядка и хаоса (Tablet of Order and Chaos), — которые разлетелись по нескольким параллельным вселенным. Собирая части Скрижали, игроки побывают в самых разных местах — в непроходимых джунглях, безграничных пустынях и огромных мегаполисах (некоторые локации не фигурировали ни в одной из предшествующих игр).
-
-В каждом из четырех миров предстоит выступить в роли одного из воплощений легендарного супергероя и использовать уникальные способности и возможности каждого, чтобы расправиться со всеми противниками, собрать артефакт и восстановить порядок мироздания.Тип издания: РепакЖанр: Action / 3D / 3rd PersonЯзык озвучки: Английский, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266196   (308101) от 04.12.2010
-
-TRON: Evolution: The Video Game / ТРОН: Эволюция [Multi6\-] (RePack) 2010 l RELOADED
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда потрясающий блокбастер «ТРОН» произвел эффект разорвавшейся бомбы. Этот фильм пришелся по душе всем ценителям настоящей научной фантастики. Впечатляющий ремейк знаменитой кинокартины от студии «Дисней» вовсю готовится к выходу на большие экраны по всему миру. Но принять личное участие в виртуальных сражениях и приключениях куда интереснее!
-
-Захватывающий экшен «ТРОН: Эволюция» позволит вам погрузиться в мир виртуальной реальности, одержать впечатляющие победы с помощью разрушительного светового диска и освоить легендарный светоцикл. Игра раскроет события, предшествующие сюжету нового фильма «Трон: Наследие». Различные удары и комбо-приемы умело сочетаются с невероятной мобильностью персонажа – в передвижении среди башен и небоскребов задействованы элементы паркура. Поклонники сетевых сражений смогут сразиться с умелыми соперниками по Интернету, причем в каждой битве смогут принять участие до десяти человек.Тип издания: ЛицензияЖанр: ActionЯзык озвучки: Английский, Немецкий, Французский, Голландский, Итальянский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Голландский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1667203   (177334) от 07.10.2023
+
+Исчезающая точка / Vanishing Point (1971) BDRip [H.264] [Полная английская версия]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зарабатывая на жизнь перегоном машин из города в город, Ковальски получает очередное задание — доставить белый «Додж Челленджер» из Денвера в Сан-Франциско. Когда его пытаются остановить полицейские, Ковальски демонстративно отказывается подчиняться властям и упорно уходит от преследования, следя лишь за тем, чтобы никто из гонящихся за ним полицейских не погиб... (   Читать дальше...   )Производство: США, Великобритания, 20th Century Fox Film Corporation, Cupid ProductionsЖанр: боевик, криминал, триллерРежиссер: Ричард С. СарафьянАктеры: Барри Ньюман, Кливон Литтл, Дин Джаггер, Пол Косло, Роберт Доннер, Тимоти Скотт, Энтони Джеймс, Артур Мэйлет, Карл Свенсон, Ли Уивер, Том Рис, Оуэн Буш, Джон ЭймосПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские (сцена с попутчицей и полные), английскиеПродолжительность: 01:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2838E8AF5DC5C7D82F90AAA35060A04549A2286F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713184   (177232) от 05.12.2020
+
+Эрнст Любич. Не хочу быть мужчиной / Ich möchte kein Mann sein (1918) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177232.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сюжету фильма молодая девушка, жительница Восточной Германии, живет у богатого дяди в Берлине на полную катушку: она играет в покер, курит, флиртует с молодыми мужчинами. Её гувернантка может только беспомощно смотреть на все это. Но когда дядя уезжает в длинную деловую поездку, гувернантка принимает на себя обязанности строгого домашнего учителя и воспитателя, (   Читать дальше...   )Производство: Германия, Projektion-AG Union (PAGU)Жанр: Комедия, немое киноРежиссер: Эрнст ЛюбичАктеры: Осси Освальда, Курт Гётц, Ферри Сикла, Маргарет Купфер, Виктор ЯнсонСубтитры: Немецкие интертитры, русские отдельным файломПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD588743691FB816CD2BD85F6A5BDFA473039A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461043   (176261) от 06.12.2020
 
 Собачья жизнь / A Dog's Life (1918) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176261.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176182.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174928.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174877.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174423.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174323.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174209.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174134.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173630.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172763.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171914.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171406.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171339.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170796.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170546.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170322.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170270.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170232.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170191.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169599.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169369.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167577.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167461.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167012.jpg" />
 </div>
 
 
@@ -620,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC55D58866496D09B95A537686251CC27C230E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426488   (166549) от 14.12.2020
-
-Вторженцы / Gli invasori / The Invaders (1961) BDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166549.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 786 года н.э. начались походы викингов на Британию, где они захватывали земли и основывали свои королевства. После разгрома британцами королевства короля Харальда, его дети оказались разделены. Один сын был увезён оставшимися в живых викингами на родину, а другой подобран на поле боя и воспитан британской королевой Элис.
-Спустя 20 лет они встречаются — король викингов (   Читать дальше...   )Производство: Италия, Франция / Critrion Film, Galatea Film, Lyre FilmsЖанр: Боевик, мелодрама, приключенияРежиссер: Марио БаваАктеры: Кэмерон Митчелл, Алиса Кесслер, Эллен Кесслер, Джордж Ардиссон, Андреа Кекки, Жан-Жак Делбо, Франко Джакобини, Раф Бальдассарре, Энцо Дориа, Джанни СолароПеревод: Одноголосый любительский (Kolobroad)Субтитры: ОтсутствуютПродолжительность: 01:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35126B158E741A8253995FE03E8C92513F89C28E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673230   (166207) от 31.10.2023
-
-Диана / Diane (1956) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция, XVI век. Король Франциск 1, ради мира с Италией, женит своего младшего сына Генриха на Екатерине Медичи. Перед свадьбой, Генриха учит хорошим манерам очаровательная графиня де Брэзе. Жених вместо Екатерины безумно влюбляется в свою наставницу!Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрама, историяРежиссер: Дэвид МиллерАктеры: Лана Тернер, Педро Армендарис, Роджер Мур, Мариса Паван, Седрик Хардвик, Торин Тэтчер, Тайна Элг, Джон Луптон, Генри Дэниелл, Рональд ГринПеревод: Авторский (В. Сонькин)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F3D8E4A6FC1EB83F69BE06F773864581488DDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

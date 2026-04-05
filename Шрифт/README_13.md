@@ -1,3 +1,266 @@
+###  Публикация: 1824809   (136941) от 15.10.2025
+
+Шрифты - Behance - Svetlin Balezdrov - SOCIUM - 49044781 - Mod By He Rez AD [OTF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт представляет собой свежий взгляд на эстетику болгарского социализма, который запоминающимся образом интерпретирует достижения Баухауза. SOCIUM следует традициям болгарского типографского дизайна, умело сочетающего особенности болгарской кириллицы и принципы геометрического построения.
+В модификации от "He Rez AD" расширена кириллица (добавлена украинская, (   Читать дальше...   )Формат: OTF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B58CA052AFF5E1CA110E7751E4C64483BF7E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824872   (136913) от 16.10.2025
+
+Шрифты - JMN - Małgorzata Budyta - Kurier [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт без засечек, созданный Малгожатой Будитой из Варшавы в 1973 году.
+Проект был дипломной работой по типографскому письму в Академии изящных искусств в Варшаве. (Хелена Новак разработала еще один шрифт, Helikon, также в качестве дипломной работы.)Формат: OTF, TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5329A5AEE20E38EB995231002E25CF538FF2885D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824923   (136909) от 16.10.2025
+
+Шрифты - YouWorkForThem - Monoxide Font - T28400 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь с Monoxide — жирным шрифтом с заглавными буквами, разработанным для того, чтобы ваши творческие проекты стали ещё привлекательнее. Благодаря шести уникальным вариантам высоты этот шрифт привносит яркую индивидуальность и энергичный ритм в заголовки, плакаты и логотипы. Его чистый, но лаконичный стиль гарантирует, что каждый дизайн будет не только привлекающим (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBB7CE03F73F3B7B13220E2B32529741DAC25C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824944   (136887) от 16.10.2025
+
+Шрифты - Envato - Roger & Lavienna - Ligature Serif - U7CYWCU [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Roger & Lavienna — классический и современный шрифт с засечками, содержащий множество великолепных лигатур, которые сделают ваш дизайн, презентацию или логотип ещё более впечатляющим и выделяющимся! Этот шрифт также содержит стильные звёздочки, которые сделают ваш проект ярче и интереснее. Чтобы открыть звёздочки, нажмите A+ (цифра от 1 до 5). Этот шрифт поддерживает (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49BF2C5EC10B60AD2E2830B3D20387B9B365F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824981   (136871) от 16.10.2025
+
+Шрифты - TheBrandedQuotes - Brunson Font [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brunson — невероятно яркий шрифт без засечек, разработанный для самых разных применений. Brunson Regular и Brunson Rough представляют два разных стиля. Оба шрифта отлично подходят для заголовков, названий фильмов, революционных постеров, цифровых баннеров, обложек альбомов и многого другого.
+Сделайте свой бренд ярким с помощью жирных, жирных символов Brunson. Четкий (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DC2184520FE535E98640E52ECFEB39EFEA08F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824984   (136865) от 16.10.2025
+
+Шрифты - JMN  - Zygfryd Gardzielewski - Antykwa Toruńska [TTF, OTF, TEX]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шрифт в основном используется для мелкой печати.  Его характерными чертами являются расширение вертикальных линий в верхней части и волнообразная форма некоторых горизонтальных и диагональных линий, а также засечек.Формат: TTF, OTF, TEXПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E626913CFB8DD11B5FF698D5B3FB8A292CB0D40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825076   (136830) от 16.10.2025
+
+Шрифты - Behance - TypeType Foundry - TT Quaris Trial - 800927 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новый шрифт из коллекции TypeType — роскошный TT Quaris, в котором сочетаются элегантность, загадочность и дерзость. TT Quaris — изысканный и современный контрастный гротеск. Перед разработкой этого шрифта мы провели глубокое исследование архетипов контрастных гротесков. На основе полученных данных мы сформулировали ключевые параметры и стилистические (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A201051A5F2551E4087A9DE548A86448709977AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825085   (136827) от 16.10.2025
+
+Шрифты - TheBrandedQuotes - Befitting Script - 28n4 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Befitting Script даёт вам представление о будущих возможностях. Курсивный шрифт, запрограммированный с продуманными альтернативными вариантами, плавно перетекает в текст, пока вы собираете слова в голове. Он очень универсален и идеально подходит для большинства концепций брендинга, от бирок до типографики вашего бренда одежды. Городские штрихи придают шрифту более (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0828E59004431B65CF2E34B922BB486AE15D2F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825202   (136791) от 16.10.2025
+
+Шрифты - MyFonts - ERF Neot [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136791.jpg" />
+</div>
+
+
+###  Подробнее
+
+ERF NEOT — современный геометрический шрифт без засечек с ярким и футуристичным дизайном. Сочетая в себе чёткую структуру и элегантную простоту, этот шрифт представлен в 16 семействах начертаний , предлагая максимальную универсальность для любого проекта. Благодаря многоязычной поддержке ERF NEOT обеспечивает оптимальную читаемость на различных языках. ERF NEOT идеально (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4514E57C652987E72FC09BB7B78AB946983445C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825396   (136763) от 17.10.2025
+
+Шрифты - Creative Market - Mamylinus | Beautiful Calligraphy - 291430974 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mamylinus - красивый шрифт от Denustudios для ваших творческих задач.Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05BF6288AFB5852339EAB2F0254D85E687E1D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825412   (136755) от 17.10.2025
 
 Шрифты - MyFonts - Distinct Style [OTF, TTF]
@@ -6,7 +269,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136755.jpg" />
 </div>
 
 
@@ -32,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136731.jpg" />
 </div>
 
 
@@ -58,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128886.jpg" />
 </div>
 
 
@@ -84,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128869.jpg" />
 </div>
 
 
@@ -112,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128864.jpg" />
 </div>
 
 
@@ -140,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128846.jpg" />
 </div>
 
 
@@ -166,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128813.jpg" />
 </div>
 
 
@@ -192,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128810.jpg" />
 </div>
 
 
@@ -218,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126123.jpg" />
 </div>
 
 
@@ -246,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126081.jpg" />
 </div>
 
 
@@ -273,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125947.jpg" />
 </div>
 
 
@@ -299,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125943.jpg" />
 </div>
 
 
@@ -325,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125929.jpg" />
 </div>
 
 
@@ -351,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125922.jpg" />
 </div>
 
 
@@ -379,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125917.jpg" />
 </div>
 
 
@@ -405,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_124485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_124485.jpg" />
 </div>
 
 
@@ -416,268 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823316   (121649) от 11.10.2025
-
-Шрифты - MyFonts - Undergrunge Tornado [OTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это ещё один рисованный шрифт в стиле гранж, созданный мной маркером для постеров. Включает все расширения латиницы, кириллицу, а также японские хирагану и катакану. Шрифт полностью заглавный. Я нарисовал пару вариантов каждой буквы, затем выбрал один для строчных и один для заглавных, чтобы их можно было комбинировать для более плавного и естественного вида.Формат: OTF, WOFFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A9BAFD614FC12E150CBFD41B671E503589A7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823210   (121572) от 10.10.2025
-
-Шрифты - Creative Market - CS Garvey - Bold Font - 291711357 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сила встречается с игривой экспрессией. CS Garvey — это смелый современный шрифт без засечек, сочетающий геометрическую точность с яркой, энергичной индивидуальностью. Его чёткие и чёткие формы букв основаны на прочной современной структуре, обеспечивающей отличную читаемость и выразительность. Его необычные пропорции добавляют динамики, радости и уникальности, отличая (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74467371C004BDF74047018BACB5A0EF6ABA2849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823234   (121542) от 10.10.2025
-
-Шрифты - Envato - Halloween - Shiver Grim - QYAEMW6 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shiver Grim — пугающий шрифт для Хэллоуина, воплощающий в себе сущность страха и очарования. Благодаря жуткому дизайну, готической структуре и зазубренным буквам этот шрифт идеально подходит для проектов в жанре ужасов — от постеров к фильмам ужасов до обложек книг-триллеров. Каждый штрих пропитан злом и напряжением, что делает его идеальным выбором для дизайнеров, (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3E44C25623695ED252BA724D2B4F460BEC76D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823297   (121426) от 11.10.2025
-
-Шрифты - Fontspring - Jotia [OTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавая комбинацию шрифтов с засечками и без засечек, Jotia использует лучшее из обоих миров, что приводит к созданию уникального и современного неогуманистического семейства шрифтов.
-
-Вдохновляясь скорее лапидарными надписями, чем нарисованным пером текстом, шрифт Jotia использует детали с треугольными засечками для создания яркого, унифицированного и легко читаемого (   Читать дальше...   )Формат: OTF, WOFFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD70B22CDD648F30988D1E9333D4D5C7428567E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823108   (117655) от 10.10.2025
-
-Шрифты - Envato - Madinya - UZNKS8Q [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Madinya — смелый и современный шрифт с узким начертанием. Благодаря своим выразительным линиям и уникальным деталям, Madinya идеально подходит для создания эффектных заголовков, логотипов и плакатов. Его жирные, блочные буквы излучают силу и уверенность, что делает его идеальным для проектов, которые должны выделяться и производить неизгладимое впечатление. (   Читать дальше...   )Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487EBE21CEA312E1A35A941B84C7C1627D1FCDAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823128   (117621) от 10.10.2025
-
-Шрифты - Creative Market - Renastica Modern Script Font - 291713143 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Renastica — современный рукописный шрифт, созданный с любовью студией Rantautype. Renastica — идеальный выбор для любого творческого проекта, будь то создание современного лайфстайл-дизайна, например, логотипов, заголовков, обложек, брендинга, приглашений, свадебных дизайнов, стендов и журналов, постов в социальных сетях, рекламы, печатных цитат, упаковки продуктов, (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F1DB89010985F2E22BB2DF23A2735F06D31776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823174   (117548) от 10.10.2025
-
-Шрифты - Envato - Recubs Press - Display Letterpress Font - 92HK2YT [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый символ Recubs Press основан на прочной геометрической структуре с квадратными окончаниями и равномерной шириной штрихов, что обеспечивает читаемость при любом размере. Стиль Regular сочетает в себе приятную среднюю насыщенность с лёгким состариванием, передавая очарование ручной печати без ущерба для чёткости. Стиль Block усиливает зернистость и плотность, (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8630226E27367374DC09E0F5F0F9271663F3AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823193   (117532) от 10.10.2025
-
-Шрифты - Creative Market - Microbots - Futuristic Font - 291697416 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microbots — это футуристический пиксельный шрифт с острыми, угловатыми краями, создающий яркий и уникальный визуальный образ. Идеально подходит для заголовков, плакатов, логотипов и различных дизайн-проектов, стремящихся к яркому и современному стилю.Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9F316F8CFA248D2F9843270B6BB9A31D205E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823020   (104927) от 09.10.2025
-
-Шрифты - Creative Market - Mongule - Geometric Futuristic - 291691747 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mongule — футуристический шрифт без засечек с лёгким ретро-оттенком. Благодаря плавным геометрическим линиям, элегантным круговым линиям и смелым, уверенным штрихам он идеально подходит для эффектных заголовков и подзаголовков.Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DE8DEE33FD54448F361B8541815ADF68B073E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822841   (104515) от 08.10.2025
-
-Шрифты - Behance - Vladimir Klenov - Uncage Ext - 227491015 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uncage Ext - это вторая версия шрифта UNCAGE, в которой теперь используются строчные буквы. Uncage Ext - это современный гротескный вариативный шрифт, основанный на простых геометрических формах, которые придают ему легкость и отличную читаемость. Благодаря этим свойствам данный шрифт найдет широкое применение в различных задачах и областях графического дизайна. (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28D3E0FAB65519BB3C75617ACCD1139083A788F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195856.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ History Channel: Жизнь после людей / Life after people (2008) HDR
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189495.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176159.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155631.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149790.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132584.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116954.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14369.jpg" />
 </div>
 
 

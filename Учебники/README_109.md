@@ -1,3 +1,56 @@
+###  Публикация: 1682784   (131102) от 08.12.2023
+
+Д.Н. Борисов | Корпоративные информационные системы (2007) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебно-методическое пособие подготовлено на кафедре информационных систем факультета компьютерных наук Воронежского государственного университета. Учебное пособие предназначено для использования на лабораторных занятиях и для самостоятельной работы студентов 5-го курса вечернего отделения факультета компьютерных наук по курсу "Корпоративные информационные системы". (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Воронежский ГУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8799E5B7A729101AEC3DDA8863E386798FFBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682847   (131070) от 08.12.2023
+
+А.С. Васильева | Корпоративные информационные системы (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебно-методическое пособие предназначено для студентов специальности 09.02.02 «Компьютерные сети».
+Целью освоения дисциплины (модуля, междисциплинарного курса) получение студентами знаний об общих принципах работы корпоративных информационных систем (корпоративных ИС, КИС), их архитектуре, возможностей в управлении производственными и другими процессами предприятия, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПВГУСФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0A4E4AC1590CBDEBC81B3AAC07BFB61395908E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682861   (131026) от 08.12.2023
 
 М.Е. Деменков, Е.А. Деменкова | Современные методы и средства проектирования информационных систем (2015) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131026.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130841.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129995.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129942.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129905.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129898.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129878.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129729.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129660.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128925.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128748.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128736.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128727.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128708.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128406.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128402.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128398.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128388.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128370.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128266.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128250.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128237.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128235.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128141.jpg" />
 </div>
 
 
@@ -622,61 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:495CB751F8F6486FD828DD65D4DD1FD9147FA990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684246   (128019) от 14.12.2023
-
-О.В. Веселов, П.С. Сабуров | Методы искусственного интеллекта в диагностике (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены вопросы применения системы моделирования MatLAB для построения алгоритмов диагностирования технических систем на основе методов искусственного интеллекта с использованием пакетов «NNTool», «FuzzyLogic», «Simulink», «Stateflow».
-Предназначено для подготовки магистрантов по направлению 15.04.06 ‒ Мехатроника и робототехника. Может быть полезно при изучении (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ВлГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D1295C02C50AC5F3BD1226B4A10BB8F4F04C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684073   (127985) от 14.12.2023
-
-Л.А. Бессонов | Теоретические основы электротехники (1973) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теоретические основы электротехники (ТОЭ) являются одной из основных дисциплин многих высших технических учебных заведений. На ней базируются профилирующие дисциплины этих вузов.
-Курс ТОЭ изучается студентами в течение трех семестров. В соответствии с этим предлагаемый вниманию читателя учебник по курсу ТОЭ издается в трех частях.
-Первая и вторая части курса посвящены (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD0A1E85712CFEEBE9A255ADE26B1AC4BB0DFE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

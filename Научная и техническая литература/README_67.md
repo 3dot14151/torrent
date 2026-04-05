@@ -1,134 +1,3 @@
-###  Публикация: 1355901   (980893) от 28.01.2020
-
-Джереми Фишер, Гиллиан Кейс | Голос. 99 упражнений для тренировки, развития и совершенствования вокальных навыков (2017) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш голос – мощный инструмент, которым вы пользуетесь каждый день, и забота о нем приносит бесценные плоды – успехи в профессии, творчестве, общении. Авторы этой книги, музыкант и педагог Джереми Фишер и эксперт по вокалу, фониатр Гиллиан Кейс, создали универсальный комплекс упражнений, с помощью которого реально значительно улучшить качество и звучание голоса, развить (   Читать дальше...   )Жанр: Культура и искусство, Музыкальная педагогикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506C0486E2CEF89101FB934122CE45E991DB3B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355765   (980889) от 28.01.2020
-
-Павел Евдокименко | Принцип пуповины. Анатомия везения. Научный подход к ненаучным понятиям (2019) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Павел Евдокименко – практикующий врач-ревматолог, невролог, академик российской Академии Медико-Технических Наук (АМТН РФ), один из ведущих специалистов по лечению болезней позвоночника и суставов. Ведет YouTube-канал «Разумная медицина доктора Евдокименко» – канал о здоровье для разумных людей.
-Эту книгу доктор Павел Евдокименко считает одной из лучших своих (   Читать дальше...   )Жанр: Научно-популярная литература, Нетрадиционная медицинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3D869C9B3C6186646DDAE70469F28A9F0F6B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972606   (980841) от 07.01.2016
-
-Д. И. Гачев | Эстетические взгляды Дидро (1961) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор ставил себе задачей раскрыть в этой работе основное содержание эстетической системы главы французских материалистов XVIII столетия Дени Дидро. В осуществлении этой задачи необходимо было ограничиться основными художественными проблемами, которые волновали Францию накануне буржуазной революции XVIII века. Речь идет о теоретических истоках буржуазного реализма. (   Читать дальше...   )Жанр: История, философия, эстетикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98725C00E51F99121E9462B42D752D248BCA4CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972604   (980840) от 07.01.2016
-
-А. И. Казарин | Экономические воззрения Дени Дидро (1960) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи буржуазным мыслителем, Дидро не был буржуазно ограниченным. Он умел относиться критически не только к буржуазии как классу, но и к буржуазным идеалам. Это и придало его творчеству особое обаяние и привлекательность. Он неустанно боролся за улучшение положения трудящихся и был одним из самых ревностных правдоискателей. Борьба за истину и за достойные человека (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFEB40C07A03A921062EBEEAAF8A6A930FF4978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972602   (980836) от 07.01.2016
-
-А. И. Казарин | Учение Дидро о государстве и праве (1960) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Политические воззрения Дидро в их внутренней связи до сих пор не исследовались. Отдельные высказывания Дидро на политические темы рассматривались чаще всего вне всякой внутренней связи, как более или менее случайные суждения человека, далекого от политики, кабинетного мыслителя. Их классовая природа устанавливалась умозрительным путем, отвлеченно, а не конкретно-исторически. (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A8B8FCF3C990ACE7543F5CDC37F72AEA52B4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972569   (980831) от 07.01.2016
 
 С. С. Розова | Классификационная проблема в современной науке (1986) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980831.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980828.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980781.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980776.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980775.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980774.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980769.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980703.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980698.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980691.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980690.jpg" />
 </div>
 
 
@@ -426,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980687.jpg" />
 </div>
 
 
@@ -454,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980672.jpg" />
 </div>
 
 
@@ -480,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980549.jpg" />
 </div>
 
 
@@ -506,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980536.jpg" />
 </div>
 
 
@@ -532,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980517.jpg" />
 </div>
 
 
@@ -558,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980511.jpg" />
 </div>
 
 
@@ -585,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980502.jpg" />
 </div>
 
 
@@ -611,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980491.jpg" />
 </div>
 
 
@@ -639,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980442.jpg" />
 </div>
 
 
@@ -665,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980423.jpg" />
 </div>
 
 
@@ -677,6 +546,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7675ECB79AB4C775A93D2D63DABA393C3BEA394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356272   (980398) от 29.01.2020
+
+А. Таранин (ред.) | Уголовный Кодекс Российской Федерации на 2020 год (2020) [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание содержит сверенный с официальными источниками текст Уголовного кодекса Российской Федерации с учетом принятых изменений и дополнений на 2020 год. В комментарии к статьям включена информация о возможных изменениях в Уголовном кодексе РФ по результатам принятия законопроектов, находящихся на рассмотрении в Государственной Думе РФ.
+Для более удобного (   Читать дальше...   )Жанр: Нормативные правовые акты, Уголовное правоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BD573C785062E71B4FFC69EAE3600CE0F5D908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356136   (980391) от 29.01.2020
+
+Александр Бушков | Остров кошмаров. Корона и плаха (2020) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья книга трилогии «Остров кошмаров».
+
+Современные англичане забыли о многих своих гнусных «изобретениях», например об институте «сервентов» XVII века.
+За сто с лишним лет Британия насильно отправила в Америку в общей сложности 50 000 белых рабов – своих граждан! Их перевозили в битком набитых трюмах, в которых оголодавшие люди охотились за корабельными крысами, (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA95273E71AAE4508C443623414276975EE4F541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356069   (980386) от 29.01.2020
+
+Е.И. Давыденко (сост.) | Льготы, пособия, субсидии, компенсации в 2020 году (2020) [PDF, DOCX]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980386.jpg" />
+</div>
+
+
+###  Подробнее
+
+У государства есть не только права, но и обязанности, о которых мы часто забываем, следя за уплатой налогов, коммунальных платежей и штрафов. Автор и издатели уверены – граждане должны знать о своих правах. Сегодня дважды и трижды платит не скупой, а незнающий. Что такое налоговый вычет? Как платить за квартиру вдвое меньше? Как получить субсидию на приобретение (   Читать дальше...   )Жанр: Юриспруденция, Гражданское право, Жилищное правоФормат: PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C36F00A9815DA4C2BA5C1546A95E936883C703A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973305   (980329) от 08.01.2016
+
+И. И. Агол | Витализм, механистический материализм и марксизм (2013) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателя предлагается книга известного советского биолога и философа И. И. Атола (1891-1937), посвященная разработке с точки зрения диалектического материализма некоторых вопросов биологии. Автор подробно разбирает, оценивает и критикует как основные проблемы современной ему виталистической теории, так и попытки механистов (философов, стоявших на позициях (   Читать дальше...   )Жанр: История, философия, биологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF22715356B174B25A8E87FEECCFC79F0BD8E9B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973013   (980326) от 08.01.2016
+
+У. Моррис | Искусство и жизнь. Избранные статьи, лекции, речи, письма (1973) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980326.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании впервые на русском языке представлено обширное и многообразное наследие У. Морриса (1834–1896), известного английского поэта, писателя, архитектора, живописца, декоратора и дизайнера, автора социально-утопического романа «Вести ниоткуда», активного общественного деятеля, с 1883 года социалиста. Книга представляет интерес как для специалистов по (   Читать дальше...   )Жанр: История, философия, эстетика, искусство, политология, поэзияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861327DA06A969FF846D702D4D73744E1B054E3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

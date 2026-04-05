@@ -1,3 +1,32 @@
+###  Публикация: 1250061   (429130) от 26.09.2018
+
+The Strokes - Room On Fire (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Ever Happened? (2:54)
+ 02. Reptilia (3:42)
+ 03. Automatic Stop (3:27)
+ 04. 12:51 (2:33)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Garage RockПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD467E77ED8153C63BE1617204A1928390DCF5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249571   (428943) от 26.09.2018
 
 Everlast - Whitey Ford's House Of Pain (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Blues Rock, Hip-Hop>
@@ -6,7 +35,7 @@ Everlast - Whitey Ford's House Of Pain (2018) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428943.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Death ... Is Just The Beginning Vol. I - VII (1990 - 2002) 13 CD [FLAC|APE|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428940.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428786.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Alice Cooper - Paranormal (2017) Deluxe Edition, Japan Press [WavPack|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428570.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ Medicine Head - Dark Side Of The Moon (1972) Remastered, 2004, Dandelion Records
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428473.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Worshipper - Shadow Hymns (2016) [FLAC|Lossless|tracks] <Classic Heavy Metal, Cl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428374.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ VA - Thunder And Steel Down Under - A Tribute To Riot (2015) [FLAC|Lossless|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428372.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ The Hardkiss - Stones and Honey (2014) [MP3|320 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428251.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ Metal Clone X - Metal Clone X (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428222.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ Thousand Foot Krutch - Untraveled Roads (2017) Live [MP3|320 Kbps] <Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428175.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ Foo Fighters - Concrete And Gold (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428173.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ The Doors - The Singles (2017) 2CD, Remastered [MP3|320 Kbps] <Classic Rock, Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428158.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ The Dillinger Escape Plan - Dissociation (2016) [FLAC|Lossless|tracks + .cue] <J
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428056.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Emerson, Lake & Powell - Emerson, Lake & Powell (1986) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428050.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ Tony Carey - Stanislaus County Kid (2010) [FLAC|Lossless|image + .cue]<Classic R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428042.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ VA - Панк-о-мания (2000) [FLAC|lossless|image + .cue] <Punk Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427918.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ The 13th Floor Elevators - Easter Everywhere (1967), Reissue 1993  [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427910.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Elmsfire - Wings Of Reckoning (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427638.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Svalbard - When I Die, Will I Get Better? (2020) [MP3|320 Kbps] <Post-Hardcore, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427629.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Trishula - Time Waits For No Man (2020) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427623.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427549.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427536.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ The Rolling Stones - Steel Wheels Live (Live From Atlantic City, NJ, 1989) (2020
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427525.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427522.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Fish - Weltschmerz (2020) 2xCD [MP3|320 Kbps] <Art Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427519.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2872046F9A774F7E488ADD189661765D890BA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571987   (427517) от 24.08.2022
-
-Voodoo Kiss - Voodoo Kiss (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beauty and the Beast (03:14)
-02. The Killer (02:45)
-03. Nice Guys (03:36)
-04. The Prisoner (03:29)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE8D78FBDA99ED1236C7DE6CB15AB2C984C0E8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1487301   (1003873) от 04.08.2021
+
+SoundSource 5.3.5 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003873.jpg" />
+</div>
+
+
+###  Подробнее
+
+SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
+Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего Mac, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2021Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47825171381C7EC22E730669E069E3BC735B3380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487309   (1003864) от 04.08.2021
 
 Wifiry: Wi-Fi Signal Strength 2.0 [Multi]
@@ -6,7 +33,7 @@ Wifiry: Wi-Fi Signal Strength 2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003864.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Divvy 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002436.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Wimoweh 1.1.68 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002257.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Adobe Zii 2020 5.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001907.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Colorful Folders - Easy to use and design folder 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001676.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ Data Recovery Essential Pro 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001649.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ ChronoSync 4.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001646.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ Adobe Zii 2020 - Universal Patcher v5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000908.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ Omni Remover 3 v3.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000903.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ Adobe Zii 2020 - Universal Patcher v5.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000853.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ ClearDisk 2.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993321.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ iClock Pro 5.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993292.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ Artpaper: new daily wallpapers 3.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991911.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ Duplicate File Remover PRO 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989733.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ BlueHarvest 7 v7.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988993.jpg" />
 </div>
 
 
@@ -408,7 +435,7 @@ Micromat Checkmate 1.1.9 (build 3382) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986155.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ Adobe Zii 2020 - Universal Patcher v5.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985961.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ Temps 1.13 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985858.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ SMARTReporter 3.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985763.jpg" />
 </div>
 
 
@@ -515,7 +542,7 @@ Living Earth - Desktop Weather & World Clock 1.24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985677.jpg" />
 </div>
 
 
@@ -541,7 +568,7 @@ Disk Diag 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985675.jpg" />
 </div>
 
 
@@ -570,7 +597,7 @@ Weather Live 1.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985565.jpg" />
 </div>
 
 
@@ -599,7 +626,7 @@ Nvidia Web Driver for 10.11.2 346.03.04f02 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984361.jpg" />
 </div>
 
 
@@ -626,7 +653,7 @@ CuteFTP Pro 3.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983195.jpg" />
 </div>
 
 
@@ -652,7 +679,7 @@ CCleaner Pro 1.11.336 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982907.jpg" />
 </div>
 
 
@@ -664,33 +691,6 @@ CCleaner - приложение для эффективной очистки и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FE7A8EB518531CCC210E0AAE3857EC9E1183155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973737   (978941) от 09.01.2016
-
-Reflector 2.4.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978941.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью приложения Reflector пользователи iPhone, iPad или iPod Touch могут использовать преимущества технологии AirPlay для трансляции фото и видео контента с экрана мобильного устройства на компьютер в режиме видеоповтора.
-Программа активирует функцию AirPlay Mirroring, что позволяет превратить ваш iДевайс в настоящий центр компьютерных развлечений. Для этого (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 января 2016Разработчик: Squirrels LLCПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E3FA4ED4410C3116E6B7063EE7D2283B5FD124
 ```
 
 https://mybot314.ru/tekegram_catalog/

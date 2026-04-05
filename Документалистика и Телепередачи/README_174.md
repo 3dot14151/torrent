@@ -1,3 +1,162 @@
+###  Публикация: 1503108   (823169) от 17.10.2021
+
+Сто к одному (17.10.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B03240E693A94943D944A3C57ADBED7E0C14395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503035   (823162) от 17.10.2021
+
+Первая передача на НТВ. Автомобильная передача (17.10.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доставщики еды на велосипедах – по тротуарам, по детям. Как найти «коробейника», если он сбил и был таков? И кто пострадавшим возместит ущерб? Свидетель ДТП: вправе ли очевидец покинуть место происшествия, не дожидаясь полиции? А также — осеннее автопутешествие по Карелии.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09D41CC895F578ED93A9E7AB1B9B2D925AD4B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503036   (823161) от 17.10.2021
+
+Чудо техники с Сергеем Малозёмовым (17.10.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телефонный спам: помогают ли современные антиспам-услуги бороться с назойливой рекламой? Как российские ученые превращают метан в еду для животных и правда ли, что добавка содержит незаменимые жирные кислоты?Чудо-товары – озонатор для устранения запаха в холодильнике и инновационное средство против ржавчины.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506181030B0656E4EFCF0A7FD522B54D3B3BE51D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503057   (823048) от 17.10.2021
+
+Электровелосипед в Доломитах / E-Biking in the Dolomites (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823048.jpg" />
+</div>
+
+
+###  Подробнее
+
+На электровелосипеде по горам.Производство: Италия, MeliЖанр: Документальный, видовойПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D8121CFCB0752FB45ABC9AB90C495538A5B2C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503053   (823042) от 17.10.2021
+
+От тьмы к свету / Dark to Light (2020) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что реально, а что такое иллюзия? Этот фильм немного более экспериментален, чем всё, что я делал до этого. Всегда оставайтесь позитивными, и пусть это видео поможет вам в моменты темноты снова выйти на свет.Производство: ГерманияЖанр: Документальный, видовойРежиссер: Джонатан БеслерПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751A2407D8C2E3DFA34FC3AF6FA0DA9E8EED615C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503029   (823039) от 17.10.2021
+
+Шоумаскгоон (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борьба за верхние места на «пьедестале» «Шоумаскгоон» накаляется с каждым разом! Участники радикально меняют образы, стараясь перещеголять соперников в новых номерах. Как они оценят друг друга на этот раз и что об их выступлениях скажет специальный гость программы — лидер группы «Ночные снайперы» Диана Арбенина?00:00:00 «Шоумаскгоон». Четвертый выпуск
+00:05:14 «Я не поняла» — Юля Паршута
+00:14:22 Fever — Вячеслав Макаров
+00:24:08 «Катастрофически» — Алиса Мон(   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкаСубтитры: ОтсутствуютПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC10EDED102F3CE64CFED3E7EA964F0B8AD87D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503041   (823035) от 17.10.2021
 
 Новые Танцы (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 10)
@@ -6,7 +165,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823035.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823034.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822998.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822948.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822923.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822918.jpg" />
 </div>
 
 
@@ -166,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822912.jpg" />
 </div>
 
 
@@ -192,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822904.jpg" />
 </div>
 
 
@@ -218,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822860.jpg" />
 </div>
 
 
@@ -244,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822823.jpg" />
 </div>
 
 
@@ -270,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822811.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822682.jpg" />
 </div>
 
 
@@ -322,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822622.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822621.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822619.jpg" />
 </div>
 
 
@@ -400,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822617.jpg" />
 </div>
 
 
@@ -426,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822604.jpg" />
 </div>
 
 
@@ -452,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822518.jpg" />
 </div>
 
 
@@ -478,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822390.jpg" />
 </div>
 
 
@@ -505,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822348.jpg" />
 </div>
 
 
@@ -516,163 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B2ABA412479F551533CC41B0DE270912DD6AF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116529   (822338) от 20.03.2017
-
-Грибная охота (1990) WEBRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая доступная на Руси из охот- сбор грибов. Занятие это не для ленивых, встать нужно ни свет ни заря, а в лесу каждому грибочку поклониться.
-Грибная охота в наших лесах начинается весной: в период цветения подснежников появляются первые грибы - сморчки и строчки.Телекомпания: Пермь-телефильмЖанр: ДокументальныйРежиссер: М. ЗаплатинПродолжительность: 00:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C918D45C2F0A29D4F34FE2D875FC5A137E97787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116560   (822335) от 20.03.2017
-
-Что? Где? Когда? (2017.03.19) SATRip (Весенняя серия: игра 1)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярнейшая командная интеллектуальная игра. В элитарном телевизионном казино игроки-знатоки зарабатывают деньги своим умом, отвечая на вопросы телезрителей. Проводятся летние и зимние игры. В эфире с 1975 года. За четверть века перед глазами телезрителей прошло более 170 игр. Сначала программа обосновалась в баре телецентра в Останкино и провела там 7 лет (с 1975 (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25441B085C1E845315B2BB8947D2A3226AF8E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116391   (822330) от 20.03.2017
-
-Холостяк (Украина) (2017.03.17) SATRip (сезон 7, выпуск 2 + пост шоу)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822330.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Холостяк» - это украинская версия популярного американского шоу «The Bachelor», успешно дебютировавшего в 2002 году. В январе текущего года состоялась премьера 14 сезона проекта, что говорит о его невероятной популярности. Непреходящий интерес вызван и тем, что жизнь участников после шоу действительно кардинально меняется к лучшему. Например, после эфира 13-го сезона (   Читать дальше...   )Телекомпания: Украина / ПрАТ "ММЦ-СТБ"Жанр: Реалити шоуЯзык озвучки: Русский (и иногда закадровые комментарии на украинском)Субтитры: ОтсутствуютПродолжительность: 03:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E32F3387978A373B594E9D4FEAE047725719E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196623   (822306) от 03.01.2018
-
-Метрополии: Сила городов / Metropolis - Die Macht der Stadte (Metropolis: The Power of Cities) (2003) DVB (Сезон 1, серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более двух тысяч лет назад в Средиземноморье возникли великие города древности - первые столицы западного мира. Здесь процветали искусство, торговля, наука. В борьбе за власть и влияние правители этих городов создавали величественные сооружения.Производство: Германия, ZDF, Arte, Christan Bauer Filmproduktion Munich, Discovery CommunicationsЖанр: Документальный, игровой, история, культура, исследованиеРежиссер: Манфред Баур, Ханнс ШулерПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 4x~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12859F669CC1839FEB685D5750196254486EE075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978037   (822257) от 09.05.2020
-
-Военная медицина на Западном фронте Великой Отечественной Войны (1942) WEBRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят на историческом материале Западного фронта. В тяжёлых боях Красной Армии в период Великой Отечественной Войны военные медики, начиная с санитаров и медсестёр, рискуя собственными жизнями, под бомбёжками и непрерывными обстрелами, проявляли высокий героизм и мужество доставляя раненых бойцов с места сражений в госпитали. Военные хирурги в тяжёлых полевых (   Читать дальше...   )Производство: СССРЖанр: Документальный, медицина, кинохроникаРежиссер: В.Н.Карин, Н.И.БогдановСубтитры: отсутствуютПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B099DA129A60464FDD7FF4F73A461DB7D1597459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888101   (822175) от 09.05.2020
-
-Штурм Берлина. В логове зверя (2015) SATRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Берлинская операция началась 16 апреля 1945 года. Ни одной армии мира никогда не приходилось брать штурмом такой огромный, сильно укрепленный город. Общая площадь Берлина составляла почти 900 квадратных километров. Чуть больше двух недель понадобилось Красной армии, чтобы разнести в щепки последние рубежи гитлеровской обороны. Тяжелее всего приходилось тем, кто штурмовал (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйРежиссер: Алексей ДенисовПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659CDC05BE0FB6A58E124BB07BC8F271EE4F0CA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

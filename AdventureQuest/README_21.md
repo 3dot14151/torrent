@@ -1,3 +1,81 @@
+###  Публикация: 1004347   (795816) от 28.04.2016
+
+1979 Revolution: Black Friday (2016) [En] (1.0.8) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795816.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1978 году в процветавшем и относительно демократичном в культурном плане Иране случилась так называемая Исламская революция, в результате которой шах Мохаммед Реза Пехлеви был свергнут, монархия упразднена, а к власти пришло мусульманское духовенство.Тип издания: LicenseРазработчик: iNK StoriesЖанр: Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972A6BB649772C23F7871149B10A36FB04D15843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416228   (795372) от 11.11.2021
+
+Neverending Nightmares (2014) [Ru/Multi] (3.3.22469) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Neverending Nightmares — это психологический хоррор, созданный на основе настоящей психологической проблемы разработчика, и её лечении. Томас просыпается в ужасе после кошмара и обнаруживает, что сон продолжается. Он начинает спускаться всё глубже в кошмар. От ужасных призраков нужно прятаться, от своих страхов — убегать. Ему придётся разобраться, какие из встреченных (   Читать дальше...   )Тип издания: LicenseРазработчик: Infinitap GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962991AB2C679BB17DFF45F641FF61AA325DAA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509022   (795305) от 11.11.2021
+
+Among Trees (2021) [En] (0.5.27) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Among Trees - это небольшая яркая игра-песочница с элементами выживания, действие которой разворачивается в красочном, изобилующем жизнью лесу. Исследуйте завораживающий мир, где жизнь играет яркими красками. От густых лесов до тёмных пещер. Ваш маленький деревянный домик расположен посреди густого леса, и его можно расширять за счёт новых комнат. Открывайте дополнительные (   Читать дальше...   )Тип издания: LicenseРазработчик: FJRD InteractiveЖанр: Песочница, ПриключенияЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFA88311C890F80F0F7C3CAD2E0E6C89595700E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011972   (795178) от 29.04.2016
 
 The Detail: Episode 1-3 (2015-2016) [En] (3.0.1) License PLAZA
@@ -6,7 +84,7 @@ The Detail: Episode 1-3 (2015-2016) [En] (3.0.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795178.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Grizzly Valley (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795155.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794680.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ The Fall of Lazarus (2017) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794656.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Slice of Sea (2021) [Ru/Multi] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794613.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ PLAY WITH ME (2018) [En/Pl] (1.20.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794524.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794514.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794347.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (5.3.2.14600335) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794293.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Motherland (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793637.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Pilot Brothers: Trilogy / Братья Пилоты: Трилогия (1997-2004
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793493.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Vesta (2018) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793492.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Paradigm / Парадигма (2017) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793026.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Subnautica (2018) [Ru/Multi] (59783) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792594.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ The Quiet Apocalypse (2021) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792560.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Shantae and the Seven Sirens (2020) [Ru/Multi] (701355) License GOG (обнов�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792298.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792289.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Sparklite (2019) [Multi] (1.6.8) License GOG (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791867.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Nerved (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791745.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ When They Arrived (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790871.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Decay: The Mare (2015) [Ru/Multi] (1.1.1) Repack Other s [Chapter 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790310.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ American Hero (2021) [En] (0.0.30) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789146.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Catherine Classic (2019) [Multi] (1.0.1151) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788852.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Catherine Classic (2019) [Multi] (1.0.1151) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86E62204E76EFC58F9ECCD5E65F32139C0FACB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511653   (788749) от 21.11.2021
-
-Grow: Song of the Evertree (2021) [Ru/Multi] (1.0.0) License FAIRLIGHT
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миры Аларии постепенно увядают. Вечное древо, на чьих бесчисленных ветвях покоилось целое множество миров, совсем завяло - от него остался лишь саженец. Никто не знает, как его вырастить. Никто, кроме вас. Вы слышите песнь Солнца, разносящуюся по небу. Вы слышите, что шепчет дождь, проливаясь на землю. Вы - последний представитель поколения алхимиков, чья задача (   Читать дальше...   )Тип издания: LicenseРазработчик: Prideful SlothЖанр: Приключения, Песочница (Сим)Язык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515046AE8474A481B46093E5BBD8AA07D6EDA75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511441   (788743) от 21.11.2021
-
-Cloudpunk (2020) [Ru/Multi] (6861751/dlc) Repack SpaceX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас зовут Рания. И сегодня ваша первая ночная смена в Клаудпанк, полулегальной службе доставки из необъятного города Нивалис. Этой ночью вы побываете везде: от Костяка до пронзающих свинцовое небо величественных шпилей. Опасность вам неведома, а быстрее вас нет никого в этом городе. В этой сюжетно-ориентированной игре вы встретите множество персонажей из разных слоев (   Читать дальше...   )Тип издания: RepackРазработчик: ION LANDSЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C530FD310C7427C7174BF95DBF68D2EE456C891B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203231   (788526) от 01.02.2018
-
-Candleman The Complete Journey (2018) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свеча- это приключенческий квест с уникальным геймплеем и сюжетной линией. Игрок исполняет роль свечи, которая может гореть только в течение 10 секунд, находить выход из ловушек и путаниц, пробираться сквозь свет и тьму.Тип издания: LicenseРазработчик: Spotlightor InteractiveЖанр: Adventure, Action, PlatformerЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695C10A57D9EA125CAB85B4485596FD8DEEA44D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

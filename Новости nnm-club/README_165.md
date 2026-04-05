@@ -1,3 +1,55 @@
+###  Публикация: 1245118   (475421) от 04.09.2018
+
+Mass Effect 2 (2010) [Ru/En] (1.2/dlc) Repack xatab [Digital Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через два года после того, как командор Шепард отразил вторжение Пожинателей, у человечества появился новый враг. На окраинах обитаемого космоса кто-то постепенно уничтожает колонии людей. Чтобы остановить надвигающуюся угрозу, Шепарду предстоит сотрудничать с сетью Цербер - безжалостной организацией, провозглашающей выживание человечества любой ценой.Тип издания: RepackРазработчик: BioWareЖанр: Adventure (Space), RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565B3BBB3D4C9BC31CFE69ACFBF9A525EE246F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547267   (475406) от 14.09.2012
+
+Trend Micro Titanium Maximum Security 2013 v6.0 rus
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trend Micro Titanium Maximum Security — комплексное, простое в использовании решение, которое защитит вас и вашу семью при выполнении любых действий в Интернете, таких как работа с электронной почтой, общение, банковские операции, просмотр веб-сайтов, покупки и т. д. В нем предусмотрен дружелюбный интерфейс, удобные окна и понятные отчеты.Название программы: Trend Micro Titanium Maximum Security 2013Язык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160163   (475393) от 24.08.2017
 
 Kaspersky Free Antivirus 17.0.0.611.0.1532.0 (d) Repack by LcHNextGen [Ru]
@@ -6,7 +58,7 @@ Kaspersky Free Antivirus 17.0.0.611.0.1532.0 (d) Repack by LcHNextGen [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475393.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474842.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474785.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Microsoft Office for Mac Standard 2019 16.28.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474783.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Microsoft Office 2016 Professional Plus Install v3.0 by Ratiborus [Multi/Ru] (о
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474726.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Video Repair Utility 1.9.0.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474721.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_474630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_474630.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ IObit Driver Booster Pro 4.0.3.322 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474499.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.2/dlc) License CODEX [Field Marshal Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474473.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ Fallout Tactics: Brotherhood of Steel (2001) [Ru/Multi] (1.27) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474471.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Enter the Gungeon (2016) [Ru/Multi] (1.0.10/dlc) License GOG [Collector`s Editio
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474469.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.11.006) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474373.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Factorio (2020) [Ru/Multi] (1.1.61) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473870.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473553.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.11) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473526.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ DAEMON Tools Lite Full Pack 10.6.0.0283 RePack by KpoJIuK (25.08.2017) [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473390.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_472957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_472957.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (214 094/dlc) License HOODLUM
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472869.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472859.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472680.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ FIFA 16 (2015) [Xbox360] [RegionFree] [Freeboot] [License] [Ru/Multi] [Russound]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472593.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472589.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472588.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_471264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_471264.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160728   (471120) от 26.08.2017
-
-Тетрадь смерти / Death Note (2017) WEBRip [H.264/720p-LQ] [MVO] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Способный студент Лайт находит загадочную тетрадь смерти, которая может убить любого, чье имя в нее вписать. Парень решает начать миссию по очистке улиц от преступников. Вскоре студент-линчеватель обнаруживает, что его преследует известный профайлер ФБР, скрывающийся под псевдонимом L.Производство: США, Lin Pictures, Vertigo EntertainmentЖанр: Ужасы, Фэнтези, Боевик, ТриллерРежиссер: Адам ВингардАктеры: Маргарет Куэлли, Лейкит Стэнфилд, Уиллем Дефо, Нат Вулф, Шей Уигэм, Маси Ока, Майкл Шамус Уайлз, Пол МакДжиллион, Олена Медвид, Лия ЛамПеревод: Многоголосый закадровый (MUZOBOZ)Субтитры: отсутствуютПродолжительность: 01:41:26Реклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E826170C38D48901F02D20DF5741BD2045A00F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547729   (471081) от 16.09.2012
-
-Black Mesa [Ru/En/Multi7] (Lossless RePack/1.0) 2012 | =Чувак=
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Mesa («Чёрная Меза», ранее известная как Black Mesa: Source) — ремейк культовой компьютерной игры Half-Life 1998 года на движке Source. Представляет собой модификацию для игры Half-Life 2.
-Разработчики намерены воссоздать оригинальную вселенную Half-Life, используя расширенные возможности движка Source, переработать все текстуры, модели и уровни, создать реалистичный геймплей. В игре не будет нового оружия, однако они решили добавить к защитному костюму H.E.V функцию «спринт». Также создатели модификации заявили, что собираются сделать полностью синхронную сюжетную линию, лишь несколько изменив её, не нарушая баланса. Также в игру планируют ввести достижения.(   Читать дальше...   )Тип издания: Lossless RepackРазработчик: LeakFreeЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Итальянский, Испанский, Норвежский, Немецкий, Финский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C648E793C36CC8B71A584A7F0BA67B79A7302C
 ```
 
 https://mybot314.ru/tekegram_catalog/

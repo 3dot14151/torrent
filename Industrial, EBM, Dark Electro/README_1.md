@@ -6,7 +6,7 @@ Contagion - Omnibus (2011) [MP3|320 Kbps] <EBM, Industrial, Rock>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350175.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Avto-Graf - Этот мир... (2022) [MP3|320 Kbps] <Electronic>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332002.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Contagion - Infectant (2000) [MP3|320 кб/с]<EBM, Industrial, Rock>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330602.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ludovico Technique - 4 Albums (2012-2022) [MP3|320 Kbps] <Industrial Rock, Synth
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328971.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ BlutEngel - Damokles (2019) [MP3|320 Kbps] <Darkwave, Synth-pop>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291322.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Shamall - Schizophrenia (2019) 2CD [MP3|320 Kbps] <Electronic, New Wave, Industr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291109.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cliff Lin - Collection: 7 Releases (2007-2018) [MP3|320 Kbps] <Post-Industrial, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278957.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Forthcoming Fire - 10 albums (1991-2010) [mp3|160-320 kbps] <Darkwave, Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249156.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Dawn Of Ashes + Kristof Bathory: solo album  + URILIA: side project - Discograph
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242262.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ SynthAttack + Basscalate - Discography 17 Releases (2015-2022) [MP3|320 Kbps] <H
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242181.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Freakangel + Matthew Creed (Side Project) - Discography 20 Releases (2010-2021) 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241549.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Electrozombies Records • Compilations Collection - 14 Releases (2016-2022
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241336.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Blush Response - Neuroscape (2023) [MP3|320 Kbps] <Industrial, Techno>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239882.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Cybermode Beats - 3 Albums (2023) [MP3|320 Kbps] <Cyberpunk, Dark Electro, Dark 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239759.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Degenerated Sequences - Schism (2023) [MP3|320 Kbps] <Dark Electro, EBM, Industr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236850.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Jessi Frey - Warrior (2022) [MP3|320 Kbps] <Industrial Rock, Synthpop, Electroni
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210719.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Sodomy Down The Cross - 2 Albums (2021-2022) [MP3|320 Kbps] <Dark electro>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189735.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ FiXT & VA - FiXT Radium: Planet-X (2023) [MP3|320 Kbps] <Electro-Metal, Industri
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189292.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fusspils 11 - Halbwegs Verpeilt (2022) [MP3|320 Kbps] <EBM, Dark Electro, Future
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183776.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Dav Dralleon - 2 Albums (2021-2022) [MP3|320 Kbps] <Darksynth, Industrial Metal,
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179279.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Laibach - Nova Akropola (1986) Expanded Edition, Remastered & Redesigned, 2023, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167029.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Alien Vampires - Discography 16 Releases (2004-2020) [MP3|320 Kbps] <Harsh EBM, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166583.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Hanzel Und Gretyl + Side Projects (Cycle Sluts From Hell, KyzrWolf) - 13 Release
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166229.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ SITD / S.I.T.D. / [:SITD:] / Shadows In The Dark - Discography 16 Releases (2002
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166164.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Sopor Aeternus & The Ensemble Of Shadows - ALONE AT SAM’s - An Evening with...
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165162.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157995.jpg" />
 </div>
 
 

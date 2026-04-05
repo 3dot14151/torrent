@@ -1,3 +1,55 @@
+###  Публикация: 1144819   (625643) от 23.06.2017
+
+Сэмми, необычный тюлень / Sammy, the Way-Out Seal (1962) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диснеевский фильм о двух юных братьях, которые тайно привезли домой после своих летних каникул тюленя и пытаются скрыть это от мамы и папы. Но разоблачение происходит быстро, поскольку выходки Сэмми нарушили покой тихого городка Гейтсвилл и его ничего не подозревающих жителей.Производство: США (Walt Disney Productions)Жанр: Семейный, КомедияРежиссер: Норман ТокарьАктеры: Джек Карсон, Роберт Калп, Патриция Барри, Элизабет Фрэйзер, Майкл МакГриви, Билл Мьюми, Энн Джиллиэн, Мэри МитчеллПеревод: Одноголосый закадровый (Семен Ващенко)Субтитры: Русские (внешние)Продолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC23DB7A513D211A1E6873D02C32539152625F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294997   (623861) от 10.04.2019
+
+Принцесса пустыни / Oyqiz ertagi (2016) WEBRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о единственной дочери царя страны Саранг – Ойкиз, которую сыграла актриса Юлдуз Раджабова. По сюжету, девочка с детства желает стать хорошим воином, чтобы разыскать своего друга Жонбоза (Йигитали Мамажонов), который без вести пропал в детстве, и освободить свою страну от людей, хитростью захвативших власть. Спустя годы друзья встречаются и начинают (   Читать дальше...   )Производство: Узбекистан / УзбекфильмЖанр: Сказка, фэнтезиРежиссер: Акбар БектурдиевАктеры: Юлдуз Раджабова, Йигитали Мамаджанов, Маруф Атаджонов, Хайрулла Сагдиев, Дильбар Икрамова, Феруза Сабитова, Исак ТураевЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA892084EA6B038737EB3F0ABA119CBB52C3A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295435   (620632) от 12.04.2019
 
 Волшебная шапочка / Sehrli qolpoqcha (2012) WEBRip
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620632.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613160.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612391.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608476.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604624.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604001.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600008.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599351.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596288.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594429.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594380.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593963.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593264.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593227.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591205.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586760.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585983.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585982.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583849.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581751.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579239.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576149.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571588.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571425.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B344DC731ED8B6769A32D5D7012C1BBA8091B828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556213   (561382) от 08.06.2022
-
-Парящий тигр / The Tiger Rising (2022) HDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды 12-летний Роб Хортон, гуляя по лесу, набредает на железную клетку с бенгальским тигром. Тигр становится самой большой тайной мальчика. И только одному человеку на свете, новенькой однокласснице Сикстине, он открывает свой секрет. Дети решают выпустить зверя из клетки.Производство: США / GG Filmz, Bay Point Media, Streamline Global GroupЖанр: СемейныйРежиссер: Рэй ДжиаратанаАктеры: Кристиан Конвери, Дэннис Куэйд, Кэтрин МакФи, Куин Латифа, Сэм Трэммелл, Мадален Миллс, Анджела Джиаратана, Дуглас М. Гриффин, Фэйт Диллон, Села Кимбро Джонс и др.Перевод: Дублированный (iTunes)Субтитры: английские, украинские (вшитые отключаемые)Продолжительность: 01:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499555ABFC5D69F694A23E64EB0D02CCD85B1A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814114   (560886) от 19.08.2014
-
-Белль и Себастьян / Belle et Sebastien (2013) HDRip [H.264] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560886.jpg" />
-</div>
-
-
-###  Подробнее
-
-По серии повестей «Белль и Себастьян» французской писательницы и актрисы Сесиль Обри.
-Там, где заснеженные горы поднимаются почти до неба, а окружающая природа кажется девственной, разворачивается трогательная история неразлучной дружбы между дикой собакой и маленьким мальчиком – история Белль и Себастьяна. Небольшая идиллическая горная деревушка во французских Альпах, (   Читать дальше...   )Производство: Франция / Centre National de la Cinematographie (CNC)Жанр: приключения, семейныйРежиссер: Николя ВаньеАктеры: Феликс Боссюэ, Чеки Карио, Марго Шателье, Дмитрий Сторож, Андреас Питшманн, Юрбен Канселье, Мехди Эль Глауи, Ян Оливер Шредер, Том ЗоммерлаттеПеревод: Одноголосый любительский (Компания АнВад)Субтитры: РусскиеПродолжительность: 01:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD908820774F4E3D8B2F69D6D38A1D289739D783
 ```
 
 https://mybot314.ru/tekegram_catalog/

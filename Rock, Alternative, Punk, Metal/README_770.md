@@ -1,3 +1,32 @@
+###  Публикация: 1186144   (287607) от 24.11.2017
+
+Нуки (Слот) - Исключения (2017) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287607.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ау
+2. Before I Die
+3. Исключения
+4. Вверх(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5DCADF314EC29353340957711D47E7DFDDB91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186204   (287605) от 24.11.2017
 
 Александр Ф. Скляр и Ва-Банкъ - Оставайтесь, друзья, моряками! Песни Владимира Высоцкого (2017) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287605.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287586.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Cradle of Filth - Cruelty And The Beast: Re-Mistressed (Remixed & Remastered) (2
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287564.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Catharsis - Зеркало Судьбы (2019) [MP3|320 Kbps] <Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287561.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Evanescence - Fallen (2003) Japanese Edition [FLAC|Lossless]<Gothic Metal, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287495.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Danzig - Skeletons (2015) Limited Edition [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287444.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287437.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287400.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ Mechina - 8 Альбомов, 1 EP, 6 Синглов (2005-2019) [MP3|320 кб/�
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287361.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287355.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ King Gizzard and the Lizard Wizard - Paper Mache Dream Balloon (2015) [OGG|493-5
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287142.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [MP3|320 K
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287132.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Elettra Storm - Evertale (2025) [FLAC|Lossless|image + .cue] <Melodic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_287036.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Batushka - Litourgiya (2015) [FLAC|Lossless|WEB-DL]<Black Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286969.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ Jeff Lynne's ELO - From Out Of Nowhere (2019) [FLAC|24/96|Lossless|WEB-DL|tracks
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286921.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Scorpions - Best (1999) [FLAC|tracks+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286893.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Europe - Super Hits (1998) [FLAC|tracks+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286892.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ The Beatles - 33 Albums, 3 Singles, 6 Box-Sets (1963-2013) Complete CD Discograp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_286767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_286767.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ Antiquus Scriptum - Abi In Malam Pestem / In Pulverem Reverteris (2002) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286545.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ Kong - Push Comes to Shove (1995) [FLAC|Lossless|image + .cue] <Instrumental Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286543.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ Gordian Knot - Gordian Knot (1998) Japan [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286540.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Lambert & Dekker - We Share Phenomena (Instrumental Version) (2018) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286464.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ Skyharbor - Sunshine Dust (2018) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286462.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ Snakes In Paradise - Step Into The Light (2018) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286459.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Neil Young - Peace Trail (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286451.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ Neil Young - Peace Trail (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27C4F2610CB44A88551CB12F6C4929B415C2DDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263573   (286450) от 20.11.2018
-
-Anubis Gate - Covered In Black (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychotopia (6:41)
-02. The New Delhi Assassination (3:16)
-03. The Combat (5:43)
-04. Too Much Time (7:35)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE5A087DA63E7518A48E6EB75F9BB693A8F2CC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

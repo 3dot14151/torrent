@@ -1,81 +1,3 @@
-###  Публикация: 1219772   (709629) от 16.04.2018
-
-Выстрел в пустоту / Shot Caller (2017) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роковая случайность, смертельная трагедия, и вся его жизнь летит под откос… Оказавшись за решеткой, он должен научиться жить по новым законам. Ты должен стать борцом, авторитетом или окажешься жертвой. Какую цену придется заплатить, чтобы выжить в этом аду, из которого нет дороги назад?..Производство: США / VVS Films, Sierra/Affinity, Bold Films, Participant MediaЖанр: Триллер, драма, криминалРежиссер: Рик Роман ВоАктеры: Николай Костер-Валдау, Джон Бернтал, Холт МакКэллани, Лэйк Белл, Бенджамин Брэтт, Джесси Шрэм, Джеффри Донован, Омари Хардвик, Макс Гринфилд, Эмори КоэнПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644DBF1C82FE106EE49C05CA2F177BB36E9B492F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219915   (709495) от 16.04.2018
-
-Коматозники / Flatliners (2017) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро студентов-медиков, одержимых желанием узнать, что происходит с человеком после смерти, решаются на рискованный эксперимент: на время они останавливают друг другу сердце, чтобы погрузиться в состояние клинической смерти и на собственном опыте понять, что происходит с человеком по ту сторону. Но они забывают, что, переступив черту, нужно быть готовым к последствиям.Производство: США, Канада / Sony / Columbia, Cross Creek Pictures, Laurence Mark Productions, Furthur Films, Safran Company, Screen GemsЖанр: Фантастика, триллер, драмаРежиссер: Нильс Арден ОплевАктеры: Эллен Пейдж, Диего Луна, Нина Добрев, Джеймс Нортон, Кирси Клемонс, Кифер Сазерленд, Мэдисон Бриджес, Джейкоб Соли, Анна Арден Оплев, Мигель ЭнтониПеревод: Дублированный (лицензия)Субтитры: Русские, английские, арабские, датские, голландские, эстонские, финские, французские, итальянские, латышские, литовские, норвежские, шведские, украинскиеПродолжительность: 01:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361D784D885D01565CB6E255F7895817B3A6C15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219909   (709488) от 16.04.2018
-
-Несчастный случай / Accident Man (2018) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майк Фэллон известен тем, что превращает все свои убийства в несчастный случай. Но его отношение к делу полностью меняется, когда умирает его бывшая девушка.Производство: Великобритания / Six Demon Films, Kritzer Levine Wilkins Griffin EntertainmentЖанр: Боевик, триллер, криминалРежиссер: Джесси ДжонсонАктеры: Скотт Эдкинс, Рэй Стивенсон, Эшли Грин, Дэвид Пэймер, Майкл Джей Уайт, Рэй Парк, Эми Джонстон, Перри Бенсон, Ник Моран, Росс О'ХеннессиПеревод: Профессиональный, многоголосый закадровый (лицензия)Субтитры: Русские, английские, арабские, болгарские, хорватские, чешские, датские, эстонские, финские, греческие, иврит, венгерские, исландские, итальянские, латышские, литовские, норвежские, польские, португальские, румынские, сербские, словацкие, словенские, испанские, шведские, турецкиеПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F33FEF8383A06DFC795F41505D87F250C115394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025330   (707485) от 13.06.2016
 
 Омерзительная восьмерка / The Hateful Eight (2015) DVD9
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707485.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703129.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702779.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701509.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700606.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699714.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699487.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696225.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693959.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693785.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693662.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693652.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693526.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693522.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693513.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693390.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693380.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692741.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691027.jpg" />
 </div>
 
 
@@ -581,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690097.jpg" />
 </div>
 
 
@@ -607,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689619.jpg" />
 </div>
 
 
@@ -633,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689184.jpg" />
 </div>
 
 
@@ -659,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687899.jpg" />
 </div>
 
 
@@ -670,6 +592,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F60A9463FCD3C5F216BC396C061063799332081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506485   (687279) от 06.06.2012
+
+Учитель на замену / Detachment (2011) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687279.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Генри Бартса настоящий талант ладить с учениками. Чтобы избежать каких-либо привязанностей к подопечным, он решил нигде не задерживаться на длительное время. Когда он прибывает на новое место в государственную школу, где учителя абсолютно безразличны к судьбе учеников, то быстро становится образцом для подражания и самым популярным педагогом.Жанр: ДрамаРежиссер: Тони КэйПродюсер: Остин Старк, Бинго Губельман, Бенжи КонАктеры: Эдриан Броуди, Кристина Хендрикс, Марша Гэй Харден, Джеймс Каан, Люси Лью, Блайт Даннер, Тим Блейк Нельсон, Уильям Л. Питерсен, Брайан Крэнстон, Сами ГэйлПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 01:33:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334702   (686986) от 10.05.2011
+
+Остров проклятых / Shutter Island (2010) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_686986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два американских судебных пристава отправляются на один из островов в штате Массачусетс, чтобы расследовать исчезновение пациентки клиники для умалишенных преступников. При проведении расследования им придется столкнуться с паутиной лжи, обрушившимся ураганом и смертельным бунтом обитателей клиники, которые бросают их на острове, как в ловушке.Производство: СШАЖанр: Драма, Триллер, ДетективРежиссер: Мартин СкорсезеАктеры: Леонардо ДиКаприо, Марк Руффало, Бен Кингсли, Макс фон Сюдов, Мишель Уильямс, Эмили Мортимер, Патриция Кларксон, Джеки Эрл Хейли, Тед Левайн, Джон Кэрролл Линч, Элиас КотеасПеревод: ДублированныйСубтитры: нетПродолжительность: 02:12:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334813   (686982) от 10.05.2011
+
+Война миров / War of the Worlds (2005) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_686982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не поверил бы в начале 21 столетия, что за всем происходящим на Земле зорко и внимательно следят существа более развитые, чем человек; что в то время, как люди занимались своими делами, их исследовали и изучали.
+С бесконечным самодовольством сновали люди по всему земному шару, занятые своими делишками, уверенные в своей власти над материей. А между тем через (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Триллер, ДрамаРежиссер: Стивен СпилбергАктеры: Том Круз, Дакота Фаннинг, Миранда Отто, Джастин Чэтвин, Тим Роббинс, Рик Гонсалес, Йул Васкес, Ленни Бенито, Лиза Энн Уолтер, Энн РобинПеревод: Дублированный, Одноголосый закадровыйСубтитры: Русские, Английские, ФранцузкиеПродолжительность: 01:56:27
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

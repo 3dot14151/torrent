@@ -1,3 +1,61 @@
+###  Публикация: 1026419   (703967) от 15.06.2016
+
+BusinessTasks - Tasks, Notes & Todos Manager 1.0.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703967.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusinessTasks - приложение для легкого управления задачами.
+BusinessTasks предоставляет вам интуитивно понятный интерфейс, из которого пользователи могут добавлять задачи или Todos по одному для любого деня. Будьте в курсе, что вы должны выполнить в течение дня.
+
+Задачи и Todos могут быть сохранены в различные категории и подкатегории. Создайте свои предпочтительные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 июня 2016Разработчик: iLifeTouchПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D477C2723FFBF2BF3C1404E5DEA106460DF19E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402211   (703935) от 13.08.2020
+
+IconKit 10.1.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для создания (генерации) иконок для Mac OSX. С помощью IconKit вы легко сможете создавать иконки разных размеров и для разных устройств - это элементарно, просто перетащите изображение размером 1024х1024 на рабочее поле программы.
+
+Основные возможности:
+• Интуитивный интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15.12.2018Разработчик: Mojtaba KomeiliПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675F91F6962E4994069E8DA43585CECBC14BDCF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026359   (703841) от 15.06.2016
 
 Sketches Pro 1.3.1 [Multi/Ru]
@@ -6,7 +64,7 @@ Sketches Pro 1.3.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703841.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Elimisoft PDF Creator 1.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703473.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ Querious 3 v3.2 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703342.jpg" />
 </div>
 
 
@@ -89,7 +147,7 @@ A-Zippr Pro: Better Unarchiver 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703340.jpg" />
 </div>
 
 
@@ -115,7 +173,7 @@ Wondershare Video Converter Ultimate 10.3.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702959.jpg" />
 </div>
 
 
@@ -141,7 +199,7 @@ Recordam 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702925.jpg" />
 </div>
 
 
@@ -168,7 +226,7 @@ picatext - OCR made simple 2.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702821.jpg" />
 </div>
 
 
@@ -197,7 +255,7 @@ Celemony Melodyne Studio 5 v5.0.2.003 STANDALONE, VST, VST3, DPM, AU [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701409.jpg" />
 </div>
 
 
@@ -223,7 +281,7 @@ Battery Indicator for Mac 2.12.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701280.jpg" />
 </div>
 
 
@@ -249,7 +307,7 @@ iZotope - RX 9 Audio Editor Advanced v9.3.0 STANDALONE, VST, VST3, AAX [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700993.jpg" />
 </div>
 
 
@@ -276,7 +334,7 @@ FileBot 4.9.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700888.jpg" />
 </div>
 
 
@@ -303,7 +361,7 @@ Pikka - Color Picker 1.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700773.jpg" />
 </div>
 
 
@@ -332,7 +390,7 @@ Vipor Plus CRM - All in One Calendar and Contacts 2.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700704.jpg" />
 </div>
 
 
@@ -359,7 +417,7 @@ PhoneExpander 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700084.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ oneSafe 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698233.jpg" />
 </div>
 
 
@@ -414,7 +472,7 @@ Memory Clean 2 v1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698114.jpg" />
 </div>
 
 
@@ -443,7 +501,7 @@ Mellel 4 v4.2.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698029.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Sparkle 2.0.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697933.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Cocktail Monterey Edition 15.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697665.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ InternetSpeedTest 3.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697652.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ RAR Extractor Expert Pro 2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697068.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ CARROT Weather - Talking Forecast Robot 1.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696863.jpg" />
 </div>
 
 
@@ -605,7 +663,7 @@ Home Design 3D 4.1.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696504.jpg" />
 </div>
 
 
@@ -631,7 +689,7 @@ Instastack for Instagram 3.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696409.jpg" />
 </div>
 
 
@@ -645,59 +703,6 @@ InstaStack это новый инструмент, чтобы помочь ва�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF3D9B2B0A290BDE1673F1D1A151BDCD52294248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288537   (695663) от 11.03.2019
-
-SPlayerX 4.1.2 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695663.jpg" />
-</div>
-
-
-###  Подробнее
-
-SPlayerX - легкий, с отличной производительностью, видео плеер, который способен воспроизводить практически все виды популярных мультимедийных файлов, включая - mpg, mpeg, mpeg 2, vob, dat, mp4, m4v, ts, rm, rmvb, wmv, asf, mkv, avi, 3gp, 3g2, flv, mov, h264/x264, h265/x265/HEVC 1080p/720p HD video и др. Помимо всех типичных функций, таких как качества видео - тюнер (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2019Разработчик: Sagittarius Technology Co. LtdПоддерживаемая ОС: macOS 10.10 или вышееЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292FB25E10433A42E39E7B8E65DF2030D5793118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125094   (695041) от 12.05.2017
-
-Claquette - Animated Screenshots 1.5.6 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695041.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Есть много решений для записи экрана вашего Mac, но Claquette выделяется" Macworld, Mac Gems Review
-Создавайте великолепные видео уроки или видеоролики. Используйте короткие видео, чтобы рекламировать и продавать свои продукты или создавать анимированные GIF-файлы для продвижения вашего блога. Анимированные GIF также отлично подходят для разработчиков (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 мая 2017Разработчик: Thomas ZoechlingПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7083F7E26EE3F8F505208BEF954A9A3A1FDCF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

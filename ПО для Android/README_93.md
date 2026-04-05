@@ -1,3 +1,108 @@
+###  Публикация: 1672490   (168709) от 28.10.2023
+
+Snap VPN: Super Fast VPN Proxy 4.7.0.1 Mod by Pie Mods [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snap VPN - супер быстрый, безопасный и неограниченный бесплатный VPN-прокси для офиса, дома, школы или заграничных путешествий, был одобрен и установлен более чем 50 000 000 пользователей системы андроид.
+Snap VPN поможет Вам получить доступ к потоковому видео, мобильным играм, социальным сетям, заблокированным игрокам, приложениям или веб-сайтам. В то же время, (   Читать дальше...   )Тип издания: PremiumРазработчик: AUTUMN BREEZE PTE. LIMITEDПоддерживаемая ОС: Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5BA11F262C4B653109BB65F17D0411B1685F06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672797   (168000) от 29.10.2023
+
+Node Video - Pro Video Editor 6.8.4 Mod by Alien (ToonXTech) [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Node Video - один из самых мощных видеоредакторов для мобильных устройств. Используя множество революционных функций, вы можете создавать невероятные эффекты, которые вы даже не могли себе вообразить! Профессиональный видеоредактор Node Video - это аналог Adobe After Effects, с богатыми возможностями для композитинга, покраски материала, Motion-дизайна.Тип издания: ProРелиз состоялся: 29.10.2023Разработчик: Shallway StudioПоддерживаемая ОС: Android 7.0+ (Только для ARM64)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB586C1E0A51CD616E0CC06CFE438F31C4E781B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672697   (167959) от 29.10.2023
+
+PDF Extra: сканер и редактор 10.6.2171 Lite-Mod by Number one' [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167959.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Extra - универсальное приложение, что обеспечит пользователей всеми необходимыми функциями, что могут им пригодится при работе с PDF файлами. От начала до финального результата. Создание документа, сканирование и добавление в проект, редактирование, разделение, совмещение, отметки о внешней редактуре, пересылка адресатам, отправка на печать, а так же всё прочее (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 12.10.2023Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B3BED426F22EDFC2FA2F36A52C5155C335593B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672700   (167892) от 29.10.2023
+
+Dynamic Island - dynamicSpot 1.76 (200104) Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Island - dynamicSpot - приложение, что предоставляет пользователям возможность установить на рабочий стол полностью функциональный, так называемый "Динамический остров". Проект практически полностью копирует черты оригинального продукта с iOS. Так что фанаты будут очень довольны подобной возможностью. В их распоряжении не только особенности этой (   Читать дальше...   )Тип издания: ProРелиз состоялся: 10.10.2023Разработчик: JawomoПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54CB997E8012EF68DB9417027D166771B28DE08E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672696   (167861) от 29.10.2023
 
 PDF Extra: сканер и редактор 10.7.2189 Mod by Balatan [Ru/Multi]
@@ -6,7 +111,7 @@ PDF Extra: сканер и редактор 10.7.2189 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167861.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ CamScanner 6.50.0.2309270000 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167764.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ CCleaner Pro: ПО для очистки 23.21.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167667.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Cozy Magnifier & Microscope Plus v6.3.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166852.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ HappyMod 3.0.5c Mod by Igorek72rus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166734.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ Sectograph Pro v5.21_build_175_Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166609.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Birdays – Дни рождения 1.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166576.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166507.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ Vivaldi for Android 6.2.3110.143 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166097.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ Aimp v4.02.1368 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166055.jpg" />
 </div>
 
 
@@ -275,7 +380,7 @@ Evernote 8.13.3 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165686.jpg" />
 </div>
 
 
@@ -302,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165551.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ Screenshot touch v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165238.jpg" />
 </div>
 
 
@@ -356,7 +461,7 @@ Sticker Maker v0.0.3-20 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165178.jpg" />
 </div>
 
 
@@ -385,7 +490,7 @@ CloudBeats: Cloud Music Player 1.8.3 PRO [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165090.jpg" />
 </div>
 
 
@@ -413,7 +518,7 @@ CookPad 2.228.1.0 Premium Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165053.jpg" />
 </div>
 
 
@@ -442,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164905.jpg" />
 </div>
 
 
@@ -469,7 +574,7 @@ Kaspersky Internet Security Premium v11.59.4.5119 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164731.jpg" />
 </div>
 
 
@@ -495,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164639.jpg" />
 </div>
 
 
@@ -524,7 +629,7 @@ KeePassDX Pro v3.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164297.jpg" />
 </div>
 
 
@@ -550,7 +655,7 @@ Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164282.jpg" />
 </div>
 
 
@@ -576,7 +681,7 @@ CPU-Z (Mobile) v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164269.jpg" />
 </div>
 
 
@@ -587,112 +692,6 @@ CPU-Z для Android от разработчика CPUID. Отличное пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:069A3E79D2D0642D715227BCA0A99F4AB6635A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516731   (164186) от 13.12.2021
-
-Jotr: Quickly Draw & Sketch 4.4.4 Pro [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164186.jpg" />
-</div>
-
-
-###  Подробнее
-
-На случай, когда нужно что-то быстро и просто нарисовать, черкнуть телефон, объяснить, и пр., а под рукой нет ни бумаги ни ручки.
-Просто лёгкое приложение. Как один из сценариев применения - цепляется (утилитами) на хард-кнопки устройства и через секунду в руках разблокированный экран для рисования пальцем, стилусом и пр.
-Элементарный функционал, ничего лишнего, (   Читать дальше...   )Разработчик: Västra Varvsgatan 5D (Sweden)Поддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C587D122C6279256E7CB7FE0B9E0B0A85DF926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673727   (164157) от 02.11.2023
-
-Psiphon Pro 386 Mod by DEXUNPACKER [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Тип издания: Pro (Subscribed)Релиз состоялся: 09.10.2023Разработчик: Psiphon Inc.Поддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4ED2D3FECDF1B981CEE7EBEBB2BE271FCB1AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673725   (164088) от 02.11.2023
-
-Revo Uninstaller Mobile 3.2.380G Mod by Timozhai [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Revo Uninstaller Mobile - полезное приложение для любого пользователя у которой на гаджете установлено огромное количество программ. Проект помогает не только вывести их в одной ленте и навести порядок, в зависимости от ситуации и задач, но и получить о них полную и исчерпывающую информацию. Так же, например, можно указывать какие из них будут активны для того или (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22.10.2023Разработчик: VS Revo Group Ltd.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DAC67852836AB4C7CCDD444AA5FE9054CAA84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673699   (164067) от 02.11.2023
-
-Root Explorer / Root Проводник 4.12.3 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Root Explorer или Root Проводник - это отличное приложение, что понравится всем пользователям получившим root-права и ищущих оптимальный для себя файловый менеджер. Не только для того, чтобы выполнять стандартные операции по перемещению и копированию, но и взаимодействию с данными, что обычно скрыты от глаз владельцев гаджетов. Полноценный спектр действий по работе (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 30.10.2023Разработчик: Speed SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5C73CA127F0318654DEA08B48F811F2DBD6F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

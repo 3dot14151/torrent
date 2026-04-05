@@ -6,7 +6,7 @@ Adobe Photoshop for Mac 2022 v23.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241924.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.10.0.1782 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241918.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Integrity Pro 12.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241914.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Deckset 2.0.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241913.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Instant Translate – translator, dictionary, voice 1.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241910.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Trickster 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241906.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ PCalc 4.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241905.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Scrutiny 12.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241904.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ RAW Power 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241901.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Grids for Instagram 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241893.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Compressor 4.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241891.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ CheckBook Pro 2.7.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241855.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Translate Tab 2.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241843.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Motion 5.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241834.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ TextMate 2 v2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241833.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Password Repository 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241828.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Donemax Data Recovery 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241818.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Rogue Amoeba Farrago 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241816.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VideoProc (former MacX Video Converter Pro) 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241805.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Viper FTP 6.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241800.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ SQLPro for SQLite 2022.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241799.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Cascadea 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241791.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ RAR Extractor  - unzi‪p‬ 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241780.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ SQLPro Studio 2023.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241777.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ EverWeb (Standalone) 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241727.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Sublime Merge Dev build 2009 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241701.jpg" />
 </div>
 
 

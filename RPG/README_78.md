@@ -1,3 +1,55 @@
+###  Публикация: 1801109   (15232) от 08.06.2025
+
+Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack seleZen [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lies Of P была вдохновлена знаменитой историей о Пиноккио, но демонстрирует более жестокую и мрачную версию сказки. Чтобы стать человеком недостаточно доброты и любви, ведь людская сущность обладает и кровожадными чертами, где каждый готов бороться за власть или место под солнцем любыми способами. Многое предстоит построить на лжи, главное не запутаться в ней, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: NEOWIZЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD9F1175B9C959ACD9B6D9FE1F023AE409F37C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701340   (15216) от 09.06.2025
+
+Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack FitGirl [Overture Bundle]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lies Of P была вдохновлена знаменитой историей о Пиноккио, но демонстрирует более жестокую и мрачную версию сказки. Чтобы стать человеком недостаточно доброты и любви, ведь людская сущность обладает и кровожадными чертами, где каждый готов бороться за власть или место под солнцем любыми способами. Многое предстоит построить на лжи, главное не запутаться в ней, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: NEOWIZЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33554350970772CE8DE6849C87FC3D14BFF25EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801488   (15020) от 11.06.2025
 
 Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Master Crafted Edition]
@@ -6,7 +58,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15020.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57069/dlc) Repack seleZen [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15003.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Book of Aaru (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14889.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14809.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fort
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14542.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14491.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14471.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Prison Simulator (2021) [Ru/Multi] (1.4.3.18/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14322.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Bard's Tale IV (4): Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Licen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14276.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11166) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14074.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Heads Will Roll: Reforged (2023) [Ru/En] (2.07b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13960.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Cryptmaster (2024) [Multi] (1.112) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13935.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Empire of Sin (2020) [Ru/Multi] (1.08.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13930.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.0f/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13921.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13861.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Stolen Realm (2021) [Ru/Multi] (1.2.7/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13837.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13798.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13796.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Yao-Guai Hunter (2023) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13770.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13765.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13764.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Svarog's Dream (2023) [En] (7.0.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13747.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Fallout 3 (2009) [Ru] (1.7.0.4/dlc) Repack EXROW [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13728.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13724.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21851684A33D1467F231F5D57A04E2739CF20DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803613   (13656) от 24.06.2025
-
-Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13656.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпоху мифов и магии амбициозные волшебники со всего мира собрались в Парящих землях, дабы пройти Легендарное испытание. Многие попытаются. У большинства не получится. Лишь тот, кто полностью освоил хаотичные, переменчивые стихии арканы, станет Легендарным волшебником!Тип издания: RepackРазработчик: Dead MageЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4134586327F5294AEAB77A54282FD3D3F5D9595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803612   (13615) от 24.06.2025
-
-Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13615.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпоху мифов и магии амбициозные волшебники со всего мира собрались в Парящих землях, дабы пройти Легендарное испытание. Многие попытаются. У большинства не получится. Лишь тот, кто полностью освоил хаотичные, переменчивые стихии арканы, станет Легендарным волшебником!Тип издания: RepackРазработчик: Dead MageЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E79A6A09E6C76A23902F09E77207E0DBD7BF104
 ```
 
 https://mybot314.ru/tekegram_catalog/

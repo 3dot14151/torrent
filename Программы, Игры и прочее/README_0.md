@@ -1,3 +1,110 @@
+###  Публикация: 1859305   (1061192) от 
+
+Открытки на каждый день и GIF v4.7 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые открытки, поздравления на все случаи жизни и любой повод. Вы сможете выбрать готовую открытку или приложение поможет вам создать открытку самостоятельно. Прикольные открытки и GIF анимация помогут вам поздравить родных и близких на любой праздник и по любому случаю жизни. Поздравляйте с днем рождения и юбилеем, днем ангела, именинами и другими важными событиями (   Читать дальше...   )Тип издания: ModРелиз состоялся: 14.03.2026Разработчик: WutappПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D23C22B4D86431B5AA5AE409628D05AF48E4672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859296   (1061191) от 
+
+Folder Player Pro v5.38 b368 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folder Player Pro - это ориентированный на каталоги и файлы музыкальный mp3-плеер, являющийся более продвинутой версией своего популярного бесплатного аналога. Это приложение обеспечивает простоту использования с удобным управлением. Здесь не нужно создавать или добавлять плейлисты, достаточно выбрать папку содержащую аудиофайлы, чтобы запустить проигрывание. А учитывая (   Читать дальше...   )Тип издания: Paid (купленная Pro с Маркета)Релиз состоялся: 15.03.2026Разработчик: Peter ShashkinПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B57A05E45CEB9A74D713F856B89D882E628189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859369   (1061189) от 
+
+Справочник электрика v4.0.2 (309) Mod by vadj  [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для всех тех, чья деятельность связана с электричеством. Для профессионалов и любителей. Данное приложения является своеобразным трамплином для дальнейшего изучения электротехники.
+В приложении присутствуют 4 категории:
+1. Теория
+2. Схемы(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 07.02.2026Разработчик: SergeiVПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAC93CF22E5C13529EF878334CD4ADC90BC1012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859294   (1061188) от 
+
+Plus Messenger (Telegram+)  v12.5.1.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 14.03.2026Разработчик: rafalenseПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71FA5F2E435772DD95153CD80A1802E89CFA231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859359   (1061171) от 
 
 PORTAL Connect 1.0.5 Mod by STR_BYPASS [Ru/Multi]
@@ -6,7 +113,7 @@ PORTAL Connect 1.0.5 Mod by STR_BYPASS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061171.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Remini / Улучшение Фото v3.7.1299.202520143 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061087.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060879.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Rosetta Stone: Изучение языков 9.0.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060878.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ Taskito v1.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060877.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Mary’s recipes: рецепты, меню v7.5.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060874.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ Photomath v8.47.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060873.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ TVGuide v4.7.1 Premium Mod by Alex.Strannik [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060871.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ Screen Mirroring - TV Miracast v4.0.0.240 Mod by vadj [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060869.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ Bria Mobile: VoIP Softphone v6.22.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060868.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060864.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ Smart AudioBook Player Pro v11.6.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060862.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060861.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ Grok - ИИ ассистент v1.1.40-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060860.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ Moon+ Reader Pro v10.5 (b1005002) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060858.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ AirBrush: ИИ Фоторедактор v8.4.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060857.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060851.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ FBReader Premium v3.8.24 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060850.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ Vanced Tube v5.5.80.525 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060845.jpg" />
 </div>
 
 
@@ -504,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060844.jpg" />
 </div>
 
 
@@ -530,7 +637,7 @@ Signal for Android 8.2.2 Stable [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060825.jpg" />
 </div>
 
 
@@ -558,7 +665,7 @@ Karing v1.2.15.1806 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060645.jpg" />
 </div>
 
 
@@ -572,110 +679,6 @@ Karing - Утилита прокси с простым и мощным инте�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E6BA9EE09E5F877810B3CCAE772C85B3C9C3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858065   (1060218) от 08.03.2026
-
-FacePic - AI Face App v3.6.3 Pro Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060218.jpg" />
-</div>
-
-
-###  Подробнее
-
-FacePic — приложение AI Face, приложение для легкого редактирования лиц с помощью ИИ, которое позволит вам вывести свои селфи на новый уровень. Благодаря широкому выбору фильтров для лица, эффектов Facetune и замены лиц вы будете поражены тем, как быстро вы сможете добиться фотореалистичных результатов. Попрощайтесь с обычными фотографиями — хотите ли вы изменить (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.03.2026Разработчик: Photo Collage & Grid - Foto GridПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378CCDBA60C93F944596278D5E175F13A120B434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858111   (1060217) от 08.03.2026
-
-Rock Identifier - Stone ID v2.4.3 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просто сделайте или загрузите фото камня, и Rock Identifier расскажет все за считанные секунды. Исследуйте свое геологическое окружение, узнавайте о различных породах и знакомьтесь с миром природы с помощью Rock Identifier!Тип издания: PremiumРелиз состоялся: 08.03.2026Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C370FC38444E1302FBCFBE6B35B4A6C6B2EAFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858110   (1060216) от 08.03.2026
-
-PictureThis - Plant Identification v5.21.0 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 08.03.2026Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0D0A812B992BE298E02A1B5C06C88B6678233E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858067   (1060171) от 08.03.2026
-
-File Manager Plus / Файловый менеджер + v3.7.0 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер + - это простой и мощный Проводник для Android устройств, бесплатный, быстрый и полнофункциональный. Благодаря простому пользовательскому интерфейсу, он чрезвычайно удобен в использовании. С помощью Файловый менеджер + вы можете легко управлять файлами и папками устройства, NAS (сетевыми устройствами хранения данных) и облачными сервисами - такими (   Читать дальше...   )Тип издания: Premium / ExtraModРелиз состоялся: 07.03.2026Разработчик: File Manager PlusПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8A1C50E4EA77800B5E489954732D68B27C2C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

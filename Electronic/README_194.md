@@ -1,3 +1,61 @@
+###  Публикация: 1220357   (706192) от 18.04.2018
+
+VA - Nothing But... The Future of Trance Vol. 06 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Exo - Skybouncer (Original Mix)
+02. Ultimate - Enru (Original Mix)
+03. Tau-Rine - New Life (Radio Edit)
+04. Paul Arcane - Transcend (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67109D5EFDF9BB5E9B10FD20BF8BD8831AD0EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220196   (706189) от 18.04.2018
+
+VA - Essential House Spring 2018 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tzesar - Spring Break (Original Mix) [00:05:15]
+02. Chris Kaufman - Burning My Socks [00:05:30]
+03. Tzesar - April Lady (Original Mix) [00:05:18]
+04. Renee - Music Heals All Wounds (Ice Cream edit) [00:05:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1905EDCF5AE35FECE4ADA04D4AD28E443CA0343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026139   (706155) от 14.06.2016
 
 VA - Melodies For Ravers (2016) [MP3|320 кб/с] <Progressive House>
@@ -6,7 +64,7 @@ VA - Melodies For Ravers (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706155.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Snap - Power Hits Of... (1995) [FLAC|Lossless|image + .cue] <Euro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705765.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Running House (Compilation 2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705523.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Trancespotting Vol.5 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705419.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Darker Shades Of Erotic Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705415.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705363.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Marsheaux - Inhale (Remixes) (2019) Undo Records Ltd. [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705209.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising N
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705206.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|tracks + .cue] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705203.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705069.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Didier Marouani & Space - Legend (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704693.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Sexy Suicide - Intruder (2016) [FLAC|Lossless|tracks + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704593.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ VA - Recoverworld Radio 019 (Mixed by Para X) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704511.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ VA - Spring Sampler Vol.01 (2018) [MP3|320 Kbps] <Trance,Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704509.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ VA - Summer Tech House 50 Fantastic Summer Groove Songs (2018) [MP3|320 Kbps] <M
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704507.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ VA - Silk Music Pres. Trance Treasures 10 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704503.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ VA - EDM For Running And Workout 2018 (2018) [MP3|320 Kbps] <House, Tech House, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704496.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ VA - Night City Tribute - The Songs of Secret Service (2018) [MP3|320 Kbps] <Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704320.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ VA - Erotic Tantric Kamasutra: Sensual Chill Out Lounge (2017) [MP3|320 Kbps] <D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704242.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ VA - Night City Tribute - The Songs of Secret Service (2018) [FLAC|Lossless|WEB-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704203.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ VA - Disco Fever (2016) [MP3|320 кб/с] <House, Disco, Nu-Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704070.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Bronson - Bronson (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703813.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - 8 марта '09 Танцевальная версия (2009) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703694.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ VA - 8 марта '10 Танцевальная версия (2010) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703616.jpg" />
 </div>
 
 
@@ -688,65 +746,6 @@ VA - 8 марта '10 Танцевальная версия (2010) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:996C89D7F7324E9537F01D8DD9E3B2AC68289F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894851   (703578) от 04.05.2015
-
-VA - Bar and Grooves (30 Smooth Summer Tunes) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cor De Savina - Mariana Green (06:27)
-002. The K2 Project - Suntanner (03:14)
-003. Chantell - Dreaming Of You (Naked On The Beach Mix) (05:26)
-004. Greg Knight - Chocolate & Marmelade (05:22)
-005. Steven Dual - Flying (Balearic Guitar Mix) (04:18)(   Читать дальше...   )Производство: Cherry Lounge RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 02:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8808281287D3F98A3B2B1FE1E4C2A690D02DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286673   (703474) от 07.03.2019
-
-Eurythmics - Missionary Man, Live Concert 1984 (2000) Unofficial Release, Bootleg [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex Crime
-02. Let's Go
-03. The Last Time
-04. Here Comes The Rain Again(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925E5A3B6BA7ED3531C0B80AAD3034D70F459CC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1575949   (208266) от 12.09.2022
+
+Gumroad, Overdraw.xyz | Advanced Visual Effects in Unreal: Materia (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот учебный курс проведет вас через весь процесс создания эффекта Сфера Материи. Вы научитесь создавать исходный контент для эффектов - меш в Houdini и текстуры в Substance Designer. Затем вы импортируете контент в UE4, где создадите все шейдеры, и перейдете в Niagara, где вы узнаете, как создавать эффекты частиц качества AAA.Производство: GumroadЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9EA444D3AB8D64D809744E17ECA950AD65B08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648600   (208236) от 23.07.2023
 
 Анна Михайлова | Живая фотография (2021) WEB-DL [RU]
@@ -6,7 +32,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208236.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Digital Art Club, Алёна Клементьева | Цифровая Живо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208233.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Profileschool, Алексей Шадрин | Художественный обр
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208229.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ CG Forge, Tyler Bay | Pyro I - Smoke & Steam (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208226.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Muddy Colors, David Finch | Fantasy Anatomy (2021) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208207.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208204.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208176.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ The Gnomon Workshop, David Silberbauer | Create A Procedural Waterwheel Simulati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208137.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208129.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Photoplay, Мария Климова | Цвет в фотографии (2020) W
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208125.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ JUG Ru Group | JPoint 2022. Международная Java‑конференц
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208117.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208109.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ Skillshare, 3D Tudor, Neil Bettison | Blender VFX Liquid Fire & Smoke (2021) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208101.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ ArtStation, Mathew O'Halloran | Hard-Surface Masters Vol.1 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208086.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ Hudozhnik Online, Дарья Куцаева | Скетчинг цветными 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208050.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ Enterclass, Анастасия Беседина | Акварельная фау�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208044.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Level One, Олег Грознов | Как устроены лучшие гол
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208010.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Garden Group, Ксения Мезенцева | Ландшафтный диза�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208000.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Liveclasses, Алексей Шадрин | 12 неизвестных шедев�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207996.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Udemy, Richard Chesterwood | Docker - Hands On for Java Developers (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207989.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Bazanova Art, Ольга Базанова | Роскошь лета. Пакет 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207974.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207959.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Udemy, Alexander Batashov | Ruby on Rails - 2020. Создание Интерн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207957.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207909.jpg" />
 </div>
 
 
@@ -666,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207892.jpg" />
 </div>
 
 
@@ -680,34 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C79BB8363E31EB7D87E90319998AA05A441A3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649259   (207866) от 26.07.2023
-
-Marker School, Вера Шерстобитова | Основы маркерного скетчинга. Базовый курс (2019) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спиртовой маркер - это современный, универсальный, профессиональный художественный материал. Скетчинг маркерами позволяет буквально несколькими штрихами рисовать крутейшие скетчи, разрабатывать элементы дизайна или создавать работы, приближенные к художественным полотнам.
-
-Маркеры применяют в различных областях: интерьерный дизайн, fashion, портретная иллюстрация, (   Читать дальше...   )Производство: Marker SchoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 14:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9751FE09C0D1B3E653D0E4A22069F22DAE42F228
 ```
 
 https://mybot314.ru/tekegram_catalog/

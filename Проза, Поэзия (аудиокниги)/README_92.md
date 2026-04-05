@@ -1,60 +1,3 @@
-###  Публикация: 464233   (80821) от 08.03.2012
-
-Минэко Ивакаси, Рэнд Браун | Настоящие мемуары гейши [2006] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слишком много тайн окутывает понятие «гейша»… История жизни Минеко Ивасаки, одной из самых легендарных гейш Японии, призвана объяснить европейским и американским читателям, чем в действительности является эта уникальная профессия.
- Минеко Ивасаки искренне рассказывает читателю о всех перипетиях своей жизни с момента, когда в шесть лет она была отдана на воспитание в традиционный дом гейш в Киото, откуда вернулась в родительский дом только однажды – проститься с умирающим отцом, и до времени счастливой старости с дочерью и любимым мужем.
- По словам Минеко Ивасаки, эта книга является возможностью пролить свет на древнейшую профессию в Японии. Однажды она уже попыталась это сделать, рассказав историю своей жизни писателю Артуру Голдену, который, по мнению самой гейши, старательно смешал искусство красоты с развратностью. Гейши и девицы легкого поведения, утверждает Минеко Ивасаки, - разные сферы, не имеющие ничего общего между собой.
- Поистине редкий, интригующий роман – тонкое сплетение таинственности ритуалов и откровенных (   Читать дальше...   )2006Жанр: мемуары, зарубежная современная литература, романтическая драма
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F099E4A2F98294FBE3115DD6F5E0A2CBBF40D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454266   (77487) от 21.02.2012
-
-Юстейн Гордер | Мир Софии (2009) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга норвежского писателя Юстейна Гордера адресована прежде всего детям, но будет интересна и взрослым. Это захватывающий рассказ о таком сложном предмете, как философия. История мировой мысли предстает здесь как череда неожиданных открытий, которые совершает главная героиня - девочка по имени София, - получая письма от незнакомого, загадочного философа.
-
-       "Кто, (   Читать дальше...   )Жанр: Роман, философияПродолжительность: 19:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33ED2B86AD1A1A51514F21CCDA80BF0785C2D12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772577   (71784) от 11.01.2025
 
 Михаил Ульянов | Мой 20 век. Реальность и мечта (2011) [MP3, Ирина Воробьёва]
@@ -63,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71784.jpg" />
 </div>
 
 
@@ -91,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71783.jpg" />
 </div>
 
 
@@ -119,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71737.jpg" />
 </div>
 
 
@@ -146,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71719.jpg" />
 </div>
 
 
@@ -173,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71718.jpg" />
 </div>
 
 
@@ -201,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71503.jpg" />
 </div>
 
 
@@ -228,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71317.jpg" />
 </div>
 
 
@@ -254,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71252.jpg" />
 </div>
 
 
@@ -281,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71224.jpg" />
 </div>
 
 
@@ -307,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70905.jpg" />
 </div>
 
 
@@ -333,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70802.jpg" />
 </div>
 
 
@@ -359,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70268.jpg" />
 </div>
 
 
@@ -385,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70014.jpg" />
 </div>
 
 
@@ -412,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70011.jpg" />
 </div>
 
 
@@ -439,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69910.jpg" />
 </div>
 
 
@@ -465,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69880.jpg" />
 </div>
 
 
@@ -491,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69819.jpg" />
 </div>
 
 
@@ -518,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69272.jpg" />
 </div>
 
 
@@ -544,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69002.jpg" />
 </div>
 
 
@@ -571,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68109.jpg" />
 </div>
 
 
@@ -599,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67407.jpg" />
 </div>
 
 
@@ -626,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67268.jpg" />
 </div>
 
 
@@ -655,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67248.jpg" />
 </div>
 
 
@@ -682,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67247.jpg" />
 </div>
 
 
@@ -696,6 +639,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:894AC7E993668D0E35B388236893A1C506316FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795238   (67168) от 03.05.2025
+
+Александр Матюхин | Велосипеды (2012) [MP3, Денис Максимов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ Александра Матюхина «Велосипеды», описывает будни солдат в чеченскую войну.Жанр: Роман, прозаИздательство: Аудиокнига своими рукамиПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DADA0B5D75AD34A93645B3762BE8E635A65CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796956   (66881) от 13.05.2025
+
+Булат Окуджава | Уроки музыки (Радиоспектакль) (2025) [MP3, Андрей Толубеев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Булат Шалвович Окуджава (1924–1997) поэт, композитор, прозаик, актёр и сценарист. Участник Великой Отечественной войны. Гвардии красноармеец (1944).
+Автор около двухсот авторских и эстрадных песен, один из наиболее ярких представителей жанра авторской песни.
+Радиоспектакль по рассказам Булата Окуджавы: «Утро красит нежным светом...» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309F7146D13AA5AF479CCB8651B0081873E4372C
 ```
 
 https://mybot314.ru/tekegram_catalog/

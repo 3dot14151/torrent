@@ -1,3 +1,55 @@
+###  Публикация: 1035721   (626381) от 17.07.2016
+
+Золотое путешествие Синдбада / The Golden Voyage of Sinbad (1973) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626381.jpg" />
+</div>
+
+
+###  Подробнее
+
+О подвигах знаменитого морехода и искателя приключений Востока Синдбада сложено немало легенд. Перед вами — самая удивительная и захватывающая из них. В ней Синдбад становится обладателем золотой пластинки, загадку которой он жаждет разгадать.На пути к цели герой и его команда встретит множество опасностей: шестирукую живую статую и одноглазого кентавра. Жестокие (   Читать дальше...   )Производство: СШАЖанр: Приключения, Фэнтези, СемейныйРежиссер: Гордон ХесслерАктеры: Джон Филлип Лоу, Кэролайн Манро, Том Бейкер, Дуглас Уилмер, Мартин Шоу, Курт Кристиан, Грегуар Аслан, Альдо Самбрелл, Такис Эммануель, Дэвид Гарфилд, Фердинандо Поджи, Роберт Ритти, Роберт ШоуПеревод: ДублированныйПродолжительность: 01:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BC53353292D35626F1713B36D09E482ECC1293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228697   (626166) от 06.06.2018
+
+Долгое жаркое лето / The Long, Hot Summer (1958) BDRip [H.264] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ньюман стал звездой, сыграв чужака, мастера на все руки, взбудоражившего покой в семье патриарха-южанина, привыкшего к беспрекословному повиновению. Он решил задержаться в этом маленьком южном городке и жениться на дочери Уэллса.Производство: США / Jerry Wald ProductionsЖанр: ДрамаРежиссер: Мартин РиттАктеры: Пол Ньюман, Джоэнн Вудворд, Энтони Франчоза, Орсон Уэллс, Ли Ремик, Анджела Лэнсбери, Ричард Андерсон, Сара Маршалл, Мэйбл Альбертсон, Дж. Пэт О’МэллиПеревод: Профессиональный (многоголосый закадровый)Субтитры: Русские, английскиеПродолжительность: 01:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7363BFE3E990EA0EF48E55F9EDE67B18422CB4AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906583   (625421) от 18.06.2015
 
 Сто тысяч долларов на солнце / Cent mille dollars au soleil (1964) BDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625421.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625258.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624524.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624478.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624291.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623838.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623800.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623481.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623415.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623341.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623337.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623299.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623283.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622652.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621787.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621785.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621741.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621662.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621650.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621607.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621588.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621567.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621212.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620430.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E263095F667214F44AC4C6AE4D7A12D2D755117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906880   (619498) от 21.06.2015
-
-Маленький большой человек / Little Big Man (1970) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация по произведению Томаса Бергера. Эпическая история Дикого Запада будет поведана главным героем — стодвадцатилетним стариком, которому удалось выжить в чудовищной мясорубке, устроенной генералом Кастером. Он расскажет о том, как был усыновлeн индейцами и как стал другом знаменитого стрелка «Дикого Билла» Хикока.Производство: СШАЖанр: Комедия, вестерн, история, приключения, экранизацияРежиссер: Артур ПеннАктеры: Дастин Хоффман, Фэй Данауэй, Вождь Дэн Джордж, Мартин Болсам, Ричард Маллиган, Джефф Кори, Эме Экклес, Келли Джин Питерс, Кэрол Андроски, Роберт Литтл Стар, Кэл Беллини, Рубен Морено, Уильям Хикки, Джеймс Андерсон, Джесси Винт, Алан Оппенхаймер, Тэйер Дэвид, Джек Бэннон, Рэй Димас, Алан Ховард, Джек Муллани, Стив Миранда, Лу Кателл, М. Эммет Уолш, Эмили Чо, Линда (   Читать дальше...   )Перевод: Профессиональный многоголосыйПродолжительность: 02:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116D087240F9CE4511143C4E846AAAAFB48B892A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034326   (618991) от 21.07.2016
-
-Детектив / The Detective (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский детектив Джо Леланд ведет расследование запутанного дела по убийству молодого гомосексуалиста. В ходе расследования он обнаруживает связь с должностной коррупцией в Нью-Йорке и оказывается в ловушке между рядом компромиссов и собственной честностью…Производство: США / Arcola PicturesЖанр: Драма, КриминалРежиссер: Гордон ДугласАктеры: Фрэнк Синатра, Ли Ремик, Ральф Микер, Джек Клагмен, Хорас МакМахон, Ллойд Бокнер, Уильям Уиндом, Тони Мусанте, Эл Фримен мл., Роберт ДюваллПеревод: Двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39B64BCB8DF50996EC109D4216C83766495EAE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

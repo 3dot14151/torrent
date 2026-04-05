@@ -1,161 +1,3 @@
-###  Публикация: 1625007   (200221) от 08.04.2023
-
-Николай Климович | Линкбилдинг. Продвижение сайта путем построения связей и репутации (2023) [PDF, EPUB]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наиболее полное и единственное на русском языке руководство по внешней SEO-оптимизации и продвижению сайтов ссылочным методом в условиях новейших алгоритмов поисковых систем, таких как Google Spam Link Update, Page Experience и YATL Автор делится самым честным и независимым мнением о ссылках, спаме, аутриче и внешней поисковой оптимизации. Читателям впервые открываются (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD210C4A441E9C16597372A48871CD8691EF502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625200   (200176) от 09.04.2023
-
-Dr. Deepali R Vora и др. | Python Machine Learning Projects (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга начинается с объяснения того, насколько важно машинное обучение сегодня и какие технологии необходимы для его работы. Затем книга поможет вам ознакомиться с основными концепциями, лежащими в основе машинного обучения, включая основы программирования на Python. В ней объясняются различные типы алгоритмов машинного обучения и их применение в различных областях, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:899C0FB6D4C28F936D915E10C06A53331AE3EBF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625411   (200170) от 09.04.2023
-
-Джеффери Л. Клинтон | Создай свой собственный язык программирования (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о том, как разрабатывать уникальные языки программирования, чтобы сократить время и стоимость создания приложений для новых или специализированных областей применения вычислительной техники. Вы начнете с реализации интерфейса компилятора для вашего языка, включая лексический и синтаксический анализатор, а к концу чтения сможете разрабатывать и (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: С.В. МинцФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF55D1E84E1824654ADA77102079E923DCE53FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624922   (200144) от 08.04.2023
-
-Victor Hugo Garcia | Getting Started with Angular: Create and Deploy Angular Applications (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в архитектуру приложения Angular, начиная с введения в TypeScript и ES6 и переходя к модулям и компонентам, используемым для создания сложных приложений. В этой книге представлен практический подход к тому, как стать опытным разработчиком Angular, создав три полноценных приложения.
-
-Вы начнете с обзора фреймворка Angular, где будут представлены TypeScript (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F612106AE0F4BF350B9D4271FE8840A9879056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625567   (200138) от 10.04.2023
-
-Ashwin Pajankar | Python Unit Test Automation, 2nd Edition (2021) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как автоматизировать модульные тесты Python 3 с помощью библиотек автоматизации, таких как doctest, unittest, nose, nose2, pytest и selenium. В этой книге рассматриваются важные концепции автоматизации тестирования программного обеспечения и демонстрируется, как автоматизировать, организовывать и выполнять модульные тесты с помощью Python. Она также знакомит (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188A29F2BC8A5BC37883E7E0A037EB0C3643FE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625466   (200129) от 10.04.2023
-
-Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200129.jpg" />
-</div>
-
-
-###  Подробнее
-
-С развитием DevOps, недорогих облачных вычислений и контейнерных технологий подход Java-разработчиков к разработке сегодня кардинально изменился. Это практическое руководство поможет вам использовать преимущества микросервисов, бессерверных и облачных технологий с применением новейших методик DevOps для упрощения процесса сборки и создания высокопроизводительных (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D576D958A0E4D52F725A0B03306FE13F6D99FB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625586   (200127) от 10.04.2023
 
 Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of React’s core features (2022) [PDF][EN]
@@ -164,7 +6,7 @@ Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of Rea
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200127.jpg" />
 </div>
 
 
@@ -192,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200058.jpg" />
 </div>
 
 
@@ -218,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199960.jpg" />
 </div>
 
 
@@ -244,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199897.jpg" />
 </div>
 
 
@@ -270,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199773.jpg" />
 </div>
 
 
@@ -296,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199742.jpg" />
 </div>
 
 
@@ -322,7 +164,7 @@ Aristeidis Bampakos | Learning Angular: A no-nonsense guide to building web appl
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199687.jpg" />
 </div>
 
 
@@ -348,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199623.jpg" />
 </div>
 
 
@@ -374,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199576.jpg" />
 </div>
 
 
@@ -400,7 +242,7 @@ Jimmy Engström | Web Development with Blazor: A practical guide to build intera
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199569.jpg" />
 </div>
 
 
@@ -426,7 +268,7 @@ Malhar Lathkar | High-Performance Web Apps with FastAPI (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199499.jpg" />
 </div>
 
 
@@ -452,7 +294,7 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199400.jpg" />
 </div>
 
 
@@ -479,7 +321,7 @@ Carl-Hugo Marcotte | An Atypical ASP.NET Core 6 Design Patterns Guide: A SOLID a
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199398.jpg" />
 </div>
 
 
@@ -505,7 +347,7 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199386.jpg" />
 </div>
 
 
@@ -531,7 +373,7 @@ Slobodan Dmitrović | Modern C++ for Absolute Beginners: A Friendly Introduction
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199383.jpg" />
 </div>
 
 
@@ -558,7 +400,7 @@ Andreas Wittig | Amazon Web Services in Action, Third Edition: An in-depth guide
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199352.jpg" />
 </div>
 
 
@@ -585,7 +427,7 @@ Kenneth Hess | Practical Linux System Administration: A Guide to Installation, C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199338.jpg" />
 </div>
 
 
@@ -611,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199316.jpg" />
 </div>
 
 
@@ -637,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199230.jpg" />
 </div>
 
 
@@ -663,7 +505,7 @@ Jennifer Dawe, Matthew Humphries | Make YourOwn Pixel Art (2019) [PDF]
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199211.jpg" />
 </div>
 
 
@@ -674,6 +516,162 @@ Hand anyone a pencil and paper and they can start drawing, but it's just as easy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2DFFD3D2BAFC0F3C2E3CDCF4A9BE3039C1C4DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629843   (199160) от 28.04.2023
+
+К. Венц | Безопасность ASP.NET Core (2023) [PDF] [RU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложения ASP.NET Core подвержены риску атак. Существуют конкретные меры, которые помогут избежать взлома. В книге показаны такие методы защиты веб-приложений ASP.NET Core, как безопасное взаимодействие с браузером, распознавание и предотвращение распространенных угроз, развертывание уникальных API безопасности этого фреймворка. Приводятся способы написания безопасного (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Д. БеликовЯзык: РусскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632E2FE5A8CFE2299B56A299E73939A6B5255A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630345   (199067) от 30.04.2023
+
+Томаш Лелек, Джон Скит | Software. Ошибки и компромиссы при разработке ПО (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание программных продуктов всегда связано с компромиссами. В попытках сбалансировать скорость, безопасность, затраты, время доставки, функции и многие другие факторы можно обнаружить, что вполне разумное дизайнерское решение на практике оказывается сомнительным. Советы экспертов и яркие примеры, представленные в этой книге, научат вас делать правильный выбор (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E60BFD9B13718A59E5EBB459367BA803BDBB807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630725   (199059) от 02.05.2023
+
+В.З. Аладьев и др. | Программирование в пакетах Maple и Mathematica: Сравнительный аспект (2011) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199059.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассматриваются вопросы применения математических пакетов Maple и Mathematica — лидеров среди современных систем компьютерной математики — с точки зрения предпочтительности для программирования различного рода приложений. Представлены некоторые важные аспекты сравнительного анализа обеих систем относительно возможностей их программных сред для функционально-процедурного (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF59ADF521C43E04645289BC36A90B48F9DD05BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631124   (198959) от 04.05.2023
+
+Дмитрий Миронов | Windows без страха для начинающих (2012) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже который год операционная система Windows не перестает удивлять компьютерный мир настоящим технологическим прорывом. И перед вами – лучшая книга для получения навыков пользователя операционной системы. Открыв ее, вы обнаружите, что она кардинально отличается от других – весь материал представлен в виде последовательных, подробно иллюстрированных визуальных инструкций. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EDF5DE624D917E5A845C4F7889029912521833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630908   (198913) от 03.05.2023
+
+Ф. Хуттер и др. | Введение в автоматизированное машинное обучение (AutoML) (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ошеломляющий успех коммерческих приложений машинного обучения (machine learning – ML) и быстрый рост этой отрасли создали высокий спрос на готовые методы ML, которые можно легко использовать без специальных знаний. Однако и сегодня успех практического применения в решающей степени зависит от экспертов – людей, которые вручную выбирают подходящие архитектуры и их (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: В.С. ЯценковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9472180C44B200B82261162759F68CA94DF9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631779   (198713) от 07.05.2023
+
+David Tschumperle, и др. | Digital Image Processing with C++ (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге "Цифровая обработка изображений на C++" представлена теория цифровой обработки изображений и реализация алгоритмов с помощью специальной библиотеки. Обработка цифрового изображения означает преобразование его содержания (денуазинг, стилизация и т.д.) или извлечение информации для решения поставленной задачи (распознавание объектов, измерение, оценка (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82013087BFBA75C1A63D569140BFAF55FB3E3EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

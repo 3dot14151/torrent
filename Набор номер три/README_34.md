@@ -1,3 +1,164 @@
+###  Публикация: 1461614   (1019846) от 21.04.2021
+
+Родные (2021) WEB-DLRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды утром отец семейства решает исполнить мечту всей жизни: отправиться с родными на Грушинский фестиваль и выступить там со своей песней. Семья вынуждена смириться с желанием отца-самодура и пуститься в автопутешествие через всю Россию.
+В пути их ждут приключения, различные испытания, проверка отношений на прочность и важная встреча, которую отец ждал двадцать (   Читать дальше...   )Производство: Россия, Hype FilmЖанр: комедия, драмаРежиссер: Илья АксеновАктеры: Сергей Бурунов, Ирина Пегова, Семен Трескунов, Монеточка, Катерина Беккер, Анна Уколова, Никита Павленко, Сергей Шакуров, Павел Ворожцов, Дмитрий РусаковПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A3D581D3B9ACF5C6DD49A7AAB64C68BA2A91FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464238   (1019714) от 22.04.2021
+
+Очередное достижение: 8000 релизов от Весельчак У !!!
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 8000 релизов от Весельчак У !!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 8000-м релизом!
+От всей души поздравляем!
+Весельчак У(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464280   (1019696) от 22.04.2021
+
+Вышел трейлер 2-го сезона анимационной фантастической анталогии "Любовь. Смерть. Роботы".
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стриминговый сервис Netflix выпустил трейлер второго сезона анимационной антологии «Любовь, смерть и роботы», в создании которой приняли участие Дэвид Финчер («Бойцовский клуб», «Охотник за разумом») и Тим Миллер («Дэдпул»). Главным постановщиком нового сезона стала Дженнифер Ю Нельсон («Кунг-фу Панда 2»).
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060021   (1019679) от 22.04.2021
+
+IT DarkMaycal Sysadmins | Построение сетей CISCO с нуля. Часть 1 (2016) PCRec [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019679.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном видекурсе:
+Научитесь администрировать, проектировать и защищать локальные сети уровня предприятий, а так же работать с активным сетевым оборудованием CISCO.Производство: РоссияЖанр: CISCO, системная администрацияПродолжительность: 34:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0BD1601E99BAAD61468E45895058D0798E992C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464755   (1019584) от 23.04.2021
+
+Дни между майскими праздниками сделают нерабочими
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майские выходные продлятся 10 дней — с 1 по 10 мая включительно, на работу выходить во вторник 11 мая — сообщил пресс-секретарь президента Дмитрий Песков в интервью РИА Новости.В течение последнего месяца число новых случаев заражения коронавирусом практически не снижается. Сейчас это, как правило, от 8-ми до 9-ти тысяч человек.Первые сообщения в СМИ о том, что во (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464654   (1019578) от 23.04.2021
+
+Ученые обнаружили гендерные предубеждения в алгоритмах музыкальных рекомендаций
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальные критики часто обвиняют музыкальную индустрию в том, что лейблы и премии игнорируют женщин-исполнительниц. Как показало новое исследование, даже компьютерные алгоритмы для рекомендации музыки в стриминговых приложениях с гораздо большей вероятностей будут рекомендовать композиции мужчин-исполнителей, чем женщин.В исследовании, опубликованном в Proceedings (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464535   (1019557) от 23.04.2021
 
 Университет Миннесоты отстранён от разработки ядра Linux за отправку сомнительных патчей
@@ -6,7 +167,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019557.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ Windows 10 Home 20H2 19042.928 x64 ru by SanLex (edition 2021-04-22) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019522.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack R.G. Механик�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019519.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019517.jpg" />
 </div>
 
 
@@ -110,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019380.jpg" />
 </div>
 
 
@@ -136,7 +297,7 @@ Windows 10 20H2 (x64) 16in1 +/- Office 2019 by Eagle123 (04.2021) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019355.jpg" />
 </div>
 
 
@@ -162,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019352.jpg" />
 </div>
 
 
@@ -188,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019351.jpg" />
 </div>
 
 
@@ -214,7 +375,7 @@ Huawei начинает делать сервера на заводах «Сит
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019186.jpg" />
 </div>
 
 
@@ -240,7 +401,7 @@ SpaceX запустила людей в космос
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019181.jpg" />
 </div>
 
 
@@ -267,7 +428,7 @@ F-Secure Freedome VPN 2.41.6817 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019178.jpg" />
 </div>
 
 
@@ -293,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>21
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019175.jpg" />
 </div>
 
 
@@ -319,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019173.jpg" />
 </div>
 
 
@@ -346,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019044.jpg" />
 </div>
 
 
@@ -372,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019035.jpg" />
 </div>
 
 
@@ -398,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019007.jpg" />
 </div>
 
 
@@ -424,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018873.jpg" />
 </div>
 
 
@@ -450,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018852.jpg" />
 </div>
 
 
@@ -476,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018850.jpg" />
 </div>
 
 
@@ -503,7 +664,7 @@ Windows 10 Pro 20H2 19042.928 x64 ru by SanLex (edition 2021-04-23) [Ru]
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018837.jpg" />
 </div>
 
 
@@ -514,162 +675,6 @@ Windows 10 Pro 20H2 19042.928 x64 ru by SanLex (edition 2021-04-23) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FDF0E6E16D816150DCB6EC418742F3A23B0FF55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464620   (1018836) от 27.04.2021
-
-Дальний космос / Stowaway (2021) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экипаж космического корабля, направляющегося на Марс, обнаруживает на борту случайного пассажира. Однако миссию остановить уже невозможно, впереди долгие месяцы пути, а после серьезной аварии команда понимает, что ресурсов до конца полета хватит не на всех. И это не последняя опасность, с которой экипажу предстоит столкнуться на пути к далекой планете.Производство: США, Германия / Augenschein Filmproduktion, MMC Movies, MysteryGuitarMan, Phiphen Pictures, Rainmaker Films, Rise Pictures, Stage 6 Films, XYZ Films, Yale ProductionsЖанр: Фантастика, триллер, драмаРежиссер: Джо ПеннаАктеры: Анна Кендрик, Тони Коллетт, Дэниэл Дэ Ким, Шамир АндерсонПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55783AD1FE816E86AEC165623C03A1A7C723BE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465642   (1018667) от 28.04.2021
-
-В Госдуме предложили замедлить YouTube "для профилактики"
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава комиссии Совета Федерации по информационной политике и взаимодействию со СМИ Алексей Пушков предложил замедлить видеосервис YouTube. Мера предлагается, как временная и лишь на майские праздники."Я выскажу свое личное мнение как председателя комиссии по информационной политике. На мой взгляд, нужно подумать о временном замедлении трафика YouTube, потому (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321287   (1018659) от 28.04.2021
-
-Wolfenstein: Youngblood (2019) [Ru/Multi] (1.0.3/dlc) Repack =nemos= [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет спин-оффа продолжает события, происходящие в предыдущей части The New Colossus. События происходят в Париже в 80-х годах. Нацисткая машина продолжает активно наступать и уничтожать не желающих склоняться перед ней. Сопротивление практически сломлено. Лидер сопротивления Би Джей Бласковиц был схвачен нацистами недалеко от Парижа.Тип издания: RepackРазработчик: MachineGames, Arkane StudiosЖанр: Action (Shooter), 3D, 1'st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCABE9BCBF4BA48D9C607702407EF17D3AC19D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258449   (1018657) от 28.04.2021
-
-Гарри Поттер / Harry Potter (2001-2011) [H.264] BDRip [коллекция]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарри Поттер родился 31 июля (в тот же день, что и Джоан Роулинг) 1980 года, родители — Лили (Эванс) Поттер и Джеймс Поттер. Лучший друг Джеймса Поттера, Сириус Блэк, стал крёстным отцом Гарри. Сириус, Джеймс и Лили входили в состав Ордена Феникса, группы волшебников, которые отчаянно боролись против Тёмного Лорда Волан-де-Морта. Они не имели численного превосходства (   Читать дальше...   )В грандиозной последней главе битва между добрыми и злыми силами мира волшебников перерастает во всеобщую войну. Ставки ещё никогда не были так высоки, а поиск убежища — столь сложен. И быть может именно Гарри Поттеру придется пожертвовать всем в финальном сражении с Волан-де-Мортом. Способен ли наш герой спасти мир? И всё закончится здесь.Жанр: Фэнтези, Драма, Приключения, ДетективРежиссер: Дэвид Йэтс.Актеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Рэйф Файнс, Алан Рикман, Хелена Бонем Картер, Том Фелтон, Гари Олдман, Майкл Гэмбон, Мэгги Смит и др.Язык субтитров: 1. Русские (надписи в фильме) 2. Русские (полные с лицензии) 3. Русские (полные от Voronine) 4. Английские 5. Английские (SDH)Продолжительность: 02:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3FAC3AAF5D6FBA2F70582EF2CD137F151C3AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226470   (1018656) от 28.04.2021
-
-YouTube Vanced v16.14.34  Non-Root [Ru/Multi]
-
->>3
->>17
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мод ютуба без рекламы и не требующего для работы сервисов Google Play (при желании можно авторизоваться под своим аккаунтом). Может работать в фоне и много других вкусностей! ;)Тип издания: Мод / Non-SplitРелиз состоялся: 27.04.2021Разработчик: xda-developersПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CD043A1E8987E5C78A1D3C584495FCE3116615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465963   (1018512) от 29.04.2021
-
-Элон Маск приравнивает колонизацию Марса к завоеванию Антарктиды
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элон Маск еще раз поднял тему колонизации Марса. В разговоре с Питером Диамандисом глава SpaceX признал, что это будет отличное приключение для добровольцев, но, скорее всего, многие люди погибнут на начальных этапах колонизации. Это еще одно заявление Маск, в котором подчеркивается опасность пилотируемых миссий на Марс.Согласно планам SpaceX, первые люди на Марсе (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

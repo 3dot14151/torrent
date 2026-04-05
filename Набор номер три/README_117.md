@@ -1,3 +1,162 @@
+###  Публикация: 993323   (894878) от 05.03.2016
+
+Windows 7 Ultimate SP1 IDimm Edition х86/x64 v.22.16 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894878.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Сборки представлены в виде двух отдельных образов: х86 и х64.
+• Сборки основаны на официальных образах MICROSOFT MSDN:
+ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso
+ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B579635D01A8A0025058FBD26ED7A1F03C74A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993709   (894872) от 05.03.2016
+
+Омерзительная восьмерка / The Hateful Eight (2015) HDRip [H.264/720p-LQ] [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894872.jpg" />
+</div>
+
+
+###  Подробнее
+
+США после Гражданской войны. Легендарный охотник за головами Джон Рут по кличке Вешатель конвоирует заключенную. По пути к ним прибивается еще один охотник. Снежная буря вынуждает всех троих искать укрытие в лавке на отшибе, где уже расположилась весьма пестрая компания: генерал, шериф, мексиканец, француз и ковбой… И один из них — не тот, за кого себя выдает.Производство: США, The Weinstein CompanyЖанр: ВестернРежиссер: Квентин ТарантиноАктеры: Курт Рассел, Сэмюэл Л. Джексон, Тим Рот, Майкл Мэдсен, Дженнифер Джейсон Ли, Ченнинг Татум, Уолтон Гоггинс, Зои БеллПеревод: Дубляж (чистый звук)Субтитры: Русский (ненорматив), АнглийскийПродолжительность: 02:47:00Реклама: Удалил 6 вставок рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC621FEDBA98EE3B755A006C86175FD88A1CB51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993466   (894867) от 05.03.2016
+
+Windows 10 (v1511) RUS-ENG x86-x64 -20in1- KMS-activation (AIO)
+
+>>3
+>>40
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка является правопреемницей сборки Windows 10 RUS-ENG x86-x64 -20in1- KMS-activation (AIO) и совмещает в себе 32-битные и 64-битные редакции в рамках общего единого дистрибутива. В сборке реализован ряд интересных решений, благодаря которым удалось получить компактный продукт, совмещающий в себе возможности шестнадцати официальных дистрибутивов. При этом (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABEAB669130E6FE2B0A6538C9E842DAC70751FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370680   (894663) от 28.03.2020
+
+Компания OneWeb объявила о банкротстве
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская компания OneWeb объявила о банкротстве. Соответствующее заявление, отправленное в суд по делам банкротств Южного округа штата Нью-Йорк, было опубликовано на сайте компании.В последнее время руководством OneWeb велись переговоры о привлечении дополнительных инвестиций, однако они провалились в связи с ухудшением мировой экономической ситуации на фоне пандемии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369975   (894553) от 28.03.2020
+
+Лучше отойдите от меня по-хорошему
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, когда я учился в одном университете, у нас в группе был натуральный негр. Я не помню, как в те времена надо было называть представителя негроидной расы политкорректно. Этот молодой человек был необычайно общительным и все время хотел со всеми дружить, много шутил и задавал самые разнообразные темы для разговоров. Эти навыки ему потом пригодились. Говорят, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370452   (894500) от 28.03.2020
+
+Вивариум / Vivarium (2019) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894500.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках идеального дома молодая пара знакомится со странным агентом по недвижимости. Он привозит их в новый поселок в пригороде, а затем исчезает. Том и Джемма с ужасом понимают, что они абсолютно одни в этом жутковато-стерильном лабиринте одинаковых домов и что из него нет выхода. Вскоре их одиночество будет прервано появлением у дверей коробки с младенцем, который (   Читать дальше...   )Производство: Ирландия, Дания, Бельгия / Lovely Productions, Fantastic Films, Frakas ProductionsЖанр: Фантастика, детективРежиссер: Лоркан ФиннеганАктеры: Имоджен Путс, Даниэль Райан, Молли Макканн, Джесси Айзенберг, Джонатан Арис, Сенан Дженнингс, Инна Хардвик, Ольга Верли, Джек ХадсонПеревод: Авторский (BadBajo)Субтитры: АнглийскиеПродолжительность: 01:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950B5F2DD292701DEAEFD507B09D5319839B96FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101420   (893827) от 07.02.2017
 
 AliExpress ужесточает условия доставки
@@ -6,7 +165,7 @@ AliExpress ужесточает условия доставки
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893827.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/u3) Rip YelloSOFT [Digital Del
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893800.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893793.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ ESET NOD32 Antivirus 10.0.390.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893783.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ DLL Suite 9.0.0.14 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893772.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ Total Commander PowerUser 68 Portable by HA3APET [Ru/En]
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893746.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893743.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/En] (1.4.2.0.8/0.3.1/dlc) RePack/Mod elde
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893739.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893686.jpg" />
 </div>
 
 
@@ -240,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893556.jpg" />
 </div>
 
 
@@ -266,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893462.jpg" />
 </div>
 
 
@@ -292,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893391.jpg" />
 </div>
 
 
@@ -319,7 +478,7 @@ GetContact обязали передавать данные силовикам �
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893338.jpg" />
 </div>
 
 
@@ -345,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893285.jpg" />
 </div>
 
 
@@ -371,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893270.jpg" />
 </div>
 
 
@@ -397,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893111.jpg" />
 </div>
 
 
@@ -423,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893080.jpg" />
 </div>
 
 
@@ -449,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893073.jpg" />
 </div>
 
 
@@ -475,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893072.jpg" />
 </div>
 
 
@@ -501,7 +660,7 @@ Fallout Shelter 1.4 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893068.jpg" />
 </div>
 
 
@@ -513,164 +672,6 @@ Fallout Shelter 1.4 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3378737BED77B7D1B599CBB86E44F5532FA910B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993583   (893066) от 06.03.2016
-
-Кунг-фу Панда 3 / Kung Fu Panda 3 (2016) WEBRip [H.264/1080p-LQ] [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воссоединившись со своим давно потерянным отцом, По отправляется в тайный рай для панд, где его ожидает встреча с множеством веселых сородичей. Однако вскоре злодей Кай начинает зачистку — он уничтожает кунг-фу мастеров по всему Китаю.
-По предстоит сделать невозможное — обучить боевому искусству деревню, полную его веселых, неуклюжих собратьев, и тем самым превратить (   Читать дальше...   )Производство: Китай, СШАЖанр: Боевик, Комедия, Приключения, СемейныйРежиссер: Алессандро Карлони, Дженнифер ЮПерсонажи: Джек Блэк, Брайан Крэнстон, Дастин Хоффман, Анджелина Джоли, Дж.К. Симмонс, Джеки Чан, Сет Роген, Люси Лью, Дэвид Кросс, Кейт ХадсонПеревод: ДублированныйСубтитры: корейские (вшитые, не отключаемые)Продолжительность: 01:35:00Реклама: Внимание, присутствуют вставки голосовой и текстовой рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FD2F36A0E77156195B7FC35BEFC555283CD719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993515   (893063) от 06.03.2016
-
-Малыш / Little Boy (2015) BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это военная драма, рассказывающая о судьбе небольшой семьи, которую как и тысячи других, затронули трагические события Второй мировой войны. Маленький мальчик растет, окруженный любовью и лаской своих родителей. Его воображение постоянно рисует ему необычные захватывающие приключения, которые они вместе с отцом с легкостью претворяют в жизнь. За это часто им попадает (   Читать дальше...   )Производство: Мексика, США, Metanoia FilmsЖанр: Драма, Комедия, ВоенныйРежиссер: Алехандро Гомес МонтевердеАктеры: Кевин Джеймс, Эли Ландри, Дэвид Хенри, Эмили Уотсон, Майкл Рапапорт, Тед Левайн, Том Уилкинсон, Абрахам Бенруби, Кэри-Хироюки Тагава, Бен ЧаплинПеревод: Многоголосый закадровый, профессиональный (FocusStudio)Субтитры: ОтсутствуютПродолжительность: 01:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714B59180E878D4766029FFCB9229AAE72A0F34C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370901   (893060) от 29.03.2020
-
-Кроха Tweaker 1.0.0.1 [Ru] (авторская раздача)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кроха Твикер позволяет даже самому неискушенному пользователю без знаний и труда  увеличить производительность системы WINDOWS 2000, XP, Vista, 7, 8, 10. Наиболее актуален для слабых ПК. Набор твиков пока невелик, но, если программа найдет свою аудиторию, буду расширять функционал.
-Программа написана на C# с использованием .NET 2.0, для универсальности и невысокой (   Читать дальше...   )Язык интерфейса: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6193555DF6C7F158283DCDC321E62C3AD4711DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993748   (893052) от 06.03.2016
-
-Игра на понижение / The Big Short (2015) BDRip [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда речь идет о деньгах, совесть молчит. А уж если речь об огромных деньгах!.. Это основанная на реальных событиях история нескольких провидцев, которые независимо друг от друга предсказали мировой экономический кризис 2008 года задолго до того, как о нем зашептались в кулуарах на Уолл-стрит. И предсказав, стали на нем зарабатывать. Сами того не желая.Производство: США, Plan B Entertainment, Regency EnterprisesЖанр: Драма, БиографияРежиссер: Адам МакКейАктеры: Кристиан Бэйл, Стив Карелл, Райан Гослинг, Брэд Питт, Мелисса Лео, Хамиш Линклэйтер, Джон Магаро, Рейф Сполл, Джереми Стронг, Мариса ТомейПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DE89EA2D77CC64315935D56F62BFCD6797C68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993648   (893049) от 06.03.2016
-
-Омерзительная восьмерка / The Hateful Eight (2015) BDRip [H.264/1080p] [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893049.jpg" />
-</div>
-
-
-###  Подробнее
-
-США после Гражданской войны. Легендарный охотник за головами Джон Рут по кличке Вешатель конвоирует заключенную. По пути к ним прибивается еще один охотник. Снежная буря вынуждает всех троих искать укрытие в лавке на отшибе, где уже расположилась весьма пестрая компания: генерал, шериф, мексиканец, француз и ковбой… И один из них — не тот, за кого себя выдает.Производство: США, The Weinstein CompanyЖанр: ВестернРежиссер: Квентин ТарантиноАктеры: Курт Рассел, Сэмюэл Л. Джексон, Тим Рот, Майкл Мэдсен, Дженнифер Джейсон Ли, Ченнинг Татум, Уолтон Гоггинс, Зои БеллПеревод: Профессиональный многоголосый, Одноголосый закадровый x3, Двухголосый закадровыйСубтитры: Русский (ненорматив), АнглийскийПродолжительность: 02:47:00Реклама: В дубляже есть голосовые вставки рекламы! удалил две вставки рекламы из DVO (Паровоз Продакшн)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64BD4E0524861F793A9AF7E1638327D22B4B77E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370069   (892981) от 29.03.2020
-
-Китай откажется от Windows в госсекторе через три года. Ее замена почти готова
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Власти Китая инициировали разработку новой системы Unity Operating System в рамках постепенного отказа от иностранного ПО, в частности, ОС Windows. Система создается в версиях для ПК и серверов и базируется на китайском Linux-дистрибутиве, в основе которого лежит Debian. Стабильная версия UOS вышла в январе 2020 г. Вместе с UOS и Deepin Китай разрабатывает еще несколько (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1284878   (724474) от 24.02.2019
+
+Майя Кристалинская - В Подмосковье Ловятся Лещи (1975) [FLAC 1.0|96/24|tracks+.cue|Vinyl-Rip] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В Подмосковье ловятся лещи
+02. Добрый мой друг
+03. Довоенное танго
+04. Я Ваша ВеснаЖанр: Pop, RetroПродолжительность: 00:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AEA6DA2EC770ACC48605C2C5F5FC73E157DA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 891917   (721449) от 25.04.2015
 
 Queen - The Game (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Pop Rock, Classic Rock>
@@ -6,7 +35,7 @@ Queen - The Game (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Pop Rock, Classic Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721449.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ Peter Frampton - Frampton Comes Alive! (1976) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721186.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ Deep Purple - In Rock (1970) Repress, 1973, Warner Bros. Records [FLAC 2.0|192/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719116.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Matia Bazar - Tournee' (1982) Recorded 1979 [FLAC 2.0|96/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719014.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ L. Subramaniam, S. Grappelli/Л. Субраманиам, С. Граппелли 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718680.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Mudvayne - Studio Albums (5 releases) (2000 - 2009) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718563.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ Lenny Kravitz - Music Box. Pop Super Best (2002) Unofficial Release [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714812.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ Black Sabbath - Легенды Зарубежного Рока (1999) Unofficial
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714715.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710094.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Toto Cutugno - L'Italiano (1983) 1984, Jugoton[FLAC|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706397.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ The Beatles - Rare Beatles (The Beatles On Air) (1993) Unofficial Release [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705145.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Saraya - Saraya [LP] (1989) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704926.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704410.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704345.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Axe - Offering (1982) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703076.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Van Halen - Fair Warning (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702915.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Annihilator - Дискография (24 releases) (1985-2022) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702796.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699842.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Wetton / Manzanera (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697922.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Lou Gramm - Ready Or Not (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694255.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Shy - Excess All Areas (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694127.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ George Harrison - Somewhere In England (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694000.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692986.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ The Beatles - The Beatles (White Album) (1968) 1977 [FLAC 2.0|192/24|image+.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690520.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Scorpions - Rock Believer (2022) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690368.jpg" />
 </div>
 
 
@@ -718,37 +747,6 @@ A1. Gas In The Tank
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:822F139309BF725B1322410F9AECF02A80566D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795718   (690186) от 12.06.2014
-
-Государственный симфонический оркестр СССР (дирижер Евгений Светланов) - Н. Римский-Корсаков - Шехеразада (симфоническая сюита по 1001 ночи, соч. 35) (1985) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Cl ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Море и корабль Синдбада  10:40
-2. Рассказ царевича Календера  11:38
-Сторона 2
-1. Царевич и царевна  11:02
-2. Багдадский праздник и корабль, разбивающийся о скалу с медным всадником  11:20Жанр: ClassicalПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642DF0C7A6B26DF6C1CC35C162EE7822F6A515E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

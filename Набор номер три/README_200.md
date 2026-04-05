@@ -1,3 +1,159 @@
+###  Публикация: 1206827   (781109) от 16.02.2018
+
+Три билборда на границе Эббинга, Миссури / Three Billboards Outside Ebbing, Missouri (2017) BDRip [H.264/1080p] [PR]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя несколько месяцев после убийства дочери Милдред Хейс преступники так и не найдены. Отчаявшаяся женщина решается на смелый шаг, арендуя на въезде в город три биллборда с посланием к авторитетному главе полиции Уильяму Уиллоуби. Когда в ситуацию оказывается втянут еще и заместитель шерифа, инфантильный маменькин сынок со склонностью к насилию, офицер Диксон, (   Читать дальше...   )Производство: Великобритания, США / Blueprint Pictures, Film 4, Fox Searchlight PicturesЖанр: Криминал, ДрамаРежиссер: Мартин МакДонаАктеры: Фрэнсис МакДорманд, Вуди Харрельсон, Сэм Рокуэлл, Джон Хоукс, Питер Динклэйдж Калеб, Лэндри Джонс, Лукас Хеджес, Эбби Корниш, Керри Кондон, Даррел Бритт-ГибсонПеревод: Дублированный (Лицензия BD CEE), Одноголосый закадровый, авторский (Михаил Яроцкий) (Субтитры: Русские, Украинские, АнглийскиеПродолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA56545CD5D3CDCE02C518B8FD7664D59A8D1B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207002   (781108) от 16.02.2018
+
+Photodex ProShow Producer 9.0.3793 RePack (& portable) by KpoJIuK + Effects Pack 7.0  [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781108.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProShow Producer – новая версия приложения для создания профессиональных презентаций, которая включает в себя сотни новых функций и обновленный интерфейс. Программа поддерживает работу со слоями и дает возможность использовать неограниченное число слоев для каждого слайда. Программа поддерживает прозрачность для файлов PSD, PNG, TIFF и GIF, дает возможность использовать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D0A4933B4064F5D0AB157186C57B8284063C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200922   (781047) от 14.05.2010
+
+Глухарь в кино (2010) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два друга детства работают в одном отделении милиции. Сергей Глухарев — следователь, Денис Антошин — оперативник. Вечер, который они проводят с друзьями в ресторане, преподносит им ужасный сюрприз. Случайная ссора с одним из посетителей, после которого его находят убитым, переворачивает всю жизнь Глухарева и Антошина. Друзья объявлены в розыск как опасные преступники. (   Читать дальше...   )Производство: Россия, DIXI-TVЖанр: Комедия, Криминал, ДетективРежиссер: Владимир ВиноградовАктеры: Максим Аверин, Денис Рожков, Юрий Чурсин, Павел Басов, Вячеслав Манучаров, Борис Химичев, Любава Аристархова, Алексей Серебряков, Владимир Фекленко, Мария РассказоваПеревод: ОригинальныйПродолжительность: 01:26:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200971   (781046) от 14.05.2010
+
+Туман (2010) [H.264] DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд молодых бойцов Российской Армии отрывается от основного строя во время марш-броска, дабы сократить путь, бежит наперерез, но попадает в туман, который переносит его в прошлое, в годы Великой Отечественной войны. Ребята, видевшие войну только в кино, попадают в лапы безжалостных событий того времени. Все на грани: храбрость, страх, любовь, ненависть, жизнь, (   Читать дальше...   )Производство: РоссияЖанр: Драма, ВоенныйРежиссер: Иван Шурховецкий, Артем АксененкоАктеры: Игорь Шмаков, Василий Ракша, Артем Крестников, Григорий Калинин, Евгений Куршинский, Дмитрий Росляков, Вячеслав Буцков, Светлана Устинова, Алексей Марков, Илья Глинников, Родион Галюченко, Дмитрий Сергин, Иван Лапин, Алексей ИльинПеревод: ОригинальныйПродолжительность: 02:31:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391158   (780925) от 20.06.2020
+
+МВД требует от «Т-платформ» заменить 9 тыс. «некондиционных» ПК на «Байкалах»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780925.jpg" />
+</div>
+
+
+###  Подробнее
+
+По решению суда процессоры «Байкал» будут исследованы в специализированной лаборатории, которая даст заключение о соответствии их частотных характеристик заявленных производителем параметрам. Выводы экспертов послужат ответом на вопрос, вправе ли МВД требовать от компании «Т-платформы» замены свыше 9 тыс. компьютеров, которые министерство считает не отвечающим требованиям (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391430   (780921) от 20.06.2020
+
+Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный психологический экшен-триллер Beyond: Two Souls с участием голливудских суперзвезд голливудских суперзвезд Эллен Пейдж и Виллема Дефо уносит вас в увлекательное путешествие по всему миру, в котором вы проживете часть удивительной жизни Джоди Холмс. Джоди не такая как все: с рождения она обладает связью с таинственным существом с невероятными способностями. (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure (Interactive Movie), Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B188AE7AE8444FB75AB4D59419FFC02F247186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206825   (780687) от 17.02.2018
 
 Сотрудников Почты России задержали за воровство смартфонов в ходе спецоперации
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780687.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780683.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Windows 7 Ultimate SP1 x64 Elgujakviso Edition (v.16.02.18) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780682.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ RogLifecom VPN - PPTP/L2TP/IPsec/IKEv2/SSTP/OpenVPN
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780681.jpg" />
 </div>
 
 
@@ -122,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780634.jpg" />
 </div>
 
 
@@ -148,7 +304,7 @@ Windows 7 PROFESSIONAL X86 v.7601.16556[PRE SP1,v.172]RUS [русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_780624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_780624.jpg" />
 </div>
 
 
@@ -181,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780623.jpg" />
 </div>
 
 
@@ -207,7 +363,7 @@ H2O: Просто добавь воды / H2O: Just Add Water (полный 3 С
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780621.jpg" />
 </div>
 
 
@@ -236,7 +392,7 @@ Bishoujo Senshi Sailor Moon / Pretty Soldier Sailor Moon / Сейлор Мун: 
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780620.jpg" />
 </div>
 
 
@@ -262,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780456.jpg" />
 </div>
 
 
@@ -288,7 +444,7 @@ Microsoft разработала «ультрапроизводительный�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780449.jpg" />
 </div>
 
 
@@ -315,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780444.jpg" />
 </div>
 
 
@@ -341,7 +497,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 02.2018 2 DVD [R
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780442.jpg" />
 </div>
 
 
@@ -367,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780440.jpg" />
 </div>
 
 
@@ -393,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780353.jpg" />
 </div>
 
 
@@ -420,7 +576,7 @@ Win 10 Tweaker 5.6 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780335.jpg" />
 </div>
 
 
@@ -446,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780333.jpg" />
 </div>
 
 
@@ -472,7 +628,7 @@ NI сравнил российский Су-35 с американским F-35
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780324.jpg" />
 </div>
 
 
@@ -498,7 +654,7 @@ Adobe Photoshop CC 2018 19.1.1 (x64) RePack by JFK2005 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780316.jpg" />
 </div>
 
 
@@ -524,7 +680,7 @@ MAGIX Vegas Pro 15.0 Build 311 RePack by KpoJIuK  [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780160.jpg" />
 </div>
 
 
@@ -535,162 +691,6 @@ MAGIX Vegas PRO — профессиональная программа для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315EB7D3E47D7B3F680977ECE650DF8035D67463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207897   (780139) от 20.02.2018
-
-Скиф (2017) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит во время смены цивилизаций. В Евразии начинается новая эра. Ушли в небытие гордые воины — скифы, их вымирающие потомки превратились в безжалостных наемных убийц, «волков Ареса». Ратнику Лютобору предстоит тяжелое испытание. Втянутый в междоусобные интриги он отправляется в опасный путь ради спасения семьи, а его проводником становится пленный (   Читать дальше...   )Производство: Россия, Кинокомпания СТВЖанр: Драма, История, Фэнтези, Боевик, ПриключенияРежиссер: Рустам МосафирАктеры: Алексей Фаддеев, Виталий Кравченко, Александр Кузнецов, Александр Пацевич, Юрий Цурило, Андрей Пермяков, Василиса Измайлова, Алексей Овсянников, Фёдор Рощин, Рустам МосафирПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027B7A68246834569C25178A1076CC1B8B356027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207877   (780135) от 20.02.2018
-
-Red Giant Magic Bullet Suite 13.0.6 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Giant Magic Bullet Suite — пакет мощных плагинов для профессиональной цветокорекции, регулировки освещения используемые в программах: Adobe After Effects, Adobe Premiere Pro, Adobe Photoshop, Sony Vegas. В комплект входят основные инструменты: Magic Bullet Looks 3, Magic Bullet Colorista III, Magic Bullet Film, Magic Bullet Mojo 2, Magic Bullet Cosmo 2, Denoiser (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D0C586B0C31404970D905B071AECAE3B33AFDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062747   (780134) от 20.02.2018
-
-Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) Repack Other s [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Warrior 2 — продолжение ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры 1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog. В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A07E937C60E61AB87F932BC71E10ACCD853F144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062599   (780133) от 20.02.2018
-
-Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/upd17/dlc) Repack =nemos= [Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Warrior 2 - продолжение  ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры  1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog.  В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EAD37D80C2EC54E5BD376E6A3CC73B06A517ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207986   (780033) от 21.02.2018
-
-Роскомнадзор признал невостребованность закона о блокировке VPN-сервисов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закон действует уже три месяца, но ни один сервис его не исполняет.Роскомнадзор за три месяца действия закона о блокировке VPN-сервисов ещё ни разу не требовал ни от одного сервиса или анонимайзера блокировать для пользователей доступ к сайтам, которые внесены в реестр запрещенной информации. Об этом РБК сообщил представитель ведомства.Закон о запрете обхода блокировок (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208432   (779862) от 22.02.2018
-
-Новые правила прохождения техосмотра вступили в силу
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_779862.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России вступили в силу новые правила прохождения техосмотра. Постановление правительства опубликовано на официальном интернет-портале правовой информации.Теперь автомобилисты обязаны иметь не только знак аварийной остановки, но и аптечку.Кроме того, новый регламент запрещает эксплуатировать машину при повреждениях и дефектах усилителя руля.При использовании шипованной (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

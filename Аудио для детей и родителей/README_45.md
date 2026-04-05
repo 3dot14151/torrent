@@ -1,3 +1,32 @@
+###  Публикация: 364120   (565242) от 16.07.2011
+
+Григорий Гладков - Песни для детей и их родителей (песни из мультфильмов) (1995) [MP3|320 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Будильник
+02. Если видишь на картине
+03. Закрывать и открывать глаза
+04. А может, а может...(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFDD4FB7B1EFAB1FC5DDE8ACA97CC57D3D81973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923183   (564530) от 31.07.2015
 
 Дмитрий Мамин-Сибиряк | Сказки (2015) [MP3, Владимир Самойлов]
@@ -6,7 +35,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564530.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564465.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560912.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560811.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560708.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559538.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559231.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559161.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557973.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557531.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ VA - Babydream. Nature sounds vol.6 (2001) [MP3|320 kbps]<Классика дл�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557280.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ VA - Классика для малышей (2008) [MP3|320 kbps]<Классич
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557207.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ VA - Лучшая Классика Для Малышей (2011) [MP3|256 kbps]<�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557204.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ VA - Классика для малышей (Самые прекрасные м�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557173.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557160.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556520.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555670.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554259.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552653.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546400.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546359.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540567.jpg" />
 </div>
 
 
@@ -593,7 +622,7 @@ VA - Самые лучшие песни детям (2011) [MP3|320 kbps]<Дет�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540432.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538537.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537266.jpg" />
 </div>
 
 
@@ -659,35 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A2EF44233EB230E38BAB3118B71EE38250516C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366871   (537096) от 23.07.2011
-
-Группа Кукуруза и Григорий Гладков - Чудак, Птичий Рынок и Фокусник (1996) [MP3|320 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чудак
-02. Птичий Рынок
-03. Песня деревенского парня, решившего побывать на ярмарке
-04. А помнишь?(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AC1EA9DE718B588D0CB9EA6FD0D6321B9AB966
 ```
 
 https://mybot314.ru/tekegram_catalog/

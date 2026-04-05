@@ -1,3 +1,55 @@
+###  Публикация: 1717911   (48679) от 27.07.2024
+
+Our Adventurer Guild (2024) [En] (1.24) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Our Adventurer Guild - ролевая игра, где вы переместитесь в фэнтезийный мир в весьма необычной роли. Возглавьте Гильдию искателей приключений и проявите себя в качестве мудрого лидера, которому под силу объединить распадающуюся на части общину или стать началом ее конца. Привлекайте отважных героев, обеспечивайте их необходимым снаряжением и сопровождайте в путешествиях, (   Читать дальше...   )Тип издания: SceneРазработчик: GreenGuyЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E670606A25DCEADDF3E5614B7BCC3F0741D8E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739272   (48663) от 27.07.2024
+
+Weko The Mask Gatherer (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Weko The Mask Gatherer - это не обычная прогулка по парку. Конечно, вы играете за Уэко, искателя приключений, склонного к необычным головным уборам, но этот 3D экшен-адвенчура бросает вас с головой в мир, полный тайн и опасностей. Забудьте о солнышке и леденцах - Уэко выполняет миссию по сбору семи могущественных Первозданных масок, и путь к ним чреват опасностями. (   Читать дальше...   )Тип издания: SceneРазработчик: SIRO GAMES SarlЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Французский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB2F735C36D560B2B8C406822D0DCDEAA4A7B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739270   (48653) от 27.07.2024
 
 Suppress Academician (2024) [Multi] (1.0) Scene Tenoke
@@ -6,7 +58,7 @@ Suppress Academician (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48653.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48585.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.3.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48529.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Thaumaturge (2024) [Ru/Multi] (1.1.1 HotFix) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48454.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Ruzar - The Life Stone (2015) [Ru/Multi] (1.0) Scene PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48346.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Ruzar - The Dark Stones (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48339.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Secrets of Magonia (2024) [En] (1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48230.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Space Prison (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48201.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Dread Delusion (2024) [En] (1.1.0.13) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48123.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ ELDEN RING (2022) [Ru/Multi] (1.13/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48116.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48107.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Oblivion Override (2024) [Multi] (1.1.2.1574) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48038.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48008.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47833.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47823.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Earl vs. the Mutants (2024) [Ru/Multi] (1.0) Scene Unleashed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47796.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Octopath Traveler II (2) (2023) [Multi] (1.1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47788.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Citizen Sleeper (2022) [En] (1.4.9) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47716.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ USC: Counterforce (2023) [Multi] (1.00.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47710.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47699.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ LunarLux (2023) [Multi] (1.371) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47570.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Arranger: A Role-Puzzling Adventure (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47395.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0-012215) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47388.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47278.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27C5B715A0BB33589C40DB60EE587F3BFCE38E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742122   (47258) от 10.08.2024
-
-Deathbound (2024) [Ru/Multi] (1.1.3) Scene FairLight
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deathbound - действие игры разворачивается в средневековом мире Зиеминал, в котором технологическое прошлое сочетается со средневековым настоящим и где сталкиваются жизнь и смерть. В Deathbound игроки управляют существом, которое является результатом экспериментов по обретению вечной жизни, проводимых Культом Жизни. Тем временем Церковь Смерти отправляется в крестовый (   Читать дальше...   )Тип издания: SceneРазработчик: Trialforge StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3C34756C83D6D11A15969387563A19D65407B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742139   (47241) от 10.08.2024
-
-That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединитесь к любимым героям аниме-сериала и станьте творцом новой истории о Федерации Джуры-Темпеста! Игроков ждут захватывающие бои с использованием эффектных способностей и мощных комбо-атак. Укрепляйте дружбу со своими соратниками, чтобы сражаться с ними плечом к плечу и открывать для Римуру новые спецатаки. Применяйте анимированные в 8-битном стиле спецнавыки (   Читать дальше...   )Тип издания: SceneРазработчик: ZOC Co.,Ltd.Жанр: Экшены, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Немецкий, Французский, Китайский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198A87EB17BFD522D9888E392F832D3378EEF93C
 ```
 
 https://mybot314.ru/tekegram_catalog/

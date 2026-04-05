@@ -6,7 +6,7 @@ Snark Bustero 1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_381827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381827.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ DiskDigger Pro 1.0 (10.30.2016) [Rus] - Восстановление удалё�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381809.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Driver San Francisco 1.1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_381523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381523.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Songs Explorer: перевод песен 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380803.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_380249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380249.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380070.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379974.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Flick Soccer! 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379919.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ A Monster Ate My Homework 1.0.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379640.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Further Beyond Fighting 1.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379530.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Angry Viking  2.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379445.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ F18 Carrier Landing (1.5) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379438.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379273.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Pinball HD 1.0_2077/1.0._2411 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379049.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378876.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Minecraft — Pocket Edition  v0.12.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378733.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Mic Block - Anti spy & malware v1.13 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377236.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Skype 6.7.99.460 AdFree[Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377123.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Draft - Icon Pack 1.13 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376884.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Yandex Launcher 1.02 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376876.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Devo - Icon Pack 4.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376734.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Grand Theft Auto III v 1.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376584.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376574.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ iRoot 3.1.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375364.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ FlashLight HD LED Pro 1.93.14 [Ru] - LED фонарик
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374988.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ PrimU Walls 1.0.9 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374856.jpg" />
 </div>
 
 

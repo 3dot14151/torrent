@@ -1,3 +1,82 @@
+###  Публикация: 1439329   (1040061) от 12.01.2021
+
+Nitro4D NitroMoFracture v1.06 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это абсолютно новый плагин для разрушения.
+С помощью NitroMoFracture можно легко разрушать любые объекты,просто добавьте удивительный новый инструмент для AutoFracture к вашему объекту (-ам) в вашей сцене, измените некоторые настройки, нажмите play и посмотрите результаты в режиме реального времени. Очень легко внести изменения, чтобы увидеть разные идеи.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C61CEC7BBD75500E21633DE949725DC5AC7A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439328   (1040059) от 12.01.2021
+
+Nitro4D NitroDraw v1.25 For Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040059.jpg" />
+</div>
+
+
+###  Подробнее
+
+NitroDraw - это плагин с которым можно осуществлять размещения объектов на любой поверхности в cinema4d. Вы можете разместить модель по своему желанию путем рисования кистью, что более удобно и произвольно.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202651D97C6EAA28F90BA6B26B69DB40DC1F41E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439327   (1040058) от 12.01.2021
+
+Nitro4D NitroBoxTool v1.07 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин NitroBoxTool - это новый метод моделирования твердых поверхностей, вы можете рисовать и выбирать моделирование по желанию, и его можно применять к клону, зеркалу, сплайну, многоугольному объекту, фаске и т. ДЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F815859D040C5F6DCBC9B01F85439F19F2621B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439325   (1040052) от 12.01.2021
 
 Nitro4D NitroBake3 v3.02  for Cinema 4D [En]
@@ -6,7 +85,7 @@ Nitro4D NitroBake3 v3.02  for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040052.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Nitro4D NitroEdgeDeformerTool v1.05 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040050.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ C4DZone QuadCaps v1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040040.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Laubwerk SurfaceSPREAD v2.0.4 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040037.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ Sitni Sati FumeFX 5.0.4 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040003.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ Ornatrix v2 2.0.10.26200 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039999.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ TurbulenceFD v1.0 build 1465 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039995.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ Transform v1.231S for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038421.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ Reallusion Cartoon Animator 4.41.2431.1 RePack by PooShock [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037046.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ Realbook v3.1 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035650.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ HB MODELLINGBUNDLE v2.31 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034321.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ Solid Angle To Arnold 3.3.0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033366.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ U-RENDER 2021.1.3 for Cinema 4D [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032843.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ Nitro4D QuickRender v1.02 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025052.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ Terraform4D v1.1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024825.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ MagicaVoxel 0.99.6.3 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022383.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ PolyDesign3D - PolySnow Plus 1.01 for 3ds Max 2016-2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018354.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ PolyDesign3D - PolyCloth 2.02 for 3ds Max 2016-2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018347.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ Aspire 10.514 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018324.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ Multiscatter 1.618 for 3ds Max 2014-2021 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017989.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ ArchvizTools - Kitchen Cabinet Generator 4.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013142.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010883.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010722.jpg" />
 </div>
 
 
@@ -596,85 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C7CC47211EF182D89E9A42613F186F95E0BB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480413   (1008943) от 28.06.2021
-
-ArchvizTools - Picture Frame Generator 1.2 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генератор рамок изображения - это скрипт, который автоматически создает 3D-модель рамки изображения в 3dsMax. Имеет много стилей рамок с гибкой возможностью настройки под необходимый размер стены.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D757B5F04C541C3EA90994E47799F4F498C9EC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480419   (1008927) от 28.06.2021
-
-ArchvizTools - Sliding & Stacking Door Generator 2.0 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин для генерации пластиковых раздвижный дверей. В своём арсенале имеет много популярных форм-факторов, с возможностью настройки ширины и высоты.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81180AE76D6ACC57FF0D92DA079CA903F9084AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351763   (1001517) от 12.01.2020
-
-RayFire 1.84 for 3ds max 2020 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный в своем роде плагин для 3DS Max, позволяющий симулировать разрушение объектов от столкновений и выстрелов.
-Фрагментируйте предметы, уничтожайте, разрушайте, крушите, ломайте, сейте хаос, взрывайте, устраивайте цепную детонацию и многие другие спецэффекты, которые вы всегда мечтали сделать в «Максе», с новой версией известного плагина Rayfire, теперь для (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB11F1DE6491661D1BCFC3309417ABAC81EF350A
 ```
 
 https://mybot314.ru/tekegram_catalog/

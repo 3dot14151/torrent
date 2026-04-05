@@ -1,3 +1,133 @@
+###  Публикация: 531777   (539720) от 06.08.2012
+
+Пираты! Банда неудачников / The Pirates! Band of Misfits (2012) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация первой книги из серии романов писателя Гидеона Дефо, рассказывающих о банде незадачливых пиратов. В первой части пираты прибывают в Лондон, где знакомятся с молодым Чарльзом Дарвином и говорящим шимпанзе по имени Мистер Бобо, а также столкнутся с врагами, которые хотят их уничтожить.Производство: США, Великобритания | Aardman Animations, Sony Pictures AnimationЖанр: Мультфильм, Приключения, КомедияРежиссер: Питер Лорд, Джефф НьюиттПерсонажи: Хью Грант, Брендан Глисон, Джереми Пивен, Брайан Блессид, Ленни Генри, Сальма Хайек, Коннор Бирн, Мартин Фриман, Эшли Дженсен, Питер ЛордПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1034F4726365D060F84EE0A0D5DDCBD5B83E6AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050066   (539665) от 07.09.2016
+
+Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о том, как началось знаменитое противостояние птичек и свинок, персонажей популярной компьютерной игры, а также раскроет некоторые секреты любимых героев.Производство: США / Sony Pictures Animation, Sony Pictures Imageworks (SPI)Жанр: Семейный, Боевик, КомедияРежиссер: Фергал РейлиПерсонажи: Питер Динклэйдж, Джейсон Судейкис, Билл Хейдер, Кигэн-Майкл Ки, Джош Гад, Дэнни МакБрайд, Майя Рудольф, Даниэль Брукс, Джеффри Аренд, Айк БаринхолцПеревод: Дублированный (Лицензия BD NORDiC)Язык субтитров: Русский, АнглийскийПродолжительность: 01:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B908F80F47791C5AD0B023861D88C84089B421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050084   (539535) от 07.09.2016
+
+Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о том, как началось знаменитое противостояние птичек и свинок, персонажей популярной компьютерной игры, а также раскроет некоторые секреты любимых героев.Производство: США, Финляндия / Columbia Pictures, LStar Capital, Rovio Animation, Rovio Entertainment, Rovio Mobile, Sony Pictures Animation, Sony Pictures Imageworks, Village Roadshow PicturesЖанр: Мультфильм, Боевик, Комедия, СемейныйРежиссер: Клэй Кэйтис, Фергал РейлиАктеры: Джейсон Судейкис, Джош Гад, Дэнни МакБрайд, Майя Рудольф, Билл Хейдер, Питер Динклэйдж, Шон Пенн, Кигэн-Майкл Ки, Кейт МакКиннон, Тони Хейл, Хэннибал Бёресс, Айк БаринхолцПеревод: Дублированный (Blu-ray NORDiC)Язык субтитров: Русский (Forced, Full), АнглийскийПродолжительность: 01:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9073A09A76965E4A0F420772BB694C942CE2685B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226899   (539449) от 14.08.2010
+
+Волк и теленок (1984) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шутливая история о волке, который теленка не съел, а усыновил. Притащил Волк домой Теленка, да тот оказался таким маленьким и жалким, что решил он его сначала откормить. Откармливал-откармливал, да и привязался, как к родному.Жанр: Кукольный, ДетскийРежиссер: Михаил КаменецкийПерсонажи: Волк, Теленок, Кабан, Лиса, МедведьПродолжительность: 00:09:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557598   (539055) от 16.06.2022
+
+Леди Баг и Супер-кот / Miraculous: Tales of Ladybug & Cat Noir (2021-2022) WEBRip [H.264/1080p-LQ] (сезон 4, серии 1-26 из 26) Кириллица
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адриан и Маринетт — старшеклассники, почти как все остальные. При малейшей угрозе Парижу они становятся Леди Баг и Супер-котом. Их миссия — захватить акум (тёмных бабочек), которые превращают людей в суперзлодеев. Когда герои объединяются, каждый из них не знает истинной личности другого. Маринетт не знает, что Супер-кот на самом деле Адриан — мальчик в которого (   Читать дальше...   )Производство: Франция, Корея Южная, Япония, США / Zagtoon, Toei Animation, Method AnimationЖанр: мультфильм, фэнтези, детский, боевик, мелодрама, приключения, семейныйРежиссер: Томас АстрюкАктеры: Кристина Валенсуэла, Бен Дискин, Фанни Блок, Бенжамин Болен, Мари Шевало, Анук Отбуа, Тьерри Казазиан, Jessie Lambotte, Жильбер Леви, Александр Н’ГуэнПеревод: Дублированный (Кириллица)Язык озвучки: РусскийПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57539A1852E75525BDC51376B167769D8AFAB7EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818585   (539014) от 04.09.2014
 
 Лего. Фильм / The Lego Movie (2014) BDRip [H.264/1080p-LQ]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539014.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538681.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538569.jpg" />
 </div>
 
 
@@ -88,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538335.jpg" />
 </div>
 
 
@@ -114,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538333.jpg" />
 </div>
 
 
@@ -142,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538196.jpg" />
 </div>
 
 
@@ -168,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537960.jpg" />
 </div>
 
 
@@ -194,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537783.jpg" />
 </div>
 
 
@@ -220,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537366.jpg" />
 </div>
 
 
@@ -246,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537221.jpg" />
 </div>
 
 
@@ -272,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536716.jpg" />
 </div>
 
 
@@ -298,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536706.jpg" />
 </div>
 
 
@@ -324,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536563.jpg" />
 </div>
 
 
@@ -350,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536015.jpg" />
 </div>
 
 
@@ -376,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535952.jpg" />
 </div>
 
 
@@ -402,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535950.jpg" />
 </div>
 
 
@@ -428,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535740.jpg" />
 </div>
 
 
@@ -455,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535739.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535736.jpg" />
 </div>
 
 
@@ -508,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535722.jpg" />
 </div>
 
 
@@ -534,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535716.jpg" />
 </div>
 
 
@@ -545,138 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F125D67FDF4A9EDB7D9DDB1BC2F2895F73B64522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 697318   (535577) от 05.09.2013
-
-Мой маленький пони. Девочки из Эквестрии / My Little Pony. Equestria Girls (2013) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следуя за похитившим корону Кристальной Империи вором, Твайлайт Cпаркл попадает в альтернативный мир, в котором она превращается в девочку-подростка и сталкивается с самым серьёзным испытанием в своей жизни — старшей школой! При помощи своих новых друзей, которые напоминают ей оставшихся в Понивилле Эпплджек, Рэрити, Рэйнбоу Дэш, Пинки Пай и Флаттершай, она начинает (   Читать дальше...   )Жанр: Мультфильм, фэнтези, семейныйПеревод: Одноголосый закадровый (Трина Дубовицкая)Язык субтитров: НетПродолжительность: ~ 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66315736C912DDC57DA4B46FDA6C8DF8C21F45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 697111   (535573) от 05.09.2013
-
-Эпик / Epic (2013) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535573.jpg" />
-</div>
-
-
-###  Подробнее
-
-После долгой разлуки юная Мэри Кэтрин возвращается в дом, где отшельником живет ее отец, безумный профессор Бомба. Однако тот совсем не обращает внимания на дочь и одержим лишь одной идеей — изучить скрытый от посторонних глаз таинственный лесной мир. Девушка отказывается верить, что под ногами человечества идет вечная борьба между армиями, воюющими на сторонах добра (   Читать дальше...   )Производство: США, 20th Century Fox Animation, Blue Sky StudiosЖанр: Мультфильм, Фэнтези, Приключения, Комедия, СемейныйРежиссер: Крис УэджПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: AнглийскийПродолжительность: 01:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7F9E3999BE4BEF4E0C80B6FC061A82B968845D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819069   (535441) от 06.09.2014
-
-ВАЛЛ·И / WALL·E (2008) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робот ВАЛЛ·И из года в год прилежно трудится на опустевшей Земле, очищая нашу планету от гор мусора, которые оставили после себя улетевшие в космос люди. Он и не представляет, что совсем скоро произойдут невероятные события, благодаря которым он встретит друзей, поднимется к звездам и даже сумеет изменить к лучшему своих бывших хозяев, совсем позабывших родную Землю.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Фантастика, Мелодрама, Приключения, СемейныйРежиссер: Эндрю СтэнтонАктеры: Бен Бертт, Элисса Найт, Джефф Гарлин, Фред Уиллард, Джон Ратценбергер, Кэти Нэджими, Сигурни УиверПеревод: Дублированный ,Многоголосный закадровый ,Одноголосный закадровыйПродолжительность: 01:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E4282992F2942CA80D95028AA077503FB5022F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819285   (535324) от 06.09.2014
-
-Пат и Мат / Pat & Mat (1976 - 2004) DVDRip (77 серий из 87)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поломалось — починим, отвалилось — прикрутим, оторвалось — пришьем. Чем невероятнее задача — тем быстрее друзья принимаются за дело!
-Пат и Мат — не только приятели и соседи, вот уже долгие годы их объединяет неуемная страсть делать все своими руками. И пусть иногда кажется,
-что они безнадежно неуклюжи и бестолковы, что результат никогда не соответствует первоначальному (   Читать дальше...   )Производство: Чехословакия, Чешская РеспубликаЖанр: КукольныйРежиссер: Любомир Бенес, Марек БенесПеревод: Немой, перевод не требуетсяПродолжительность: 77 х ~ 00:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303D34D505332509E285E80118EC64EF4BD219DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818904   (535223) от 06.09.2014
-
-ВАЛЛ·И / WALL·E (2008) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робот ВАЛЛ·И из года в год прилежно трудится на опустевшей Земле, очищая нашу планету от гор мусора, которые оставили после себя улетевшие в космос люди. Он и не представляет, что совсем скоро произойдут невероятные события, благодаря которым он встретит друзей, поднимется к звездам и даже сумеет изменить к лучшему своих бывших хозяев, совсем позабывших родную Землю.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фантастика, приключения, семейныйРежиссер: Эндрю СтэнтонПеревод: Дублированный ,Многоголосный закадровый ,Одноголосный закадровыйСубтитры: Русские, Украинские, АнглийскиеПродолжительность: 01:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823B27889B467F81A71AD24338FF57B012DB6F51
 ```
 
 https://mybot314.ru/tekegram_catalog/

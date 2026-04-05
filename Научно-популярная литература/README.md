@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062988.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062622.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062033.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062029.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062026.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062025.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062024.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062023.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061895.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061891.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061890.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061049.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057344.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055905.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055900.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055818.jpg" />
 </div>
 
 
@@ -432,33 +432,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851161   (1055085) от 01.02.2026
-
-Н.В. Бесов, Н.А. Карасева, Г.С. Михайлов и др. | Инструкция для изготовления из игл хвойных деревьев настоя, содержащего витамин C (1943) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструкция — историческое методическое пособие 1943 года по разработке доступного способа получения витамина C из свежей хвои (сосна, ель) в условиях нехватки свежих овощей и фруктов во время Великой Отечественной войны, содержащая подробные рекомендации по получению витаминного напитка, критически важного для борьбы с цингой, особенно в зимний период.
-Этот документ (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ВНИВИ, Госсанинспекция г. ЛенинградаФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D9063C18D8601BA7CA844D26577A4A61D68ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850532   (1054697) от 29.01.2026
 
 И.И. Адабашев | От камня до мозга (1968) [DJVU]
@@ -467,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054697.jpg" />
 </div>
 
 
@@ -493,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054621.jpg" />
 </div>
 
 
@@ -519,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052603.jpg" />
 </div>
 
 
@@ -545,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052457.jpg" />
 </div>
 
 
@@ -571,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052180.jpg" />
 </div>
 
 
@@ -597,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051987.jpg" />
 </div>
 
 
@@ -623,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051889.jpg" />
 </div>
 
 
@@ -649,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051887.jpg" />
 </div>
 
 
@@ -675,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051886.jpg" />
 </div>
 
 
@@ -688,6 +661,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682600E6B6742D672E29F26DF7C375CC1D9F4B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846772   (1051808) от 09.01.2026
+
+Луис Кинтана-Мурси | Люди. По следам наших миграций, приспособлений и поисков компромиссов (2024) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как связаны неандертальцы с вирусом COVID-19? Можно ли выключить ген, отвечающий за СПИД? Отвечая на эти и другие злободневные вопросы, Луис Кинтана-Мурси привлекает актуальные генетические исследования, анализирует наше прошлое и предлагает задуматься о будущем.
+Луис Кинтана-Мурси – профессор, заведующий кафедрой геномики и эволюции человека в Коллеж де Франс, профессор (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Полина ДроздоваИздательство: БомбораФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD6A65EA95050014A264C0974F04F64642B4CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

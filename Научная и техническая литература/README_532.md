@@ -1,135 +1,3 @@
-###  Публикация: 1638375   (197364) от 08.06.2023
-
-О.В. Шишов | Программируемые контроллеры в системах промышленной автоматизации (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник посвящен вопросам проектирования систем автоматизированного управления технологическими процессами низового и среднего звена производства на базе программно-технических комплексов, включающих кроме программируемых контроллеров операторные панели, устройства связи с объектом, цифровые сети, интеллектуальные датчики и исполнительные механизмы.
-Рассматриваются (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF81F76B6B622937B4DDE5F263818A49988F136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 267350   (197363) от 06.06.2023
-
-Шимон Датнер | Преступления немецко-фашистского вермахта в отношении военнопленных во Второй Мировой войне [1963] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197363.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Нюрнбергском процессе по делу главных немецких военных преступников были осуждены невиданные дотоле как по своим масштабам, так и по бесчеловечности кровавые злодеяния людоедов XX века, включавшие дикие насилия и зверства над миллионами мужчин и женщин, стариков и детей в оккупированных фашистами странах, рабский принудительный труд огромных масс невольников на (   Читать дальше...   )Язык: РусскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4070B52647C20FACB9B9B85FFF56050A51601700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638378   (197299) от 08.06.2023
-
-Александр Никонов | Квантовая механика и парадоксы (2023) [PDF, EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никонов Александр Петрович – автор более двух десятков художественных и научно-популярных книг. Будучи без пяти минут кандидатом наук, бросил уже написанную диссертацию и ушел из науки сначала в журналистику, а потом в писательство, где немало преуспел: стал лауреатом премий Союза журналистов России (2001) и Союза журналистов Москвы (2002). За вклад в отечественную (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C58464014CB60C1C8AF8B3994BE0B14C1AB244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639217   (197208) от 12.06.2023
-
-Г.Ю. Касьянова (ред.) | Охрана труда. Универсальный справочник (2023) [PDF]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник является уникальным в своем роде. В нем приводятся все основные нормативные документы по охране труда. Комментарий-путеводитель к сборнику подготовлен с учетом последних изменений в законодательстве (включая вступающие в силу с 01.03.2023 и с 01.09.2023), также описан порядок учета и налогообложения расходов, связанных с охраной труда.
-Книга адресована (   Читать дальше...   )Жанр: Охрана трудаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45233A04368C92C7C99321B0B3E27F6CD2C78C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639204   (197198) от 12.06.2023
-
-ЦЕНТРМАГ | Новейший сборник законов для электрика (2023) [PDF]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит актуальные тексты ПОТЭЭ, ПТЭЭП, Правил работы с персоналом в организациях электроэнергетики РФ, Инструкции по применению и испытанию средств защиты, используемых в электроустановках, Правил технической эксплуатации электрических станций и сетей РФ с последними изменениями и дополнениями. Для работников организаций, занятых техническим обслуживанием (   Читать дальше...   )Жанр: Электротехника, электробезопасностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F72137B59941A7AB101AFDE090EFAE8CF95F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639339   (197167) от 13.06.2023
 
 И.М. Виноградов (гл.ред.) | Математическая энциклопедия (1977-1985) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197167.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197151.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197150.jpg" />
 </div>
 
 
@@ -219,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197146.jpg" />
 </div>
 
 
@@ -245,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197144.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196924.jpg" />
 </div>
 
 
@@ -300,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196920.jpg" />
 </div>
 
 
@@ -326,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196903.jpg" />
 </div>
 
 
@@ -354,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196899.jpg" />
 </div>
 
 
@@ -380,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196898.jpg" />
 </div>
 
 
@@ -406,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196891.jpg" />
 </div>
 
 
@@ -432,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196851.jpg" />
 </div>
 
 
@@ -458,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196850.jpg" />
 </div>
 
 
@@ -484,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196640.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196484.jpg" />
 </div>
 
 
@@ -537,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196447.jpg" />
 </div>
 
 
@@ -563,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196438.jpg" />
 </div>
 
 
@@ -589,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196386.jpg" />
 </div>
 
 
@@ -615,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196308.jpg" />
 </div>
 
 
@@ -641,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196300.jpg" />
 </div>
 
 
@@ -667,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196188.jpg" />
 </div>
 
 
@@ -678,6 +546,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:035843A82FDE11186D515AA544599294B1410E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644575   (196134) от 06.07.2023
+
+Н.М. Матвеев (ред.) | Курс математики для техникумов (1976 - 1977) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс математики для техникумов в двух частях, написанный группой ленинградских авторов в соответствии с новой программой для техникумов, утвержденной в 1974 году.Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4A6B6E58F519ED7A4E6D3832310C3E68677761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645415   (195999) от 09.07.2023
+
+Питер Бёрк | Полимат. История универсальных людей от Леонардо да Винчи до Сьюзен Сонтаг (2023) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно под полиматами понимают универсальных людей, одаренных в разных областях. Как ни странно, эти удивительные личности, наделенные почти сверхъестественными способностями, почти не изучены как явление. Книга известного историка Питера Бёрка – удачная попытка восполнить этот пробел. Согласно его определению, полиматы – не просто эрудиты с широкими интересами, (   Читать дальше...   )Жанр: Искусствоведение, Научно-популярная литератураПеревод: Татьяна ЛисицынаИздательство: Альпина ДиджиталФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE3BB2E5894A44A8C1B192B5E796BA418BBFBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645424   (195985) от 09.07.2023
+
+Джоуи Ремени | Головокружение и шум в ушах. Упражнения и техники для облегчения мучительных симптомов (2023) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги, вестибулярный аудиолог Джоуи Ремени, объединила знания из области нейробиологии, психологии, медицины и даже йоги, чтобы объяснить, как благодаря глубокому пониманию собственного тела и при помощи специальных техник и упражнений можно облегчить мучительные симптомы головокружения и шума в ушах. Вы узнаете о причинах возникновения вертиго и тиннитуса, (   Читать дальше...   )Жанр: Здоровье, Популярно о медицинеИздательство: Эксмо, БомбораФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314CAB38A3DDBCBF8CF9261C4F6AD03FE2F7D7AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645439   (195893) от 09.07.2023
+
+О. Н. Оваденко | Сам себе учитель английского (2017) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Объяснение грамматики английского языка в книге изложено в очень доступной форме, строго соблюдён принцип от простого к сложному, в каждом уроке имеется большое количество упражнений по каждой теме. Ключи в конце книги позволяют осуществлять самоконтроль.
+
+Издание предназначено для всех, кто желает самостоятельно изучать английский язык и добиться в нём значительных (   Читать дальше...   )Жанр: английский язык, самоучителиЯзык: русский, английский (обучение)Издательство: КароФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FC4731A2857D27D46816C1FDA4C7711DE870B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646164   (195815) от 13.07.2023
+
+В.Ф. Лянг | ЭВМ и периферийные устройства (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195815.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматриваются вопросы организации электронных вычислительных машин и систем, в состав которых входят периферийное оборудование и устройства для создания сетей, а также вопросы архитектуры шин, устройств и принципов работы основных элементов вычислительных систем.
+Соответствует требованиям федеральных государственных образовательных стандартов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Инфра-МФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992EF99200ED9EE4879AFC2CC2139007B884DD57
 ```
 
 https://mybot314.ru/tekegram_catalog/

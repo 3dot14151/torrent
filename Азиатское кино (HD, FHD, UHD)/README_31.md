@@ -1,3 +1,160 @@
+###  Публикация: 1535731   (682246) от 08.03.2022
+
+Сядь за руль моей машины / Doraibu mai ka / Drive My Car (2021) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режиссёра Юсукэ приглашают поставить «Дядю Ваню» для театрального фестиваля в Хиросиме. Там ему предоставляют водителя, молчаливую Мисаки. За время, проведённое вместе, Юсукэ начинает переосмысливать свои отношения с женой, с которой он жил, казалось, в счастливом браке до её внезапной смерти два года назад. А Мисаки получает возможность (   Читать дальше...   )Производство: Япония, Bitters End, Asahi Shimbun Company, C&I Entertainment, Culture Entertainment, Japan Arts Council, Japanese Agency for Cultural AffairsЖанр: Драма, комедияРежиссер: Рюсукэ ХамагутиАктеры: Хидэтоси Нисидзима, Токо Миура, Масаки Окада, Рэйка Кирисима, Соня Юань, Сатоко Абэ, Перри Дизон, Ан ХвитаеПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, японскиеПродолжительность: 02:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2B884590C973658064FCCCE3C866A4C11ABC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535949   (680382) от 09.03.2022
+
+Оружие в моем сердце / Waga mune ni kyoki ari / A Weapon in My Heart (1996) HDTV [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив и его напарник арестовывают девушку по вызову, укравшую героин у наркокартеля. По дороге в участок на них нападают члены картеля. Детективу и женщине удается сбежать, но вскоре их начинает преследовать профессиональный киллер, нанятый, чтобы устранить их и вернуть героин, украденный женщиной.Производство: ЯпонияЖанр: Боевик, криминалРежиссер: Синдзи АоямаАктеры: Мика Аоба, Кэн Мицуиси, Ёитиро Сайто, Кодзиро Симидзу, Сюн Сугата, Таро СуваПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECD3BEA8DCCF5AD932D8F1A90611BEBE17A64A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536129   (678553) от 10.03.2022
+
+Мужчине живётся трудно / Otoko wa tsurai yo / Tora-san, Our Lovable Tramp (1969) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странствующий торговец Торадзиро ушёл из дома отца ещё в юном возрасте. 20 лет спустя он возвращается в родной город и воссоединяется с семьей в лице дяди, тёти и сестры Сакуры. Торадзиро вносит в их жизнь хаос. Например, из-за его грубого поведения рассорилась помолвка Сакуры с достойным молодым человеком. Однако парень тоже может быть сентиментальным, и вскоре (   Читать дальше...   )Производство: Япония, ShochikuЖанр: Драма, мелодрама, комедияРежиссер: Ёдзи ЯмадаАктеры: Киёси Ацуми, Тиэко Байсё, Сатико Мицумото, Тисю Рю, Такаси Симура, Син Морикава, Гин Маэда, Таисаку Акино, Гадзиро Сато, Кэироку СэкиПеревод: Авторский (Андрей Дольский)Субтитры: Русские, английские, японскиеПродолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9789E3B89B5915A1DBC322E8E5BB833AB13FB84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135756   (678312) от 20.05.2017
+
+Крадущийся тигр, затаившийся дракон: Меч судьбы / Crouching Tiger, Hidden Dragon: Sword of Destiny (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя долгих восемнадцать лет после смерти возлюбленного, всё еще хранящая печаль в сердце Шулень решает прервать своё отшельничество и отправиться в Пекин, в тот самый дом, где начиналась предыдущая часть этого фильма. Во время поездки её карета была атакована воинами Западного Лотоса, сильнейшего боевого клана на территории Китая, с давних пор пытающегося расправиться (   Читать дальше...   )Производство: США, Китай / China Film Group Corporation, NetFlix, Pegasus Taihe EntertainmentЖанр: Фэнтези, боевик, драма, приключенияРежиссер: Юэнь Ву-пинАктеры: Донни Йен, Мишель Йео, Гарри Шам мл., Джейсон Скотт Ли, Евгения Йуан, Жужу Чан, Крис Пэнг, Дэррил Квон, Роджер Йуан ...Перевод: Любительский многоголосыйСубтитры: Русские, английские, итальянские, китайскиеПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F668E46F517BB67B560E08398281EDD21407428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222911   (677017) от 03.05.2018
+
+Трон (Садо / Престол) / Sado / The Throne (2015) BDRip [H.265/1080p] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм охватывает период правления короля Ёнджо во время династии Чосон. Его считали добрым и справедливым правителем. Однако с именем Ёнджо связано одно темное событие - казнь собственного сына, наследного принца Садо.
+Считается, что после тяжелой болезни принц начал сходить с ума. Ему стали сниться кошмары, стало казаться, что он окружен ужасными существами - все (   Читать дальше...   )Производство: Корея Южная / Tiger PicturesЖанр: Драма, ИсторияРежиссер: Ли Джун-икАктеры: Со Йе Джи, Чжин Чжи Хи, Со Чжи Соп, Ли Дэ Ён, Чон Хе Джин, Мун Гын ЁнПеревод: Двуголосый закадровый, Многоголосый закадровыйСубтитры: русскиеПродолжительность: 02:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85656DF37281146D51F83D95B6ADFB2A8E8CE616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222926   (676854) от 03.05.2018
+
+Подставной город / Fabricated City / Jojakdwen doshi (2017) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676854.jpg" />
+</div>
+
+
+###  Подробнее
+
+В реальном мире Квон-ю — безработный неудачник, но в компьютерных играх — живая легенда и настоящий полевой командир. Однажды в кафе парень находит потерянный мобильник, хозяйка которого просит его вернуть трубу за вознаграждение, что он и делает. А на следующий день Квон-ю забирают в полицию. Хозяйка телефона изнасилована и убита, а наш виртуальный герой — идеальный (   Читать дальше...   )Производство: Корея Южная / CJ EntertainmentЖанр: Боевик, КриминалРежиссер: Пак Кван-хёнАктеры: Ким Мин Гё, Ким Чхон, О Чжон Се, Ким Сан Хо, Ли Хён Голь, Ким Сыль ГиПеревод: Многоголосый закадровый (STEPonee)Субтитры: отсутствуютПродолжительность: 02:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA967159D25C934B1FE97798ACB6E56A5FEE52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223259   (676853) от 03.05.2018
 
 Перерождение / Re: Born (2016) BDRip [H.264/1080p]
@@ -6,7 +163,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676853.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676743.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676556.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675020.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674839.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673064.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672940.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672837.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672547.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_671535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_671535.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_671445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_671445.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669277.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669232.jpg" />
 </div>
 
 
@@ -346,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669083.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667918.jpg" />
 </div>
 
 
@@ -398,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667868.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667861.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667806.jpg" />
 </div>
 
 
@@ -477,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667795.jpg" />
 </div>
 
 
@@ -503,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667748.jpg" />
 </div>
 
 
@@ -514,163 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1998F5EE65E6664EBC8C3D935573EBA1E3A1F981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537479   (667651) от 16.03.2022
-
-Путь дракона / Meng long guo jiang / The Way of the Dragon (1972) UHD BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тан приезжает из Гонконга в Рим, чтобы помочь друзьям семьи, чей ресторан задумали отобрать местные мафиози. Привыкшие всегда получать то, что захотят и не останавливаться ни перед чем, бандиты совершили большую ошибку, недооценив с виду скромного молодого человека. Не сумев справиться с ним своими силами, мафиози нанимают лучших европейских и японских мастеров боевых (   Читать дальше...   )Производство: Гонконг / Golden Harvest Films, Concord Productions, Golden Harvest CompanyЖанр: Боевик, драма, комедия, приключенияРежиссер: Брюс ЛиАктеры: Брюс Ли, Нора Миао, Чак Норрис, Вэй Пинао, Роберт Уолл, Ван Вэнг, Тони Лю, Юникорн Чан, Мализа Лонго, Фу Чинг Чен, Чин ТиПеревод: Многоголосый профессиональный (Superbit)Субтитры: Русские, английскиеПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7280E7A10D7DD494A132EB9333C97E5833E47F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900852   (664124) от 25.05.2015
-
-Братство клинков / Xiu Chun Dao / Brotherhood of Blades  (2014) BDRip [H.264/1080p] [Ch, EN / EN Sub]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664124.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о трех закадычных друзьях, служивших в Цзиньивей во времена династии Мин. Дворцовый евнух отправляет их на поиски Вей Чжунсяня, политика, который был вынужден уйти со своего высокого поста и бежать из Пекина. Братья Цзиньивей с успехом выполняют задачу, (   Читать дальше...   )Производство: КитайЖанр: боевик, приключенияРежиссер: Ян ЛуАктеры: Чан Чэнь, Ши-Чжи Чжин, Zhu Dan, Li Dongxue, Дон-Сю Ли, Сесилия Лю, Не Юань, Qianyuan Wang, Цин Е, Лисинь Чжао, И Вэй Чжоу, Ивэй ЧжоуПеревод: ОтсутствуетЯзык субтитров: английскийПродолжительность: 01:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BDB244DBADB08DF19AD97C8ACF0F46A196E43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538751   (661182) от 22.03.2022
-
-Пробел / Kuuhaku / Intolerance (2021) BDRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аояги Наото управляет супермаркетом. Однажды он замечает школьницу, пытающуюся украсть косметику из магазина. Но потом случается ужасное – выбежав на улицу, девочка попадает под машину и погибает. Её отец Соэда Мицуру не верит в то, что его дочь могла что-то украсть, и начинает давить на всех причастных к её гибели.Производство: Япония, KadokawaЖанр: ДрамаРежиссер: Кэисукэ ЁсидаАктеры: Арата Фурута, Тори Мацудзака, Кисэцу Фудзивара, Аои Ито, Рэйко Катаока, Сюри, Томоко Табата, Синобу ТэрадзимаПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, китайскиеПродолжительность: 01:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B11A89F62F04A05127FDAFD1A88B0C54476FFDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539168   (659230) от 24.03.2022
-
-Десять сражений Синго: Часть 2 / Shingo juban shobu dai nibu / Ten Duels of Young Shingo: Chapter 2 (1982) HDTV [MPEG2/1080i] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начав свой путь, Аои Синго бросает вызов Ягю Мунэхару, сыну Ягю Тадзимы, сэнсэя сёгуна. Тяжело ранив Мунэхару, Синго становится заклятым врагом Тадзимы. Тот клянется его убить и отправляет за ним опытных самураем и ниндзя клана Ягю.Производство: Япония, Fuji Television NetworkЖанр: Боевик, драмаРежиссер: Косэй СайтоАктеры: Томиюки Кунихиро, Тосиро Мифунэ, Нана Окада, Рино Катасе, Томоко Саито, Сюн Оойдэ, Такэтоси НайтоПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF455E6FDA10CE92476E6C5A4E94CE72986C8BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539261   (658946) от 24.03.2022
-
-Большой Босс / Tang shan da xiong / The Big Boss (1971) UHD BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромный паренёк из Гонконга Чен Чао-Ан приезжает в Таиланд к своим родственникам, чтобы те помогли ему с работой. Он устраивается на фабрику по производству льда.Производство: Гонконг / Golden Harvest Company Ltd.Жанр: Боевик, триллер, драма, криминалРежиссер: Вэй Ло, Чиа-Сянь ВуАктеры: Брюс Ли, Мария Йи, Джеймс Тьен, Инь-Чиэ Хань, Malalene, Тони Лю, Куин Ли, Нора Миао, Сань Чинь, Чао ЧенПеревод: Многоголосый профессиональный (Superbit)Субтитры: Русские, английскиеПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FB799BB60BCC2083A486C6679FFD475F6CAB56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539657   (657062) от 26.03.2022
-
-Игра смерти / Si wang you xi / Game of Death (1978) UHD BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преступный синдикат зловещего доктора Лэнда контролирует гонконгский шоу-бизнес: все артисты обязаны отчислять мафии немалые суммы со всех своих доходов. Молодой актер Билли Ло вступает в борьбу с преступным синдикатом. Жёлто-чёрный костюм, использованный во время съёмок этого фильма, был использован Квентином Тарантино во время съёмок фильма «Убить Билла».
-Название (   Читать дальше...   )Производство: Гонконг, США / Concord Productions Inc., Golden Harvest Company Ltd.Жанр: Боевик, Триллер, Драма, КриминалРежиссер: Роберт Клауз, Брюс ЛиАктеры: Брюс Ли, Коллин Кэмп, Дин Джаггер, Гиг Янг, Таи Чунг Ким, Бяо Юэнь, Роберт Уолл, Карим Абдул-Джаббар, Мел Новак, Хью О`БрайанПеревод: Многоголосый закадровый (Superbit)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC317089504A0CB1E31FF60650E1F2A99309CC7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

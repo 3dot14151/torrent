@@ -1,82 +1,3 @@
-###  Публикация: 543037   (496973) от 04.09.2012
-
-Гавана, я люблю тебя / 7 dias en La Habana (2012) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастера мирового авторского кино сняли 7 маленьких увлекательных историй, действие которых происходит в Гаване.Производство: Франция, Испания, Full House, Morena Films S.L.Жанр: ДрамаРежиссер: Бенисио Дель Торо, Пабло Траперо, Элиа СулейманАктеры: Даниэль Брюль, Эмир Кустурица, Элиа Сулейман, Джош Хатчерсон, Владимир Крус, Мирта Ибарра, Хорхе Перугоррия, Мелвиз Санта Эстевес, Дэйзи Гранадос, Луис Альберто ГарсияПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: русскийПродолжительность: 02:03:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318371   (496404) от 05.08.2019
-
-Человек на Луне / First Man (2018) DVD9+DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба любит смельчаков, а Нил Армстронг однозначно принадлежит к их числу. Весь мир знает его имя, но мало кому известно, какой ценой астронавту дался маленький шаг, ставший огромным скачком для всего человечества.Производство: США, Япония / Universal Pictures, DreamWorks SKG, Amblin EntertainmentЖанр: Драма, биография, историяРежиссер: Дэмьен ШазеллАктеры: Райан Гослинг, Клер Фой, Джейсон Кларк, Кайл Чандлер, Кори Столл, Патрик Фьюджит, Кристофер Эбботт, Киран Хайндс, Оливия Хэмилтон, Пабло ШрайберПеревод: Дублированный (лицензия)Субтитры: Русские, английские, польские, эстонские, латышские, литовскиеПродолжительность: 02:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0769C4DD10C55D9C0E52F756212D44AD547E09C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381479   (494807) от 31.08.2011
-
-Пираты Карибского моря: На странных берегах / Pirates of the Caribbean: On Stranger Tides (2011) DVD9
-
->>След.
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494807.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой истории о поисках истины, предательстве, вечной молодости и смертельной опасности капитану Джеку Воробью предстоит столкнуться с женщиной из своего прошлого Анжеликой. До самого конца не будет понятно, связывает ли их настоящая любовь, или же Анжелика искусно притворяется, чтобы вместе с Джеком добраться до таинственного источника вечной молодости.
-Она силой (   Читать дальше...   )Производство: СШАЖанр: Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Роб МаршаллАктеры: Джонни Депп, Пенелопа Крус, Джеффри Раш, Иэн МакШейн, Кевин МакНэлли, Стивен Грэм, Сэм Клафлин, Астрид Берже-Фрисби, Кит Ричардс, Ричард ГриффитсПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 02:16:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318525   (494402) от 06.08.2019
 
 Тайна дома с часами / The House with a Clock in Its Walls (2018) DVD9
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494402.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494395.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493076.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493063.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492897.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492876.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492821.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489144.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488824.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488721.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488664.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486743.jpg" />
 </div>
 
 
@@ -400,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486623.jpg" />
 </div>
 
 
@@ -426,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484653.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482461.jpg" />
 </div>
 
 
@@ -479,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482150.jpg" />
 </div>
 
 
@@ -505,7 +426,7 @@ WAZ: Камера пыток / W Delta z (2007) DVD5
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480303.jpg" />
 </div>
 
 
@@ -531,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479332.jpg" />
 </div>
 
 
@@ -557,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478143.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477936.jpg" />
 </div>
 
 
@@ -609,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477812.jpg" />
 </div>
 
 
@@ -635,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477811.jpg" />
 </div>
 
 
@@ -663,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476656.jpg" />
 </div>
 
 
@@ -674,6 +595,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA56DBE7D9F2A89F4906DF88F18E516D7F61E3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385325   (475845) от 09.09.2011
+
+Прибытие | Прибытие: Новая угроза / The Arrival | The Second Arrival (1996/1998) 2*DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Фантастика, боевик, триллер, приключенияПеревод: Профессиональный (многоголосный, закадровый)Субтитры: ОтсутствуютФормат: DVD9Продолжительность: 01:40:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056917   (474608) от 28.09.2016
+
+Первый мститель: Противостояние / Captain America: Civil War (2016) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мстители под руководством Капитана Америки оказываются участниками разрушительного инцидента, имеющего международный масштаб. Эти события заставляют правительство задуматься над тем, чтобы начать регулировать действия всех людей с особыми способностями, введя «Акт о регистрации супергероев», вынуждая их подчиняться ООН.
+
+Видя в этом договоре нарушение гражданских (   Читать дальше...   )Производство: США, Германия / Marvel Entertainment, Marvel Studios Inc., Studio Babelsberg, Vita-Ray Dutch Productions (III), Deluxe Digital StudiosЖанр: Фантастика, боевик, приключенияАктеры: Крис Эванс, Роберт Дауни мл., Скарлетт Йоханссон, Себастьян Стэн, Энтони Маки, Дон Чидл, Джереми Реннер, Чэдвик Боузмэн, Пол Беттани, Элизабет ОлсенПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 02:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA88A12D9F822CCE93AF397CDB27CB7AD698DD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547067   (473445) от 15.09.2012
+
+Люди в черном 3 / Men in Black 3 (2012) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Джей узнает, что никакого защитного галактического щита, способного отразить иноземный удар, не существует. Агент Кей не построил его, потому что был убит в 1969 году. Агент Джей должен совершить путешествие во времени, чтобы спасти Землю и жизнь напарника.Производство: США, Amblin Entertainment, Hemisphere Media Capital, Media Magik Entertainment, Imagenation Abu Dhabi FZЖанр: Фантастика, боевик, комедия, приключенияРежиссер: Барри ЗонненфельдАктеры: Уилл Смит, Джош Бролин, Томми Ли Джонс, Джемейн Клемент, Майкл Стулбарг, Эмма Томпсон, Элис Ив, Майк Колтер, Билл Хэйдер, Майкл ЧернусПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, эстонский, хинди, латышский, литовскийПродолжительность: 01:41:30
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

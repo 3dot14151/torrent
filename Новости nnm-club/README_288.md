@@ -1,3 +1,55 @@
+###  Публикация: 1762055   (36115) от 26.11.2024
+
+Холоп из Парижа / Le larbin (2024) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что вы делаете, когда ваш противный сын-плейбой настолько вышел из-под контроля, что его чрезмерные вечеринки грозят разрушить вашу империю роскошных отелей? Очевидно, вы пытаетесь его перевоспитать. Поэтому вы нанимаете безумного режиссера, чтобы он построил настоящую деревню 18 века, заполняете ее актерами и камерами наблюдения, а затем усыпляете своего сына, похищаете (   Читать дальше...   )Производство: Франция / SND Films, M6 Films, Canal+Жанр: комедияРежиссер: Александр Шарло, Франк МаньеАктеры: Одран Каттен, Кад Мерад, Кловис Корнийяк, Изабель Карре, Джейд Педри, Марк Ризо, Клара Жоли, Симон Ларварон, Кристиан Эк, Стефан ВойтовичПеревод: дублированный (Марафон)Язык озвучки: русский, французскийСубтитры: русские, французскиеПродолжительность: 01:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC83D21B347214227BA489A16FB5C491E29E8A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762040   (36104) от 26.11.2024
+
+Комиссия Конгресса США сравнила развитие ИИ с созданием атомной бомбы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухпартийная комиссия Конгресса США призвала к созданию инициативы, подобной «Манхэттенскому проекту», для ускорения развития искусственного интеллекта (ИИ) в условиях растущей конкуренции со стороны Китая.Комисия в опубликованном во вторник рекомендации в 793-страничном отчете призывает Конгресс предоставить исполнительной власти широкие многолетние полномочия (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762231   (36008) от 27.11.2024
 
 GoodbyeDPI 0.2.3rc3 Launcher 9.5 [Ru/En]
@@ -6,7 +58,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.5 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36008.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35919.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35913.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35903.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35797.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35696.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35692.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35689.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Adobe Photoshop 2025 26.1.0.121 RePack by KpoJIuK (24.11.2024) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35594.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ WinPE 11-10 Sergei Strelec (x64) 2024.11.27 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35593.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35592.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35590.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35574.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35469.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35382.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35286.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35277.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35180.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05 gog 0.8/dlc) License GOG [Ultimate E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35074.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34953.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34864.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34673.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34669.jpg" />
 </div>
 
 
@@ -610,65 +662,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34668.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Тяжелый атомный ракетный крейсер «Адмирал Нахимов»  проекта 1144.2М выходит на заводские ходовые испытания, корабль отправили на размагничивание перед выходом в море.В минувшую пятницу, 6 декабря, крейсер буксировкой доставили на станцию безобмоточного размагничивания «Севмаша». После прохождения процедуры размагничивания начнется основная программа испытаний. Сроки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764042   (34654) от 10.12.2024
-
-Враг у ворот (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сентябрь 1941 года. Несправедливо осужденного следователя МУРа Захара освобождают из заключения, чтобы организовать борьбу с преступностью, возросшей с началом наступления немецких захватчиков на Москву. Ему поручают возглавить отдел спецрасследований и распутать клубок загадочных преступлений, совершенных пособниками фашистов. Оказавшись на свободе, он встает на (   Читать дальше...   )Производство: Россия / Институт развития интернета, Иви, Третий РимЖанр: детектив, военный, драмаРежиссер: Никита ГрамматиковАктеры: Александр Новин, Филипп Янковский, Кристина Работенко, Сергей Варчук, Заза Чантурия, Ольга Ефремова, Дмитрий Журавлев, Мария Смольникова, Сергей Гурьев, Никита АбдуловПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AFA8B6881A35281BA244BC9E7A996C0AD0F27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764919   (34580) от 11.12.2024
-
-Минцифры предложило ограничить использование иностранных мессенджеров в рабочих целях
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министерство цифрового развития предлагает установить ограничения на использование мессенджеров для служебной переписки в нескольких отраслях.Соответствующие меры предусмотрены в законопроекте о поправках к ряду законов, подготовленном ведомством, сообщил "Интерфаксу" источник, осведомленный о содержании документа.Согласно сведениям источника, планируется (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

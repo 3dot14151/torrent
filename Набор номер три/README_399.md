@@ -1,3 +1,213 @@
+###  Публикация: 939918   (470459) от 23.09.2015
+
+NVIDIA GeForce Desktop 355.98 WHQL + For Notebooks [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470459.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1DE4FDCB06CB1D62C834D4F7B68344AF006382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940009   (470442) от 23.09.2015
+
+Sandboxie 5.04 Final [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie является программой практически бесплатной - большинство из ее функций будет работать сколь угодно долго без оплаты лицензии.
+Программа позволяет запускать браузер или другую программу так, что любые изменения, связанные с использованием этой программы, сохранялись в ограниченной среде (т.н "песочнице"), которую позже можно будет целиком удалить. (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D0AAB167456710896D61B4ED61E7DBBECF7C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940084   (470377) от 23.09.2015
+
+EmEditor Professional 15.3.1 Final + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470377.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода. Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7A1B6811C729E4A00A5C3F6256BA96F1FFA949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940144   (470350) от 23.09.2015
+
+Acronis True Image 2016 19.0.5634 BootCD [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image - комплексное приложение для всех видов локального и онлайн резервного копирования важных данных и системы в целом. Надежное и защищенное резервное копирование, максимально интегрированное с облаком Acronis Cloud.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A580B99B638BEC83413E0C12BA972B09821BF039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939729   (470343) от 23.09.2015
+
+SOMA (2015) [Ru/Multi] (1.0) License RELOADED
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спуститесь в мир SOMA и столкнитесь лицом к лицу с ужасом, что таится в глубинах океана. Вам придётся покопаться в документах и взломать не один компьютер, чтобы узнать правду, стоящую за царящим там хаосом. Найдите уцелевших обитателей и примите участие в событиях, которые определят будущее станции. Но будьте осторожны: опасность таится за каждым углом: обезумевшие (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Frictional GamesЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, бразильский ПортугальскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, бразильский Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2840F2A62BE71BA34681479274156F499FCF83BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926363   (470340) от 23.09.2015
+
+Train Fever (2014) [Ru/En] (build 6219) Repack by leve1ord
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная особенность Train Fever - встроенная в транспортную стратегию автономная градостроительная игра, которая неподвластна нам. Ваша основная задача - обеспечить непрерывный поток товаров и грузов от мест добычи сырья до фабрик и от фабрик до городов. Обеспечить хорошо развитую систему общественного городского и междугороднего транспорта. Сможете ли вы, начиная (   Читать дальше...   )Тип издания: RepackРазработчик: Urban GamesЖанр: Simulation, Strategy, Economy, TrainsЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF8DE92BBDA675BA02297949341F5AF58E91239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939971   (470339) от 23.09.2015
+
+Смерть хиппи! Да здравствуют панки! / Tod den Hippies!! Es lebe der Punk! (2015) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470339.jpg" />
+</div>
+
+
+###  Подробнее
+
+История не нашедшего себя в этой жизни парня, который в середине 80-х из тихого провинциального города приезжает в Западный Берлин и окунается в дикую и больную атмосферу мегаполиса со всеми его атрибутами: алкоголем, наркотиками, бесцельным времяпрепровождением ...Производство: ГерманияЖанр: Драма, мелодрама, комедия, криминалРежиссер: Оскар РёлерАктеры: Том Шиллинг, Гёц Отто, Фредерик Лау, Уилсон Оксенкнехт, Эмилия Шуле, Симон Боер, Габриэль Шарницки, Луиза Вицорек, Самуэль Финци, Оливер КоритткеПеревод: Двухголосый закадровый, любительский (den904, deadsno)Субтитры: ОтсутствуютПродолжительность: 01:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64713C1909117A94671D4657DA314333F223972A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939503   (470333) от 23.09.2015
+
+uTorrent отпраздновал десятый День рождения
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_470333.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выхода в 2005 году приложение uTorrent мгновенно стала популярным у пользователей. Охарактеризованный как "эффективный и маленький" клиент он превосходил большинство альтернатив. Теперь через 10 лет, со 150-ю миллионами активных пользователей - это одна из самых популярных ныне существующих программ.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940098   (470330) от 23.09.2015
 
 VueScan Pro 9.5.26 [Multi/Ru]
@@ -6,7 +216,7 @@ VueScan Pro 9.5.26 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470330.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ Europa Universalis IV: Common sense (2015) [Ru/Multi] (1.13.1/dlc) Repack Доб
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470328.jpg" />
 </div>
 
 
@@ -58,7 +268,7 @@ Microsoft Office 2016 Professional Plus RTM 16.0.4266.1003 (x86/x64) by Ratiboru
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470323.jpg" />
 </div>
 
 
@@ -84,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>19
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_470090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_470090.jpg" />
 </div>
 
 
@@ -110,7 +320,7 @@ Cуд США признал незаконной раскрытую Сноуде
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_470016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_470016.jpg" />
 </div>
 
 
@@ -136,7 +346,7 @@ BloodRayne (2002) [Ru/Multi] (1.00.50) Repack Raf-9600
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470014.jpg" />
 </div>
 
 
@@ -162,7 +372,7 @@ Linux Mint 21.0 Vanessa (XFCE, Mate, Cinnamon) [64bit] 3xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469761.jpg" />
 </div>
 
 
@@ -188,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_469754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_469754.jpg" />
 </div>
 
 
@@ -215,7 +425,7 @@ Adobe Photoshop 2022 23.4.2.603 + Neural Filters RePack by PooShock [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469739.jpg" />
 </div>
 
 
@@ -241,7 +451,7 @@ Weird West (2022) [Ru/Multi] (1.03D.7507 A/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469737.jpg" />
 </div>
 
 
@@ -267,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_469466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_469466.jpg" />
 </div>
 
 
@@ -293,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_469323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_469323.jpg" />
 </div>
 
 
@@ -319,7 +529,7 @@ Spectrasonics - Omnisphere 2.5.0d VSTi, STANDALONE, AAX (x64) + Libraries [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469295.jpg" />
 </div>
 
 
@@ -345,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468977.jpg" />
 </div>
 
 
@@ -371,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_468950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_468950.jpg" />
 </div>
 
 
@@ -397,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468929.jpg" />
 </div>
 
 
@@ -423,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468820.jpg" />
 </div>
 
 
@@ -449,7 +659,7 @@ WINDOWS 7 Ultimate x86 SP1 m (prepared by xalex & zhuk.m) 30.08.2011 [Русск
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468807.jpg" />
 </div>
 
 
@@ -460,220 +670,6 @@ WINDOWS 7 Ultimate x86 SP1 m (prepared by xalex & zhuk.m) 30.08.2011 [Русск
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548328   (468678) от 17.09.2012
-
-Власть Украины хочет обязать покупать SIM-карты по паспорту
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Власти Украины хотят запретить предоставление телекоммуникационных услуг без идентификации пользователей.
-Об этом говорится в разработанном Госспецсвязи Украины проекте закона "О внесении изменений в закон" О телекоммуникациях ".
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318706   (468619) от 19.08.2019
-
-Age of Wonders: Planetfall (2019) [Ru/Multi] (1.005.36738/dlc) License CODEX [Premium Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помогите своему народу оправиться после краха галактической империи и приведите его к процветанию. Age of Wonders: Planetfall — это стратегическая игра от компании Triumph Studios, которая разработала популярную серию игр Age of Wonders. В новой игре вы сможете опробовать увлекательную тактику пошаговых сражений и продуманную систему развития государства, знакомую (   Читать дальше...   )Тип издания: LicenseРазработчик: Triumph StudiosЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711FAF2D8DD960FA9AEAE587FCBA4D93D478B4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320297   (468618) от 19.08.2019
-
-Гоблин вернется к озвучиванию фильмов после долгого перерыва
-
->>3
->>17
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_468618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старший оперуполномоченный Дмитрий Пучков, известный под творческим псевдонимом Гоблин, вернётся к озвучиванию зарубежных кинокартин после долгого перерыва. К автору «правильных переводов» обратилась компания «Ростелеком». Такой ход она предприняла с целью продвижения собственных площадок — сервиса Wink и видеотеки «Интерактивное кино».Всего Дмитрий Юрьевич озвучит (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320518   (468617) от 19.08.2019
-
-Windows 7 SP1 (x86/x64) 52in1 +/- Office 2016 by SmokieBlahBlah 18.08.19 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468617.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по август 2019 (кроме нежелательных) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
-
-Ничего не вырезано (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F64EDAF0A5A24E577DCE20AD386312083969C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200738   (468616) от 19.08.2019
-
-Call of Duty: Modern Warfare 2 (2009) [Ru] (1.2.208/dlc/mp) Rip CoD - MW2
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сетевые сражения на просторах онлайна от создателей проекта IW4X. В мультиплеере доступны несколько режимов командной или индивидуальной игры. Максимальная численность игроков составляет 18 человек. Присутствует система настраиваемых классов.Тип издания: RipРазработчик: Infinity WardЖанр: Action (Shooter), 3D, 1'st Person, 3'rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CB5ECA12832D0301CEFA9B9FA474BFA6FEC320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547432   (468515) от 17.09.2012
-
-Black Mesa [En] (Full/no-Steam) 2012 | CSmania
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Mesa (ранее известная как Black Mesa: Source) — ремейк культовой компьютерной игры Half-Life, сюжетный приквел игры Half-Life 2 на движке Source. Представляет собой модификацию для игры Half-Life 2.
-
-Разработчики намерены воссоздать оригинальную вселенную Half-Life, используя расширенные возможности движка Source, переработать все текстуры, модели и уровни, создать реалистичный геймплей. В игре не будет нового оружия, однако они решили добавить к защитному костюму H.E.V функцию «спринт». Также создатели модификации заявили, что собираются сделать полностью синхронную сюжетную линию, лишь несколько изменив её, не нарушая баланса. Также в игру планируют ввести достижения. (   Читать дальше...   )Тип издания: no-SteamРазработчик: BMS Dev TeamЖанр: Action (Shooter) / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Итальянский, Испанский, Норвежский, Немецкий, ФинскийЯзык интерфейса: Русский, Английский, Итальянский, Испанский, Норвежский, Немецкий, Финский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063EDF58F7E375197AFB094C8C322F47A9FD37CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547476   (468509) от 17.09.2012
-
-WINDOWS 7 ULTIMATE x64 REACTOR FULL 9.12 [русский]
-
->>3
->>21
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468509.jpg" />
-</div>
-
-
-###  Подробнее
-
-За основу взят оригинальный образНазвание программы: WINDOWS 7 ULTIMATE x64 REACTOR FULL 9.12Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824254   (468347) от 23.09.2014
-
-ABBYY FineReader 12.0.101.382 Professional RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468347.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY FineReader 12 Professional – программа для распознавания текста, которая переводит изображения документов и любые типы PDF-файлов в электронные редактируемые форматы. Программа определяет и точно восстанавливает логическую структуру документа в его электронной копии, позволяя забыть о перепечатывании текстов.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B0FEE0DA986BF3CE1ACE0C5E6C0B951485A8DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

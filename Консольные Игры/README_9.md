@@ -6,7 +6,7 @@ Call of Juarez: Bound in Blood (2009) [Xbox360] [RegionFree] 8955 [FreeBoot] [Li
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913030.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Level 22 (2016) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912982.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rocketbirds: Hardboiled Chicken (2011) [PS3] [EUR] 4.21+ [PSN] [En] [3D]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912980.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Swindle (2015) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO ISO] [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912975.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Folklore (2007) [PS3] [EUR] 3.41/3.55/4.21+ [Repack / 1.10 / ALL DLC] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912901.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Visual Pinball Tables (2016) [Multi] [Unofficial] [VP8]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910426.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Visual Pinball Tables (2016) [Multi] [Unofficial] [VP1-VP7]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910373.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Visual Pinball Tables (2016) [Multi] [Unofficial] [VP9-VPX]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910218.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Visual Pinball (2016) (10.2.1.0) [License] [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910056.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Fallout New Vegas: Ultimate Edition (2012) [PS3] [USA] 3.73 [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909958.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ XBMC4XBOX Covers (2015) [Xbox] [RegionFree] [Unoffical] [Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909923.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Fix It Brico Party [Wii] [PAL] [English] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908796.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Portal: Still Alive (2008) [Xbox360] [RegionFree] 8955 [FreeBoot] [XBLA] [Licens
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907451.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Max: The Curse of Brotherhood (2014) [Xbox360] [RegionFree] 16537 [FreeBoot] [Un
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907443.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Future Pinball Tables (2016) [Multi] [Unofficial] [Original]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906616.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Future Pinball Tables (2016) [Multi] [Unofficial] [Recreated]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906459.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Future Pinball (2010) (1.9.1.20101231) [License] [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906277.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Grand Slam Tennis 2 (2012) [Xbox360] [RegionFree] 13599 [FreeBoot] [License] [En
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905741.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Kick-Ass 2: The Game (2014) [Xbox360] [PAL] 16537 [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905661.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Ultimate Marvel vs. Capcom 3 (2011) [Xbox360] [RegionFree] 13599 [FreeBoot] [Lic
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905555.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Final Fantasy VII: Dirge of Cerberus (2006) [PS2] [NTSC] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904367.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Contrast (2013) [Xbox360] [RegionFree] 16537 [FreeBoot] [XBLA] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903867.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Far Cry 3: Blood Dragon (2013) [Xbox360] [RegionFree] 16537 [LT+1.9] [License] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903684.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ocean Commander [Wii] [NTSC-U] [English] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903055.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Ratatouille [Wii] [PAL] [ENG] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902920.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Def Jam: Icon (2007) [Xbox360] [PAL] 4552 [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901954.jpg" />
 </div>
 
 

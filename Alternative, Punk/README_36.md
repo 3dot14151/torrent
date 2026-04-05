@@ -6,7 +6,7 @@ The Disco Biscuits - Live from Austin, TX (September 16, 2023) (2023) [MP3|320 K
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124877.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Green Day - Saviors (2024) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122225.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Being As An Ocean - Death Can Wait (2024) [MP3|320 Kbps] <Post-Hardcore, Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119467.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bear Ghost - Jiminy (2023) [MP3|320 Kbps] <Alternative Rock, Art Rock, Progressi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117674.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Smash Into Pieces - 44 Releases (2009-2024) [MP3|320 Kbps] <Alternative rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116203.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Billy Idol - Rebel Yell (1982) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Punk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110601.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sidilarsen - Que la lumiere soit (2024) [MP3|320 Kbps] <Rapcore, Frenchcore, Tec
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110578.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Danger Silent - The Revival (2024) [MP3|320 Kbps] <Alternative Rock, Post Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110184.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kings Of Leon - Can We Please Have Fun (2024) [MP3|320 Kbps] <Alt.Rock, Indie Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109917.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Higher - Hidden Places (2024) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109561.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Godsmack - Awake (2000) Reissue, 2024, Universal Records [MP3|320 Kbps] <Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109355.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [MP3|320 Kbps] <Alternative rock, Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109354.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Everyone's Getting Involved (2024) A tribute to Talking Heads’ Stop Makin
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109347.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bludgeoned - Live at the end (2018) [MP3|320 Kbps|tracks] <Crust Punk, Doom, Slu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108481.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Void of Vision - What I'll Leave Behind (2024) [MP3|320 Kbps] <Electronic Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104894.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Oceano - Living Chaos (2024) [MP3|320 Kbps] <Deathcore, Soft-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104852.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Red Jumpsuit Apparatus - X’s For Eyes (2025) [MP3|320 Kbps] <Alt. Rock, Ma
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104511.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Snow Patrol - Fallen Empires (2011) [MP3|320 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102393.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101511.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99869.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Working For A Nuclear Free City - Jojo Burger Tempest (2010) [MP3|320 кб/с]<S
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99720.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Real McKenzies - Westwinds (2012) [MP3|320 кб/с]<Folk-Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97893.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ At The Ruins - Death Earth Empire (2012) [MP3|320 кб/с]<Post-Hardcore / Elect
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97711.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95699.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ CyberManiacs - CyberManiacs (2012) [MP3|320 кб/с]<Horror Industrial, Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95018.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ Fleet Foxes - Fleet Foxes (Special Edition) 2 CD (2008) [MP3|320 кб/с]<Indi-R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90422.jpg" />
 </div>
 
 

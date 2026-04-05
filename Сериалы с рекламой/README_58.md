@@ -1,3 +1,55 @@
+###  Публикация: 1796943   (18320) от 14.05.2025
+
+Вирдэ / Virdee (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив-сикх Гарри Вирдэ расследует похищение подростка Атика Фаруки, связанного с преступной группировкой Брэдфорда. Чтобы найти мальчика, он вынужден обратиться за помощью к шурину Ризе — главе крупнейшего наркокартеля в округе. Вскоре в городе происходит серия жестоких убийств, и все указывает на то, что маньяк нацелился уничтожить азиатскую общину. На фоне разгорающейся (   Читать дальше...   )Производство: Великобритания / Magical Society, British Broadcasting Corporation (BBC), Yorkshire Content FundЖанр: драма, криминал, детективРежиссер: Милад Алами, Мо Али, Марк ТондерайАктеры: Стаз Нэйр, Элизабет Беррингтон, Айша Кала, Викаш Баи, Нина Сингх, Кулвиндер Гир, Томи Мэй, Hussina Raja, Andi Jashy, Рамон Тикарам и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0ABEA121B2F1FF0A3BD51753B69167080CE76FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797303   (18237) от 15.05.2025
+
+Рокко Скьявоне / Rocco Schiavone (2025) WEBRip [H.264/1080p] (сезон 6, серии 1-4 из 4) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рокко Скьявоне, любитель травки и не самый уравновешенный заместитель комиссара полиции, по дисциплинарным причинам был переведен в альпийский город Аоста вдали от его любимого Рима. Рокко презирает горы, холод и провинциальных местных жителей так же, как он презирает своих начальников и их глупые правила. Но он любит раскрывать преступления.Производство: Италия / Cross Production, Rai FictionЖанр: триллер, криминалРежиссер: Симон Спада, Микеле Соави, Джулио Манфредония и др.Актеры: Марко Джаллини, Эрнесто Д’Ардженио, Франческо Аквароли, Кристиан Джинепро, Массимилиано Капрара, Филиппо Дини, Массимо Ольчезе, Gino Nardella, Claudia Vismara, Массимо Реале и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362DE6D1E4D9103A0905AD3D044CB53E20BBF99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797222   (18213) от 15.05.2025
 
 Рокко Скьявоне / Rocco Schiavone (2025) WEBRip (сезон 6, серии 1-4 из 4) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18213.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18115.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18111.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18104.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17862.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17831.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17791.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17647.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17409.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17384.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17259.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17024.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16886.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16556.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16550.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15862.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15853.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15205.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15171.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14961.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14956.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14928.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14919.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14540.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AA98C38C9891AB590C01AE676E349B07E37C5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802168   (14534) от 15.06.2025
-
-Скверное наследие / Legado / Rotten Legacy (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медиамагнат Федерико Селигман после двухлетнего отсутствия по причине болезни возвращается к управлению своим бизнесом. По возвращении он обнаруживает, что его дети — Йоланда, Андрес, Гвадалупе и Лара — изменили направление семейного медиаконгломерата в сторону, которую он считает неприемлемой. Федерико решает сделать всё возможное, чтобы защитить своё наследие и (   Читать дальше...   )Производство: Испания / El Desorden CreaЖанр: драмаРежиссер: Эдуардо Чаперо-Джексон, Карлота ПередаАктеры: Хосе Коронадо, Белен Куэста, Диего Мартин, Мария Морера, Сальва Реина, Суси Санчес, Нико Ромеро, Иван Пеллисер, Хосеан Бенгоэчеа, Лукас НаборПеревод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3DC1C079A0DFB88693E72EB5487A79CC1FF76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802110   (14517) от 15.06.2025
-
-Попавшие в ловушку / Atrapados / Caught (2025) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал следит за овдовевшей Эмой Гарай — проницательной журналисткой из города Сан-Карлос-де-Барилоче, которая специализируется на разоблачении преступников, так или иначе избежавших правосудия. Сейчас она сосредоточена на поимке сексуального маньяка, который знакомится с несовершеннолетними девочками через интернет, а также расследует загадочное исчезновение талантливой (   Читать дальше...   )Производство: Аргентина / Haddock FilmsЖанр: триллер, драма, криминалРежиссер: Мигель Кохан, Эрнан А. ГолфридАктеры: Соледад Вильямиль, Хуан Минухин, Мартин Миллер, Матиас Рекальт, Фернан Мирас, Sofia Guerschuny, Carmela RIvero, Tania Casciani, Bárbara Massó, Алиан Деветак и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18A8B940CEA97F6D8EA68031A63A60A259B03E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

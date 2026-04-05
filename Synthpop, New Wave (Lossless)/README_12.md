@@ -1,32 +1,3 @@
-###  Публикация: 1149162   (602503) от 09.07.2017
-
-Escape With Romeo - 5 Albums (2002-2015) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You`ll always be a stranger (4:26)
-02. Cold Future (3:56)
-03. After the party (3:35)
-04. Drugz (3:09)(   Читать дальше...   )Жанр: Synthpop, New Wave |Продолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0E9EA20E7CAA953D94997E77AD865AAF9192D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299109   (599910) от 01.05.2019
 
 MRUKS - Level Up (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, R&B, Retrowave>
@@ -35,7 +6,7 @@ MRUKS - Level Up (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, R&B, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599910.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Dog Won't Bite - Schplatterfunk (1993) [FLAC|Lossless|image + .cue] <Acid Jazz, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598049.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Depeche Mode - Going Backwards (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598013.jpg" />
 </div>
 
 
@@ -120,7 +91,7 @@ Figures At Dawn - In From The Cold (2001) [FLAC|Lossless|image + .cue] <Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597796.jpg" />
 </div>
 
 
@@ -149,7 +120,7 @@ Bronswick - Entre mes insomnies (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594985.jpg" />
 </div>
 
 
@@ -178,7 +149,7 @@ VA - 12.04, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594868.jpg" />
 </div>
 
 
@@ -207,7 +178,7 @@ Guattari - Determine (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Darkwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594578.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ VA - Synth City Compilation, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592155.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ VA - Synthwave Dreams, Vol. 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591236.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ VA - Synthwave Dreams, Vol. 17 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591234.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ VA - Synthwave Dreams, Vol. 20 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591233.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ VA - Synthwave Dreams, Vol. 22 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591232.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ VA - Synthwave Dreams, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591231.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ VA - Synthwave Dreams, Vol. 21 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591230.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ VA - Synthwave Dreams, Vol. 18 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591228.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ VA - Synthwave Dreams, Vol. 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591198.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ Angelo Taylor - The Best of Angelo 2008 (2008) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588555.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Angelo Taylor - Alone in the Universe (2006) [FLAC|Lossless|WEB-DL|tracks] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588551.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ Red Soda - Decades to Midnight (2019) [FLAC|Lossless|tracks + .cue] <Synthwave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581256.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ Lotus - Eat the Light (2016) [FLAC|Lossless|tracks + .cue] <Synthpop, Nu Disco, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579476.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ VA - 80's Generation vol. 2 (2002) [FLAC|image + .cue]<Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577222.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ VA - 80's Generation vol. 1 (2002) [FLAC|image + .cue]<Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577072.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ Kristine - Kristine (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576226.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567449.jpg" />
 </div>
 
 
@@ -727,7 +698,7 @@ Com Truise - Persuasion System (2019) [FLAC|Lossless|tracks + .cue] <Electronic,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567445.jpg" />
 </div>
 
 
@@ -741,6 +712,35 @@ Com Truise - Persuasion System (2019) [FLAC|Lossless|tracks + .cue] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF9725313F5A17976848C17EC59C8A1583077E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235149   (564085) от 09.07.2018
+
+Nickolay Fedorenko - Eco (2015) [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eco
+02. 1000 Silver Moons
+03. Summer dance
+04. Winter dance(   Читать дальше...   )Жанр: Electronic, Synth-PopПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23703F15C1F9FF520DBDED6C6ED4A574DFB09073
 ```
 
 https://mybot314.ru/tekegram_catalog/

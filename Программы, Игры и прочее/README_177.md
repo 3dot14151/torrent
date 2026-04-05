@@ -1,3 +1,111 @@
+###  Публикация: 1815170   (5261) от 30.08.2025
+
+Patephone / Патефон v14.8.2 Mod by OsitKP [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5261.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нашем приложении для ценителей литературы вы найдете тысячи аудиокниг и радиоспектаклей зарубежных и отечественных авторов. У нас есть аудиокниги любых жанров — это фантастика и триллеры, мистика и приключения, детективы и классика. Нами собрана великолепная коллекция аудиоспектаклей и сказок для детей, книги для детей на ночь, аудиосказки и веселые истории — приглашение (   Читать дальше...   )Тип издания: Mod LiteРелиз состоялся: 28.08.2025Разработчик: AnyreadsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB71746087A31948252A177389DE8F31E2CB6913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815422   (5242) от 30.08.2025
+
+Revo Uninstaller Mobile v3.4.330G Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revo Uninstaller Mobile всегда старается предоставить своим поклонникам наилучший пользовательский опыт и функциональность. В этой новой версии приложения вы можете работать между несколькими вариантами управления уже установленными приложениями.
+Выбрав Pro-версию, вы теперь можете легко избавиться от всей рекламы во время использования приложения.Тип издания: ProРелиз состоялся: 28.08.2025Разработчик: VS Revo Group Ltd.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41FF1240B133A178A23421457744A93FA0E82E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815420   (5200) от 30.08.2025
+
+Аналоги лекарств, справочник v3.0.6 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник лекарств с возможностью поиска дешевых аналогов к дорогим лекарствам. Подбор дженериков с аналогичным действующим веществом, и с указанием актуальной цены. Теперь у пользователя есть выбор, какое лекарство ему приобрести и сколько при этом потратить. Сэкономьте на дорогих препаратах используя дешевые аналоги. Для работы требуется интернет.Тип издания: AdfreeРелиз состоялся: 29.08.2025Разработчик: Involta.RuПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1660EC5692D6DEDC91BB4583FFB8F023C3C337D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815417   (5195) от 30.08.2025
+
+Karing 1.2.3.857 (Pre-release) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Karing - Утилита прокси с простым и мощным интерфейсом.
+
+►Совместим с Clash, V2ray/V2fly, Sing-box, Shadowsocks, Sub, подписками на GitHub.
+►Полная поддержка конфигурации clash, частичная поддержка конфигурации clash.meta.(   Читать дальше...   )Тип издания: FreeПоддерживаемая ОС: Android 10.0 и выше (только arm64)Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E96C2860F1BEC592547B381D866D191935F1495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815424   (5146) от 30.08.2025
 
 Photo Editor v11.9 Pro Mod by Mixroot [Ru/Multi]
@@ -6,7 +114,7 @@ Photo Editor v11.9 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5146.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ GPS Эмулятор v3.07 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5025.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ WiFi Analyzer v6.3 (b101) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5017.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Tricky Words / Хитрое слово: слова из букв v10.1.1 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5011.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5005.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ TikTok Private Plus v41.5.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5001.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4996.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4985.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4967.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ Photo Editor v11.9 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4936.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ Word Learn Languages v5.12 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4700.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4698.jpg" />
 </div>
 
 
@@ -321,7 +429,7 @@ ElectroBox - Electronics v50 Mod by Viktor245 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4696.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ Mock Locations (fake GPS path) v1.35.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4673.jpg" />
 </div>
 
 
@@ -373,7 +481,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.92 Mod by Alex.Strannik [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4563.jpg" />
 </div>
 
 
@@ -399,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4560.jpg" />
 </div>
 
 
@@ -425,7 +533,7 @@ Bazaart: Photo Editor & Graphic Design v3.3.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4536.jpg" />
 </div>
 
 
@@ -451,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4531.jpg" />
 </div>
 
 
@@ -477,7 +585,7 @@ MIUI-ify v1.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4481.jpg" />
 </div>
 
 
@@ -503,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4476.jpg" />
 </div>
 
 
@@ -532,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4475.jpg" />
 </div>
 
 
@@ -559,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4463.jpg" />
 </div>
 
 
@@ -570,115 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69B7FB23381F28D4E6660746772C421F4E69320F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816238   (4450) от 04.09.2025
-
-Save location GPS / Сохранить местоположение GPS v9.6 Mod by Viktor245 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сохранить Местоположение GPS – Название приложения говорит за себя! Это ваш личный помощник определения местоположения. Сохраните свои любимые места. Никогда не забудете, где припарковали машину. Поделитесь важными местоположениями с друзьями или коллегами.Тип издания: ProРелиз состоялся: 01.09.2025Разработчик: RAYO INNOVATIONS PRIVATE LIMITEDПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46398C0B9F3133C61CBBD9D2FB2AE3767F397D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816235   (4448) от 04.09.2025
-
-Real Fishing / Настоящая Рыбалка v0.0.71 Mod by vadj [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4448.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Настоящая Рыбалка" – это реалистичный симулятор рыбалки, где каждый заброс погружает в медитативное состояние, а каждая пойманная рыба приносит истинное наслаждение.Тип издания: ModРелиз состоялся: 01.09.2025Разработчик: MakarskijПоддерживаемая ОС: Android 8.0+Жанр: Симулятор рыбалкиЯзык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F96AE43C7780FBDC706B9DEC67E196746930482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816400   (4429) от 04.09.2025
-
-Домино v1.75.2 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домино, безусловно, одна из самых известных настольных игр в мире. Существуют десятки правил, но три варианта правил привлекают наибольшее внимание:
-- Взять костяшку: простая, расслабляющая игра, играйте своими костяшками на оба конца. Вам нужно только сопоставить масть костяшки, из имеющихся у вас, с мастью костяшки на одном из двух концов.
-- Блокировать костяшку: (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.09.2025Разработчик: Loop GamesПоддерживаемая ОС: Android 6.0+Жанр: Настольные игрыЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C2EB17120015A03DB062B688E77FACA99B1472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816466   (4325) от 05.09.2025
-
-Purvpn 9.1 [En/Farsi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите безопасный и анонимный доступ в Интернет с помощью бесплатного VPN-сервиса для Android всего за несколько нажатий.
-Шифрование данных с использованием конфигураций vmess, vless, shadowsocks, wireguard
-Возможность использовать режим прокси.
-(   Читать дальше...   )Тип издания: FreeПоддерживаемая ОС: Android (минимальная версия не указана)Язык интерфейса: Английский, Фарси
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468AA7F96050C21F0BD2CFF9C6662D3086CE25B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

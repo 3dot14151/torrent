@@ -1,3 +1,55 @@
+###  Публикация: 1341667   (227830) от 29.11.2019
+
+uTorrent 3.5.5 Build 45449 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227830.jpg" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2CB318A76E2FD05301753BA83503D5428B2ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341691   (227754) от 29.11.2019
+
+Ирландец / The Irishman (2019) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227754.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о Фрэнке Ширэне по прозвищу Ирландец, которому приписывают убийство 25 гангстеров, включая самого Джимми Хоффу.Производство: США / Fabrica de Cine, STX Entertainment, Sikelia Productions, Tribeca ProductionsЖанр: Драма, криминал, биографияРежиссер: Мартин СкорсезеАктеры: Роберт Де Ниро, Анна Пакуин, Аль Пачино, Джо Пеши, Алекса Палладино, Джесси Племонс, Харви Кейтель, Бобби Каннавейл, Стивен Грэм, Джек ХьюстонПеревод: Дублированный (Netflix)Субтитры: Русские (Forced, full), английские (Forced, Full)Продолжительность: 03:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63905CCA538732B8C8AEF28694CC68938A657D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649495   (227090) от 30.07.2023
 
 Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0/dlc) Repack DjDI
@@ -6,7 +58,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0/dlc) Repack DjDI
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227090.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226998.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Windows 10 Enterprise LTSB 2016 v1607 x64  by Zosma 10.12.2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226994.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ Bishoujo Senshi Sera Mun Kurisutaru / Pretty Guardian Sailor Moon Crystal / Пр
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226779.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226754.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226728.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226720.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226642.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226501.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226458.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226451.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226297.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.1_51852_59618/dlc) License GOG [Game of the Yea
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226285.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226240.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226232.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Windows 11 22H2 (22621.674) x64 (6in1) by Brux [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225861.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225627.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225314.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225291.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ The Bat! Professional 5.3.4 Final RePack (& Portable) by KpoJIuK [MULTi / Рус
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225232.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224958.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ SteamOS 2015.10.28 [x86, x86-64] (1xDVD, 1xUSB)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224928.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ FarCry 3 Deluxe [WineSkin] 18+
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224882.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ RusTV Player 3.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224818.jpg" />
 </div>
 
 
@@ -626,60 +678,6 @@ RusTV Player - программа для просмотра телевизион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFB3FF5C621A0D38640A074D1F3D065B968D557D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965381   (224784) от 14.12.2015
-
-Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7163.5000 SP2 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных программ для ПК, браузеров и телефонов. Данный пакет имеет все функции, которые нужны многим уже сегодня, а некоторые могут пригодиться в будущем. С данным набором вы можете успешно принять вызов сегодняшней экономической ситуации. и не упустить факторы достижения успеха в области IT. Обычные сотрудники смогут (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0517642B157F12CA5DDA3BA9E1DCAB6B3048FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342136   (224394) от 01.12.2019
-
-Kaspersky Internet Security 2020 20.0.14.1085 (e) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Internet Security -- комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ.
-
-Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, эффективность (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EA7018E4479FE59DAC1DDDE3B1A606D4B0CDE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1573331   (238063) от 31.08.2022
+
+Pluralsight, Dan Cox | Realistic Texturing of Modular Structures in Substance Painter 2 (2016) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238063.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы займетесь текстурированием модульных структур, это завершающий этап подготовки игровых ассетов. Все элементы и детали мы будем текстурировать процедурным способом с помощью Substance Painter 2, этот программный пакет позволяет наиболее быстрым способом проработать все участки и области ваших моделей. В этом курсе вы научитесь использовать процедурное (   Читать дальше...   )Производство: PluralsightЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C814B7D865EE026A561419A69F048CC940154A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548172   (237902) от 02.05.2022
+
+Motiondesign.school, Markus Magnusson | Science of Character Animation (2019) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Придайте своим 2D-персонажам как можно больше жизни в этом всеобъемлющем курсе о потрясающем мире Анимации Персонажа. Маркус рассмотрит множество принципов классической анимации и дизайна персонажа. А кроме того он поделится своими уникальными приемами, которые он проработал за годы опыта в качестве профессионального аниматора и дизайнера моушен-графики.Производство: Motiondesign.schoolЖанр: Анимация персонажейЯзык озвучки: РусскийПродолжительность: 09:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AD5B37AC9683DF6AA426EFAEA50F634D811D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548539   (237796) от 03.05.2022
 
 CGcircuit, Steven Knipping | Applied Houdini Volumes I (2019) PCRec [RU]
@@ -6,7 +58,7 @@ CGcircuit, Steven Knipping | Applied Houdini Volumes I (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237796.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Michael Pavlovich | Substance Designer Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237772.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Skillshare, Neil Bettison | Blender 3 - The Beginners Ultimate Stylized Scene Cl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237689.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Michael Pavlovich | Substance Painter Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237645.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Gumroad, Daniel Thiger | Tree Bark Creation (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237447.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Skillshare, Aniket Rawat | Creating a Kitchen Environment in Unreal Engine 5 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237097.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237007.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Lynda, Brenda Romero | Game Design Foundations: 1 Ideas, Core Loops, and Goals (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236840.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ The Gnomon Workshop, Bill Buckley | Creating Game Ready Animations for Productio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236818.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ WingFox, Pedro Blanco | Sci-Fi Environment Design Concept Art Course (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236624.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Udemy, Hamid Reza Afshari | 3ds Max 2023 for Beginners (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236375.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Udemy, Imran Nuruhussen | Complete Blender Course: From modelling to a short ani
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236282.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ FlippedNormals, Emiel Sleegers | Advanced Texturing in Substance Painter (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236269.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ The Gnomon Workshop, Guilherme Rambelli | Creating Assets for Games using Photog
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236005.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ Udemy, Руслан Брантов | Курс по CorelDRAW: теория, пр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235946.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235724.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Epic Games, Paul Kind | Studio Lighting (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235635.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Gumroad, Wiktor Öhman | Mastering UE4 - Intro to Cinematic Lighting (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235627.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ Udemy, Art Studio | Complete Blender Course for Beginners & Intermediate (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235601.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Udemy, Mateusz Wendowski | AAA Game 3D Character Art course Module 01 - Body (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235586.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ Titanic Games, Jaxon | RPG Tutorial Series (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235573.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Skillshare, Yassine Larayedh | Create Realistic Looking 3D Environments in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235551.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ Udemy, Art Studio | Complete Blender Creator: Learn 3D Modelling for Beginners (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235520.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ Von Glitschka | Лаборатория векторной графики (2016-2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235432.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ Von Glitschka | Лаборатория векторной графики (2016-2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F55E7A27D35C4E718903FC11FC8CCE4CA9DE70FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551431   (235190) от 15.05.2022
-
-The Art Of Aaron Blaise, Aaron Blaise | Perspective Drawing (2019) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аарон Блейз – номинированный на Оскар режиссер, аниматор и художник. И в этом абсолютно новом пятичасовом курсе этот всемирно известный художник будет учить вас работать с перспективой.
-Аарон продемонстрирует несколько техник создания рисунков с линейной перспективой и объяснит свой мыслительный процесс и свои методы в легко доступной манере.Производство: The Art Of Aaron BlaiseЖанр: Изобразительное искусствоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 04:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409A313E4C2B6AD4C4726BF33EC804EF681E9DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551437   (235169) от 15.05.2022
-
-The Gnomon Workshop, Sarah Arduini | Character Animation and Video Reference (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235169.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом видео речь пойдет о базовых принципах планирования анимации. Хороший референс – это ваша дорожная карта. Если референс так себе, то такой же будет и ваша анимация. Воркшоп ведет Сара Ардуини, старший аниматор по персонажам и ведущая художница. Она расскажет вам об инструментах и процессах, которые сама использует в повседневной работе, создавая видереференсы (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Анимация персонажейЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00990D5867415AB74388A390452EB41B7AA97CFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

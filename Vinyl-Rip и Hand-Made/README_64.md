@@ -1,3 +1,32 @@
+###  Публикация: 1696275   (119760) от 01.02.2024
+
+Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Jungle
+02. It's So Easy
+03. Nightrain
+04. Out Ta Get Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696338   (119646) от 02.02.2024
 
 Юрий Гуляев - Ты Моя Мелодия (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
@@ -6,7 +35,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119646.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119624.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119623.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119620.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119615.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Serenity - Studio Albums (8 releases) (2007-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119474.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119305.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119107.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119082.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119079.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118941.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118923.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118921.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118905.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118903.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Bla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118898.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118414.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118409.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Lacuna Coil - Karmacode (2006) [WavPack|32/384|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118395.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Got
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118311.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ VA - Песни И Романсы. Поют В. Трошин, З. Невская
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118295.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118252.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118250.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Lacuna Coil - Delirium (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118231.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118070.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Nickelback — канадская рок-группа, основанная в 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670202   (117984) от 12.02.2024
-
-Anathema - Studio Albums (15 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anathema — британская рок-группа, образованная в Ливерпуле в 1990 году. Стиль группы постепенно перешёл от дэт-дум-метала до прогрессивного рока. Вместе с Paradise Lost и My Dying Bride, Anathema считаются одними из основоположников стиля дэт-дум-метал.1992 - The Crestfallen
-1993 - Serenades
-1995 - Pentecost III
-1995 - The Silent EnigmaЖанр: Doom/Death Metal, Progressive/Atmospheric RockПродолжительность: 14:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF29E8E1D4A78C405809317268B8522DCEEB99B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1218817   (719108) от 11.04.2018
+
+Brink of Extinction (2017) [Ru/Multi] (1.0) License HI2U
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brink of Extinction – вызывающая игра жанра tower defence, действие которой
+разворачивается среди руин человеческой цивилизации. Тебя ждут полчища насекомых на 15 уровнях в режиме кампании и 8 уровнях в непрерывном режиме игры. В твоём распоряжении арсенал жестокого оружия – от пулеметных турелей до плазменных турелей и рельсотрона.Тип издания: LicenseРазработчик: Correcture Games ABЖанр: Strategy, Action (Top-Down), 3DЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD0851819A633662A0E9FC2237AA0F55CFA1794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129871   (718017) от 30.04.2017
+
+Army General (2017) [En/Ge] (1.0.25) License SKIDROW
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Army General - пошаговая стратегия, посвященная сражениям времен Второй Мировой войны, события которой будут происходить посреди африканских пустынь! Возьмите на себя руководство 7-й танковой дивизией Великобритании, известной также как «Пустынные крысы». Дайте достойный отпор итальянскому вторжению в Египет, случившемуся в 1940 году и дойдите до Суэца. Создавайте (   Читать дальше...   )Тип издания: LicenseРазработчик: PhobetorЖанр: Strategy (Turn-based, Wargame), IsometricЯзык озвучки: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8E21E06A4F1D105EC763D398D3EF1D7D1CBCD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121441   (717872) от 30.04.2017
 
 Company of Heroes 2 (2013) [Ru/En] (4.0.0.21725/dlc) Repack R.G. Механики [Master Collection]
@@ -6,7 +59,7 @@ Company of Heroes 2 (2013) [Ru/En] (4.0.0.21725/dlc) Repack R.G. Механик�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717872.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715054.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Z: The Game (2014) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713129.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ SteamWorld Heist (2016) [Ru/Multi] (2.0/b.2.1.2.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713051.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) License PLAZA 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710355.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) SteamRip R.G. Игроманы
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709814.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Door Kickers (2014) [Ru/Multi] (1.0.10) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698270.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698155.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Men of War: Assault Squad / В тылу врага 2: Штурм (2011) [Ru/Mult
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695337.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ Hard West (2015) [Ru/Multi] (1.4.160303.1235/dlc) Repack R.G. Revenants
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691930.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.5.9139/dlc) Repack =nemos=
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689956.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ Call to Arms (2018) [Ru/Multi] (1.200/dlc) Repack xatab [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689886.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ Blackguards (2014) [Ru/En] (1.7.23231/dlc) Repack =nemos=
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688093.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ BATTLETECH (2018) [Ru/Multi] (1.4.0-449R/dlc) Repack R.G. Механики [Digi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687838.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.2.70/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675740.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ Crookz - The Big Heist (2015) [Ru/Multi] (24360) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675651.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673727.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ Steel Division: Normandy 44 (2017) [Ru/Multi] (300080502/dlc) SteamRip Let'sPlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670419.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ Tanks vs Aliens (2017) [Ru/En/Ch] (5.6.1.24) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667569.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.2.f) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663588.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ BATTLETECH (2018) [En] (1.0.3-280R/dlc) Repack Other s [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657445.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ Ancestors Legacy (2018) [Ru/Multi] (47903) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649893.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ Halo Wars (2017) [Ru/En] (20170605) Repack R.G. Механики [Definitive Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646066.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ TASTEE: Lethal Tactics (2016) [Ru/Multi] (1.0/dlc) License CODEX [Ultimate Colle
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640717.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ TASTEE: Lethal Tactics (2016) [Ru/Multi] (1.0/dlc) License CODEX [Ultimate Colle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F8E7C4A722699636D67FA81BFEC0C860A98E8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035106   (629810) от 15.07.2016
-
-Infinium Strike (2016) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infinium Strike — это космическая стратегия-экшен, в которой вы выполняете роль командира боевой части на ударном авианосце Freedom Strike. Собирая и используя инфиний, живой металл космоса, игроки могут бесконечно «штамповать» мощные турели и смертоносный флот дронов. Операция «Свобода» — тайная военная операция, нацеленная на то, чтобы переломить ход войны с врагами. (   Читать дальше...   )Тип издания: RepackРазработчик: Codex WorldsЖанр: Strategy (Tower Defense), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4B8ACB6C4100746735D2C87AC78F2AF6881108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284755   (629319) от 07.04.2019
-
-BANNERMEN (2019) [Ru/Multi] (1.1) License RELOADED
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примерьте на себя роль падшего лорда, который стремится вновь занять свое место среди сильных мира сего. Путь ваше знамя вселяет страх в противников, когда вы сражаетесь в захватывающих боях, стремясь стать лучшим из лучших.Тип издания: LicenseРазработчик: Pathos InteractiveЖанр: Strategy (RTS), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724DF2865FCFE0413AB538EE8021E9B26C6DD549
 ```
 
 https://mybot314.ru/tekegram_catalog/

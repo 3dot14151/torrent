@@ -1,3 +1,61 @@
+###  Публикация: 1483706   (1006644) от 15.07.2021
+
+David Wilson - Dreams Of Hollywood Nights (1999) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006644.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Wilson начал свою профессиональную карьеру в середине 80-х, играя каждую ночь в ресторанах и кафе Beverly Hills, California. Здесь он выступал для голливудских знаменитостей, профсоюзных и политических деятелей, спортсменов, артистов, писателей, всех тех, кто объединен словом бомонд. И если человек талантлив, то рано или поздно, он будет замечен в любом случае. (   Читать дальше...   )01. Charade (3:19)
+02. The Days of Wine and Roses (3:48)
+03. Two for the Road (3:07)
+04. Slow Hot Wind (4:49)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67F44F273033E4ABC7835B3958ADE09CC903622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483979   (1006504) от 16.07.2021
+
+Ансамбль солистов "Русский фестиваль" -  Музыка Цыганкова, Трояновского, Иванова, а также  русские народные песни. (1993) [FLAC|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цыганков - Русский сувенир (попурри) (6:50)
+02. Жар - Тема Лары из музыки к к/ф "Доктор Живаго" (3:58)
+03. Цыганков - Мар дяндя (2:42)
+04. Фомин-Подревский - Дорогой длинною (романс) (4:24)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D10EA6348041E2E0E49B65D343EB4EA4843ED81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464013   (1006398) от 17.07.2021
 
 Behzad (Behzad Aghabeigi) - Discography (1997-2019) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar>
@@ -6,7 +64,7 @@ Behzad (Behzad Aghabeigi) - Discography (1997-2019) WEB [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006398.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-se
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006320.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006219.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jim Brickman - Bedtime Story Volumes Two & Three (2021) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005931.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005257.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Gheorghe Zamfir - Pan Flute Improvisations (1988) [FLAC|Lossless|image + .cue] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005204.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Re
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004436.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibe
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004272.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004225.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопе�
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004040.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, P
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003860.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Caravelli - Caravelli at San Remo & J’aime (2019) Compilation, Remastered [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003786.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003775.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Films - Signs From The Past (2016) (Ricco) [FLAC|Lossless|tracks] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003772.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003730.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Throne Room Company - 4  альбома (2011-2013) Discography [MP3|320 кб/с
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003686.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ James Last - Russland Erinnerungen (1977) WEB-Rip by Deezer [FLAC|Lossless|track
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003596.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ George Winston - -A Memorial Benefit (2020) Special Edition [FLAC|Lossless|WEB-D
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003283.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003243.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Modern Spirit - Infinite Wisdom (2019) [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002942.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Films - A Forbidden Garden (2013) (Ricco) [FLAC|Lossless|tracks] <Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002510.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Films - Messenger (2010) (Midi Creative) [FLAC|Lossless|tracks + .cue] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002504.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002467.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Igor Presnyakov - Acoustic Rock Ballad Covers (2011) [MP3|~190 кб/с (V2)]<ist
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002458.jpg" />
 </div>
 
 
@@ -684,70 +742,6 @@ Igor Presnyakov - Acoustic Rock Ballad Covers (2011) [MP3|~190 кб/с (V2)]<ist
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B3F33DF487B80E2765F57DEF2796450C37054C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716860   (1002343) от 09.01.2020
-
-The Royal Philharmonic Orchestra - 33 альбома (1969-2019) [OGG|320 kbps]<Instrumental, инструментальная музыка в обработке, Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевский филармонический оркестр (КФО, англ. Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).1.  As time goes by (Hupfeld)		(03:03)
-2.  Unchained melody (North/Zaret)	(03:43)
-3.  The time of my life
-    (Previte/De Nicola/Makowitz)	(05:21)(   Читать дальше...   )Жанр: Surf RockПродолжительность: 35:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837DABE8A786B3414D3E6D4113282CFE5A725A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483488   (1002263) от 10.08.2021
-
-Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [FLAC|Lossless]<folk, jazz, ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002263.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nú Brenner Tú I Mær [06:21]
-2. Rósufarið [06:23]
-3. Om Jag Våger [06:57]
-4. Prelude To Endurfødd [01:23]
-5. Endurfødd [04:56]
-6. Mín Móðir [08:28]
-7. Lær Meg Guð At Liva [08:52]
-8. Jeg Vil Mig Herren Lovae [08:02]
-9. Prelude To Trøllabundin [03:03]
-10. Trøllabundin [03:01](   Читать дальше...   )2005Жанр: folk, jazz, ambientПродолжительность: 01:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5155E4E52221FE79CAE44871ECDB3A11FB09F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

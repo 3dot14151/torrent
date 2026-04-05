@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1862505   (1063375) от 
+
+Футурама / Futurama (2025) WEBRip [H.265/1080p] [10-bit] (сезон 10, серии 1-10 из 10) TVShows, LostFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063375.jpg" />
+</div>
+
+
+###  Подробнее
+
+По нелепой случайности Фрай попадает в будущее — в 3000 год, где его ждут верные друзья в лице безумного робота Бендера и одноглазой Лилы.Производство: США / The Curiosity Company, 20th Century Fox Television, 20th Television AnimationЖанр: мультфильм, фантастика, комедия, приключенияРежиссер: Питер Аванзино, Рич Мур, Брэт ХааландАктеры: Билли Уэст, Джон Ди Маджио, Кэти Сагал, Тресс МакНилл, Фил ЛаМарр, Морис ЛаМарш, Лорен Том, Дэвид Херман, Фрэнк Уэлкер, Кэт СусиПеревод: Многоголосый (TVShows, LostFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AADF4AFEE8673CC92D8A8CE70AFB147CE47CCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862441   (1063374) от 
+
+Конь БоДжек / BoJack Horseman (2014-2020) WEBRip [H.264/1080p-LQ] (сезон 1-6, серии 1-77 из 77) Невафильм, NewStudio, TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в мире населенном антропоморфными животными и людьми. Большая часть сюжета происходит в Лос-Анджелесе. БоДжек — звезда ситуационной комедии, популярной в конце 80-х — начале 90-х годов, на момент времени происходящего в сериале, БоДжек переживает кризис среднего возраста. В попытках вернуть былую популярность и любовь публики, БоДжек пытается (   Читать дальше...   )Производство: США | Tornante Company, NetFlix, ShadowMachine FilmsЖанр: мультфильм, драма, комедия, для взрослых
+
+Режиссер: Эми Уинфри, JC Gonzalez, Аарон ЛонгПеревод: Дублированный (Невафильм), многоголосый (NewStudio, TVShows)Язык озвучки: русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E1C70C9DFB971277A8CAA8790540EA4311F88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862135   (1062974) от 
 
 Истории далёкого пригорода / Tales from Outer Suburbia (2026) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-6 из 10) Delta Dubbing (Обновляемая)
@@ -7,7 +61,7 @@ https://t.me/izofen
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062974.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061978.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061789.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059543.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057793.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056964.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054834.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053496.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053476.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052317.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051620.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051314.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051235.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051059.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050972.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050600.jpg" />
 </div>
 
 
@@ -424,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050599.jpg" />
 </div>
 
 
@@ -450,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050477.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049871.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049624.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049286.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049285.jpg" />
 </div>
 
 
@@ -580,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047716.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047713.jpg" />
 </div>
 
 
@@ -617,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF2908C23D8750F43DD8700EACFC60388D6B46DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840720   (1047456) от 07.12.2025
-
-Моб Психо 100 / Mobu Saiko Hyaku / Mob Psycho 100 (2019) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2, серии 1-13 из 13) Force Media [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сигэо Кагэяма по прозвищу «Моб» – школьник, которому тяжело выражать свои чувства. Ещё он могущественный экстрасенс. Моб хочет жить обычной жизнью и подавляет свои сверхъестественные силы, но когда уровень накопленного стресса переваливает за 100%, с ним происходит нечто ужасное. Его окружают экстрасенсы-самозванцы, злые духи, таинственные организации. Что решит (   Читать дальше...   )Производство: Япония / BonesЖанр: аниме, мультфильм, боевик, комедия, фантастикаРежиссер: Юдзуру Татикава, Такэфуми Андзаи, Кацуя СигэхараАктеры: Сэцуо Ито, Такахиро Сакурай, Акио Оцука, Мию Ирино, Ёсицугу Мацуока, Ёсимаса Хосоя, Рюносукэ Ватануки, Сэйитиро Ямасита, Кохэй Амасаки, Даики ХаманоПеревод: Многоголосый профессиональный (Force Media)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8882965DA8F3BD6C95AB9EB34C9C8214B2EC7CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840721   (1047455) от 07.12.2025
-
-Моб Психо 100 / Mobu Saiko Hyaku / Mob Psycho 100 (2022) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-12 из 12) Force Media [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моб вместе с наставником всё так же продолжают ловить злых духов и различного рода нечисть. В этот раз им предстоит встретиться с куда более опасными противниками. Не стоит забывать и о клубе по улучшению физического здоровья, в котором состоит Моб и который получит ещё больше экранного времени.Производство: Япония / BonesЖанр: аниме, мультфильм, боевик, комедия, фантастикаРежиссер: Юдзуру Татикава, Такэфуми Андзаи, Кацуя СигэхараАктеры: Сэцуо Ито, Такахиро Сакурай, Акио Оцука, Мию Ирино, Ёсицугу Мацуока, Ёсимаса Хосоя, Рюносукэ Ватануки, Сэйитиро Ямасита, Кохэй Амасаки, Даики ХаманоПеревод: Дублированный (Force Media)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FD02779D1BE4B2A8F1953DAE12DAB2FE443545
 ```
 
 https://mybot314.ru/tekegram_catalog/

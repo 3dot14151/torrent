@@ -1,3 +1,119 @@
+###  Публикация: 1836775   (255693) от 12.11.2025
+
+Oblivion - Light of a Distant Star (2015) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:24)
+02. First Orbit  (Around The Earth) (4:57)
+03. Mysterious Universe  (Space Music Fest Edit) (3:52)
+04. On The Edge Of Infinity (4:51)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19BD603BDD8B390DBDDA47A19FAA4E9D5F0B09E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836807   (255657) от 13.11.2025
+
+VA - A State of Trance: Future Favorite - 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruben De Ronde & Amber Revival - Illuminate (Extended Mix) [5:43]
+02. Armin van Buuren & Norma Jean Martine & LAWRENT with Alok - Euphoria (Extended Mix) [3:54]
+03. Armin van Buuren & Omnia - Love (Extended Mix) [5:28]
+04. Armin van Buuren & John Christian - All Night (Extended Mix) [4:18](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C33E3B1F34B79EFF9A48BE03C4DAFF58E80E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836894   (255606) от 13.11.2025
+
+VA - Being Humans 02 - Human Ritual (2025) [MP3|320 Kbps] <Organic House, Deep House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuliano Rodrigues - Dentro De Mim 04:07
+02. Gregory Douglass, Humans Out Loud & Yves Eaux - Ready Or Not (Yves Eaux Remix) 06:40
+03. Room Zero, Humans Out Loud, Valery Lua,  Blood Groove & Kikis - Flow (Blood Groove & Kikis Extended Mix) 05:49
+04. Maxwell Ortega & Humans Out Loud - Meu País (Humans Out Loud 'saudade' Mix) 05:49(   Читать дальше...   )Жанр: Organic House, Deep House, Melodic House & TechnoПродолжительность: 01:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BDB3DF31C7C7EF54565F4093979727C339D55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836892   (255605) от 13.11.2025
+
+VA - Being Humans 01 (2024) [MP3|320 Kbps] <Organic House, Deep House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivers Pattern - Dreamer 05:57
+02. Sweetie Leonie - Summer (Original 12' Mix) 04:11
+03. Wilson Costa, Edwin Jack & Gregory Douglass - Concentrate 06:35
+04. Pasey - Boogie Walk (Original 12' Mix) 05:02(   Читать дальше...   )Жанр: Organic House, Deep House, Melodic House & TechnoПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC638459701121BB84A2DC4FA2BD0CD6F2E410E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624307   (255519) от 05.04.2023
 
 Marta and Tricky - When It's Going Wrong (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
@@ -6,7 +122,7 @@ Marta and Tricky - When It's Going Wrong (2023) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255519.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Dance Workout (2023) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255516.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Max Cruise - Night Cruise (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255506.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Final Selection - Siren’s Call (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255368.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Gary Numan - I, Assassin (1982) 2002, Beggars Banquet Records [FLAC|Lossless|WEB
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255330.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Luxury Bar Grooves Vol. 1 (2022) [MP3|320 Kbps] <Chillout, Downtempo, Balea
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255228.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Luxury Bar Grooves Vol. 2 (2023) [MP3|320 Kbps] <Chillout, Downtempo, Balea
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255225.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Black Hole House Music 04-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255203.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Anjunadeep 14 (Mixed by Jody Wisternoff & James Grant) - 2023 [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255168.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Curiosity Killed the Cat - Misfit (1987) US 12" Single [MP3|320 Kbps] <Synth-Pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255099.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Smooth Melodic Beats: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255027.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Female Vocal Trance Legends - Best Of The Best (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254944.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Saturday Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254877.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Nothing But... Trancetopia, Vol. 02 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254813.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Ibiza Winter Session 2026 (The Lounge Cookies) (2025) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254355.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Deep House Relax 2025: Echoes (2025) [MP3|320 Kbps] <Deep House, Organic Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254080.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ V.A. - Best Sound of Chill & Lounge 2025 - Winter Edition (2025) [FLAC 24/44.1|L
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254074.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ A-ha - Lifelines (Japanese version) (2002) [APE|Lossless]<Pop, New Wave, Synth-p
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254063.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012) [MP3|~245 кб/с ]<Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253917.jpg" />
 </div>
 
 
@@ -565,7 +681,7 @@ Pro>Tech – Orbiting Cathedrals (1997) [FLAC|Lossless] <Breaks, Techno, Industr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253211.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ VA - Top 11 August 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253099.jpg" />
 </div>
 
 
@@ -627,7 +743,7 @@ VA - Top 10 July 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253098.jpg" />
 </div>
 
 
@@ -641,134 +757,6 @@ VA - Top 10 July 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37594C19ABEB9AAB8CB73737E3DDABCDA4B5B38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836469   (253097) от 11.11.2025
-
-VA - Top 10 June 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Grom - Calisto (Intro Mix) [06:15]
-02. SounEmot - Quizás El Amor (Emotional Mix) [10:09]
-03. Jef Karlen - Eclipse [06:43]
-04. Ocoro - Hayan Sonamu [07:42](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67D11ADBFF181E739555C7C389533270D13A7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836532   (253089) от 11.11.2025
-
-VA - Ibiza Winter 2026 (Chill Out Cookies from the Heart) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lemongrass - Pacific (04:35)
- 02.  Calmabohain - Balearic Consciousness (Sunset Beach Remix) (03:06)
- 03.  TAWO - Dear Insomnia (03:56)
- 04.  Weathertunes - Blueberry Field (03:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6578882343843557F45514010C86154F77ADCE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496478   (253022) от 14.05.2012
-
-Haujobb - 17 albums (1993-2011) [FLAC|Lossless] <Electro-Industrial, Techno, EBM, IDM, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Haujobb (haujobb.) был сформирован в 1993 году в Германии Даниэлем Майером (Daniel Myer), Деяном Самарджичем (Dejan Samardzic) и Бьёрном Джунеманном (Björn Jünemann). Название группы происходит из фильма Blade Runner («Бегущий по лезвию»), в котором репликантов на сленге называли skin job, что на немецкий было переведено как Haut Job. Группу сразу же окрестили лидерами нового индустриального движения, но сами музыканты отказываются от этого титула, и даже заявляют, что их музыка не совсем подходит под определение «industrial». Постоянно внедряя в ткань EBM элементы других стилей - эмбиент, джангл, различные формы техно - Haujobb быстро завоевал репутацию уникальной группы с неповторимым саундом.CD1 - New World March: (00:53:29)
-01. Control (05:17)
-02. Crossfire (03:54)
-03. Lets Drop Bombs (04:51)
-04. More Than Us (04:16)
-05. Machine Drum (04:44)
-06. Dead Market (03:57)
-07. Lost (04:26)
-08. Soul Reader (04:10)
-09. Little World (04:35)(   Читать дальше...   )1993-2011Жанр: Electro-Industrial, Techno, EBM, IDM, ExperimentalПродолжительность: 01:49:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 275573   (252771) от 13.05.2012
-
-Hooverphonic - 11 альбомов (1996-2012) [FLAC|Lossless]<Trip-hop, Lounge, Downtempo - Vocal>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Gold 05:35
-02. Icy 04:20
-03. Rope Dancer 03:05
-04. Strange Disorder 04:25
-05. 107 Windows 03:42
-06. Unlock 04:10
-07. Smile 04:43
-08. Blinded 04:59
-09. For The Beauty Of Confusion 04:16
-10. Night Time 'round Here 04:25(   Читать дальше...   )Жанр: Trip-hop, Lounge, Downtempo - Vocal  |Продолжительность: 00:51:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

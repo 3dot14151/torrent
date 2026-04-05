@@ -1,31 +1,3 @@
-###  Публикация: 1020658   (742868) от 27.05.2016
-
-Специалист | CEH4. Руководитель службы информационной безопасности и защиты от хакерских атак (2016) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс готовит руководителей верхнего уровня в области информационной безопасности.
-
-Цель курса – получить знания и навыки, необходимые для успешного применения принципов управления информационной безопасностью.Производство: СпециалистЖанр: Информационная безопасностьПродолжительность: 21:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C10A503DF94608F614D790DC8ADCB11DEF7FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020110   (742866) от 27.05.2016
 
 Фёдор Самородов | М10962А Расширенные возможности Windows PowerShell (2015) PCRec
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742866.jpg" />
 </div>
 
 
@@ -63,7 +35,7 @@ PentestIT | Тестирование на проникновение с испо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742783.jpg" />
 </div>
 
 
@@ -89,7 +61,7 @@ TeamLead | Confluence. Базовый тренинг для администра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742478.jpg" />
 </div>
 
 
@@ -118,7 +90,7 @@ HTML Academy | React. Разработка сложных клиентских �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741876.jpg" />
 </div>
 
 
@@ -147,7 +119,7 @@ ITVDN | Видео курс Выполнение домашнего задани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741490.jpg" />
 </div>
 
 
@@ -173,7 +145,7 @@ Geekbrains | FreeBSD. Администрирование серверов (2014)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741407.jpg" />
 </div>
 
 
@@ -199,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741256.jpg" />
 </div>
 
 
@@ -225,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741098.jpg" />
 </div>
 
 
@@ -252,7 +224,7 @@ Udemy, René Fürst | OpenVPN verstehen und einrichten – Sicher im Netzwerk (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738993.jpg" />
 </div>
 
 
@@ -280,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736495.jpg" />
 </div>
 
 
@@ -306,7 +278,7 @@ Reso Coder, Matej Resetar | Flutter Developer Bootcamp (2022) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736258.jpg" />
 </div>
 
 
@@ -333,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735988.jpg" />
 </div>
 
 
@@ -360,7 +332,7 @@ Leanpub, Jason McCreary | BaseCode - A field guide to writing lasting code (2018
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735829.jpg" />
 </div>
 
 
@@ -389,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735751.jpg" />
 </div>
 
 
@@ -416,7 +388,7 @@ OTUS | PHP-разработчик. Часть 2 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735505.jpg" />
 </div>
 
 
@@ -442,7 +414,7 @@ OTUS | PHP-разработчик. Часть 1 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735497.jpg" />
 </div>
 
 
@@ -468,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734555.jpg" />
 </div>
 
 
@@ -494,7 +466,7 @@ Foxford | Курс программирования на Python для начи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734554.jpg" />
 </div>
 
 
@@ -520,7 +492,7 @@ OTUS | Fullstack разработчик JavaScript (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734105.jpg" />
 </div>
 
 
@@ -547,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734096.jpg" />
 </div>
 
 
@@ -573,7 +545,7 @@ Pluralsight, Joe Abraham | Cisco Certified CyberOps Associate (CBROPS 200-201) (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733954.jpg" />
 </div>
 
 
@@ -599,7 +571,7 @@ Udemy | The Ultimate C# and Unity course for beginners (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733494.jpg" />
 </div>
 
 
@@ -625,7 +597,7 @@ OTUS | CI/CD на AWS, Azure и Gitlab (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733255.jpg" />
 </div>
 
 
@@ -654,7 +626,7 @@ Coursera | IBM AI Engineering Professional Certificate (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733048.jpg" />
 </div>
 
 
@@ -683,7 +655,7 @@ James Q Quick | React и Serverless - Fullstack разработка / React and
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732832.jpg" />
 </div>
 
 
@@ -694,6 +666,35 @@ James Q Quick | React и Serverless - Fullstack разработка / React and
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F70AFAF5EE732E6C870BE5D1914ECA351659DE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020858   (732308) от 29.05.2016
+
+Максим Фартусов | Супер Проектировщик в AutoCAD (2016) CamRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732308.jpg" />
+</div>
+
+
+###  Подробнее
+
+УРОК ПОЛНЫЙ!!!
+БЫСТРО И ПРОСТО:
+  -Научитесь проектировать в AutoCAD за 24 часа по самому понятному видео-руководству
+ЭКОНОМНО:(   Читать дальше...   )Жанр: Проектирование, дизайнПродолжительность: ~21:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3849DAA6418D87104CFB1D18DF46F40D283902A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

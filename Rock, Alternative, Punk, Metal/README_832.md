@@ -1,3 +1,32 @@
+###  Публикация: 1114531   (241524) от 15.03.2017
+
+Mondocane - Project One (1990) Remastered, 2013 [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necroschizophrenia 03:05
+02. Violence Abuse? 02:08
+03. Mario, Please Don't Cry 02:17
+04. Mad Carlo F. 8 Cars You Wrecked ! 03:00(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DF2194B5DA05CAC6E3A8B9D3A333A1F67383F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625683   (241509) от 11.04.2023
 
 VA - Rock 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@ VA - Rock 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241509.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Suicide Silence - Remember... You Must Die (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241502.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Guru Guru - The Three Faces Of Guru Guru 1970-2021 (2023) 3CD [MP3|320 Kbps] <Kr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241495.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Paloma Faith ‎ - Do You Want the Truth or Something Beautiful? (2009) [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241492.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Creye - III Weightless (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241471.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Celestial Season - Solar Lovers (1995) Remaster, 2020, Burning World Records [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241461.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Dangermuffin - Heritage (2017) [FLAC|Lossless|tracks + .cue] <Folk Rock, America
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241458.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Atomic Annie - Sick Frustrations New Foundations (2023) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241456.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Celestial Season - Forever Scarlet Passion (1993) Remaster, 2020, Burning World 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241453.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ K.S.V. - Цикл (2021) [MP3|320 Kbps] <Hardcore Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241436.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Northlane - 6 альбомов + 1 EP (2010-2022) [MP3|320 кб/с]<Progressive 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241413.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Majesty - Back To Attack (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241412.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ B.O.S.C.H. - Parasit (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial-Metal, Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241409.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Curse Within - Heartless (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241405.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Azaghal - Alttarimme on Luista Tehty (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241402.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Dream Awake - Enigma (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241396.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Van der Graaf Generator - The Bath Forum Concert (2023) Live, 2CD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241385.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Santana - Santana Live In 1978: Black Magic Woman (Live) (2022) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241374.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Hawkwind - Days Of The Underground: The Studio & Live Recordings 1977-1979 (2023
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241360.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Neil Young - Promise of the Real - Noise and Flowers (2022) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241348.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Cynthesis - ReEvolution (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241319.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Fatal Portrait - Adventum (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241314.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Darking - Steal The Fire (2015) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241301.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Richard Wright - Wet Dream (1978) Japanese Edition, Reissue, 1994, Sony Records 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241300.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Kinetic - The Chains That Bind Us (2004) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241296.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Kinetic - The Chains That Bind Us (2004) [FLAC|Lossless|image + .cue] <Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BC4EC00514C589C07B7AE1E9EF30A90C00AEA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625942   (241291) от 12.04.2023
-
-Garage Dayz - Take One (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast to Madness
-02. The Stage
-03. Stand Alone
-04. Lost(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F910DD35219159B6FB85C1162387F57AB7A655
 ```
 
 https://mybot314.ru/tekegram_catalog/

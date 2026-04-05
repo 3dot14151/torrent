@@ -6,7 +6,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55171.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.5/dlc) Repack Decepticon [Trucking He
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51464.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Circuit Superstars (2023) [Ru/Multi] (1.6.2/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50924.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MotoGP 24 (2024) [Multi] (1356129) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50910.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.50.3.7s/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50213.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49431.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49413.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49400.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FlatOut (2005) [Ru/Multi] (1.01) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49232.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Guns Demons (2024) [En] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49220.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (653.463/dlc) Scene Razor 1911
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48716.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Crash Time - Undercover (2012) [Multi] (1.0) Scene Skidrow
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48690.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Street Racing Syndicate (2005) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48305.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48109.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Flatout (2005) [Ru/Multi] (1.01) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47972.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Dakar Desert Rally (2022) [Multi] (2.3.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47508.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Taxi Rush (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47175.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Hot Lap Racing (2024) [Multi] (1.0.3-0cfd3d1de) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47067.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Monster Jam Showdown (2024) [Multi] (1.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45200.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Monster Jam Showdown (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44667.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Flatout 2 (2006) [Ru/Multi] (1.2) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43723.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sunrise GP (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43698.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ FlatOut: Ultimate Carnage (2008) [Ru/Multi] (1.0) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43489.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Turbo Sliders Unlimited (2022) [En] (1.00/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43478.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ExoCross (2020) [Multi] (2024.8.30.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42994.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Kitten Burst (2024) [En] (4.04c) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40319.jpg" />
 </div>
 
 

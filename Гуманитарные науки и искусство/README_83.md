@@ -1,81 +1,3 @@
-###  Публикация: 1171429   (396722) от 04.10.2017
-
-Флавий Филострат | Жизни софистов [Том I] (2017) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396722.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Жизни софистов» - один из четырех дошедших до нас сборников древнегреческих биографий, до сих пор издававшийся по-русски только в отрывках: завершивший этот сборник в 237/238 гг. н. э. Флавий Филострат был самым знаменитым представителем литературного семейства Филостратов, оставивших нам солидное и разнообразное собрание софистической прозы, создававшейся на протяжении (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360CFA76EB98E0AA143DE7386826651574D9151C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171446   (396677) от 04.10.2017
-
-А.Г. Дугин | Ноомахия. Войны ума. Латинский Логос. Солнце и Крест (2016) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Латинский Логос. Солнце и Крест» продолжает цивилизационный цикл «Ноомахия» А. Дугина и описывает еще одно западноевропейское пространство в его базовых, самобытных культурно-исторических составляющих — латинский мир (Италия, Испания, Португалия). Сложившись в Античности, достигнув апогея в эпоху возвышения Рима, латинский Логос стал полюсом западного христианства, (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AC05D479E7F222DCC758BFD449F6ED3C5BCEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171449   (396626) от 04.10.2017
-
-А.Г. Дугин | Ноомахия. Войны ума. Цивилизации границ. Семиты. Монотеизм Луны и Гештальт Ва'ала (2017) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Александра Дугина посвящена исследованию семитской цивилизации как многоуровневого явления с множеством самостоятельных полюсов, развивающегося самостоятельно, но одновременно вступающего в активное взаимодействие с окружающими культурами. Среди многочисленных уровней и полюсов семитской цивилизации автор выделяет следующие: ассиро-вавилонский, финикийский, (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3966D83B19A849375E93C5BFDCA92A2E551A0814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 401153   (395879) от 17.10.2011
 
 Подборка книг | "Начинающему графоману" [2006-2009] [FB2]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395879.jpg" />
 </div>
 
 
@@ -113,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394603.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394163.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393114.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392061.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392057.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392055.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391354.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391287.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390649.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390626.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390623.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390608.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390570.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390565.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390560.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390532.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389013.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387549.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387528.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387311.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387187.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386995.jpg" />
 </div>
 
 
@@ -674,6 +596,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:811233BC4AD11DDDDE1DE32CB388DADE0F122BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066292   (386861) от 29.10.2016
+
+Ниал Фергюсон | Великое вырождение. Как разрушаются институты и гибнут государства (2016) [EPUB, FB2, MOBI]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сделать так, чтобы финансовая система работала на общество, а не против него, была основой стабильности, а не источником проблем? Должно ли государство вмешиваться в работу банков, судов и образовательных учреждений? В чем причина слабеющего финансового и политического влияния Запада в мире? Эти вопросы остро волнуют не только западный мир. По мнению британского (   Читать дальше...   )Жанр: Экономика, история, управление, политикаФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B71F466FABA01707C56CAB81D4D6AFF3E8BAB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066522   (386486) от 29.10.2016
+
+Книжная серия | Великие музеи мира [100 книг] (2011-2013) [PDF, DjVu, FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько выдающихся полотен знаменитых художников хранится в разбросанных по всем миру музеях и картинных галереях! Как хочется пройтись по их величественным тихим залам, насладиться созерцанием картин, написанных рукою великих мастеров... Можно, разумеется, посетить некоторые из музеев, особенно если это Третьяковская галерея, а вы москвич или подмосковный житель. (   Читать дальше...   )Жанр: Искусство, культура, историяФормат: PDF, DjVu, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA24BEEF81D65B9C9B1FD6124075FF9CDA0C2AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414617   (383513) от 09.10.2020
+
+А. А. Аузан и др. | Молодежи о политической экономии (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383513.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в научно-популярной форме излагаются ключевые вопросы марксистско-ленинской политической экономии для формирования современного экономического мышления, политэкономического видения явлений и процессов у рабочей и учащейся молодежи. Раскрытие предмета и метода науки, категорий и экономических законов, противоречий экономического развития и практической функции (   Читать дальше...   )Жанр: История, политология, экономика, социология, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448829F5424F19480330BD67801D8C89680723AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

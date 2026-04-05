@@ -1,3 +1,58 @@
+###  Публикация: 1400471   (716457) от 06.08.2020
+
+Relicta (2020) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Relicta — основанная на законах физики головоломка с видом от первого лица. Раскройте тайны базы «Чандра», меняя магнетизм и гравитацию. Вы одни на Луне. Чтобы спасти дочь, вам придется полагаться на свой ум...Тип издания: RepackРазработчик: Mighty PolygonЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E6206E36B0CC341122FC2FECBE112472C6CDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130492   (715859) от 01.05.2017
+
+Fear of Clowns (2017) [En] (1.01) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оно: Кошмар из прошлого - Игра в жанре ужасов от первого лица.
+"Ты проснулся посреди ночи от звонка в дверь своей квартиры.
+Кто же это может быть в столь поздний час? Ведь ты никого не ждал...
+Может ошиблись адресом? А может... Кто-то захотел поиграть с тобой?(   Читать дальше...   )Тип издания: RepackРазработчик: Mikhail NevskyЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA86D8C7D5ACC0B13265285FEBF2E114E910DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219333   (714964) от 13.04.2018
 
 SINISTRY SILINIUM (2018) [Ru/En] (1.04) License PLAZA
@@ -6,7 +61,7 @@ SINISTRY SILINIUM (2018) [Ru/En] (1.04) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714964.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) License PLAZA [Episode 1-3
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714621.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) Repack Other s [Episode 1-
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714359.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Clockwise (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713935.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ Tick Tock Bang Bang (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713274.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ The Park (2015) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713074.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ Star Rage VR (2017) [En/Ch] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712992.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ Alien: Isolation (2014) [Ru/En] (1.0u9/dlc) Repack Decepticon [Digital Deluxe Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712325.jpg" />
 </div>
 
 
@@ -214,7 +269,7 @@ I Expect You To Die (2017) [En] (1.0.113008) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711274.jpg" />
 </div>
 
 
@@ -240,7 +295,7 @@ FireStarter (2004) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710214.jpg" />
 </div>
 
 
@@ -266,7 +321,7 @@ Hold Out (2020) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708820.jpg" />
 </div>
 
 
@@ -292,7 +347,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.1.26717up2) Repack xatab (обновля
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706817.jpg" />
 </div>
 
 
@@ -318,7 +373,7 @@ The Inevitability (2017) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706304.jpg" />
 </div>
 
 
@@ -344,7 +399,7 @@ The Occupation (2019) [Ru/Multi] (1.02) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704700.jpg" />
 </div>
 
 
@@ -370,7 +425,7 @@ Metamorphosis (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703000.jpg" />
 </div>
 
 
@@ -396,7 +451,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0/upd2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702851.jpg" />
 </div>
 
 
@@ -422,7 +477,7 @@ Mike was Сursed (2018) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702191.jpg" />
 </div>
 
 
@@ -448,7 +503,7 @@ Inner Voices (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698376.jpg" />
 </div>
 
 
@@ -474,7 +529,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17512) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698244.jpg" />
 </div>
 
 
@@ -500,7 +555,7 @@ Operation Flashpoint: Red River (2011) [Ru/En] (1.2.0.0) RePack Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695491.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ Secret of Harrow Manor (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694894.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ A Second Before Us (2017) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694619.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693896.jpg" />
 </div>
 
 
@@ -604,7 +659,7 @@ Pursuer (2019) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691626.jpg" />
 </div>
 
 
@@ -615,58 +670,6 @@ Pursuer (2019) [En] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F11162989FDFC246BE27485F116A66B25444BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028451   (689947) от 22.06.2016
-
-Umbrella Corps / Biohazard Umbrella Corps (2016) [Ru/Multi] (1.0) Repack Other s
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вступай в корпус! Capcom представляет Umbrella Corps - уникальный агрессивный шутер в стилистике Resident Evil с новыми стратегическими элементами. Вас ждут напряженные бои на ближней и средней дистанции с применением укрытий и аналоговой системы прицеливания, щекочущие нервы матчи без возможности возрождения и многое другое!Тип издания: RepackРазработчик: CAPCOMЖанр: Action, 1st Person, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC56F25FA806965EF11E3A8867C49C99DCEBE92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288963   (689785) от 14.03.2019
-
-OVERKILL's The Walking Dead (2018) [Ru/En] (1.3.2/dlc) Repack Mizantrop1337
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Overkill’s The Walking Dead — энергичный кооперативный шутер от первого лица, действие которого разворачивается в Вашингтоне после вспышки эпидемии, вернувшей мертвых к жизни. В этом испытании навыков, стратегического мышления и умения действовать сообща игроков ждут походы, поиск припасов и уцелевших людей, а также защита своего лагеря как от мертвых, так и от живых.Тип издания: RepackРазработчик: Overkill SoftwareЖанр: Экшен от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C5D1271439511B4964DFED77697A46E3EA8C48
 ```
 
 https://mybot314.ru/tekegram_catalog/

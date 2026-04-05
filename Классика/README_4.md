@@ -1,3 +1,32 @@
+###  Публикация: 75291   (961903) от 24.01.2016
+
+VA - 101 Classics: The Best Loved Classical Melodies (1998) 8CD [APE|image + .cue]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD1: The great waltzes
+CD2: The romantic piano
+CD3: Mighty choruses(   Читать дальше...   )Жанр: ClassicПродолжительность: 09:00:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 265060   (960859) от 20.01.2014
 
 VA - Новогодняя ночь (2008) Ридерз Дайджест 4CD [MP3|320 kbps] <Vocal, Classical>
@@ -6,7 +35,7 @@ VA - Новогодняя ночь (2008) Ридерз Дайджест 4CD [MP3
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960859.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - 100 Best Baroque  (2006) 6CD Box-set,  серия "Best 100" [FLAC|Lossless
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960618.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Klassiska Favoriter Opera (1996) 3CD [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957505.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Izar Melting Pot Ensemble - The Melting Pot (2015) [FLAC|Lossless|tracks + .cue]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956112.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Gershwin - Second Rhapsody - Piano Concerto in F, Porgy and Bess: Symphonic Suit
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956058.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954598.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Josquin Desprez - Missa Gaudeamus (1990) [FLAC|Lossless|image + .cue] <Classical
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953685.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Damien Poisblaud - Chant Grégorien - Abbaye du Thoronet (1990) PAVANE Records [
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953609.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Vitalij Margulis / Виталий Маргулис - Frederic Chopin / Фред�
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953584.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Antonio Lucio Vivaldi - Flute Concerto I Solisti Veneti solist Jean-Piere Rampal
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951595.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Anna Netrebko & Mahler Chamber Orchestra Claudio Abbado - Sempre Libera (2004) [
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950925.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Johann Strauss - Rosen aus dem Suden. Staatskapelle Dresden, Carl Von Garaguly (
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950426.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Arturo Toscanini - Toscanini Collection Vol.71 - La Scala Orchestra Acoustic Rec
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950410.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Enrico Caruso / Энрико Карузо - Prima Voce: Caruso (1989) Nimbus Rec
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950397.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Mark Gorenstein - Tchaikovsky: Symphonic Works after Shakespeare Romeo And Julie
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950360.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Arturo Toscanini - Toscanini Collection Vol.37 - Debussy La mer, Prelude a l'apr
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950357.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Helene Grimaud - Water (2016) [MP3|320 кб/с] <Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949715.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Helene Grimaud - Water (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949650.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Mozart - Julia Fischer, Gordan Nikolić, Netherlands Chamber Orchestra, Yakov Kr
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948137.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Craig Armstrong - Sun On You (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948117.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Enrico Caruso / Энрико Карузо - Caruso Starportrait (1993) Nota Blu 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947217.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Erik Satie performed by Pascal Rogé - 3 Gymnopédies & Other Piano Works (1984)
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945700.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ W.A. Mozart - Missae Breves k.49, 65, 194 & 220: Nikolaus Harnoncourt, Concentus
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945651.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Enrico Caruso - Grand Collection (2006) [FLAC|Lossless|tracks + .cue] <Classical
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944393.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (2009) (Ormandy
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943613.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Symphony no. 3 in C major, op. 78 "Organ"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5ADADC77874E07BB8589A8390EB8F7C09822EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091907   (941199) от 10.01.2017
-
-Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.1 Prélude (Presto) [00:00:50]
-02. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.2 Molto vivace [00:02:05]
-03. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.3 Paysage (Poco adagio) [00:05:20]
-04. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.4 Mazeppa (Presto) (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562C8EDFB085DF87804A54F6F2FFE1D763A54189
 ```
 
 https://mybot314.ru/tekegram_catalog/

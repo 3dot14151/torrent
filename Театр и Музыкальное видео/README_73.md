@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532548.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Deep Purple: Phoenix Rising (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532070.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Blackmore's Night - A Knight In York (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531922.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ The Doors - The Very Best Of (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531348.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531290.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531194.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530775.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Rick Astley. Live in Berlin 27.08.2016 DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530682.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Alice Cooper - Live at Bonnaroo Festival (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529715.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ A MusiCares Tribute to Carole King (2015) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529627.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529517.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Alice Cooper - Raise the Dead – Live from Wacken (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529508.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529450.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529395.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529387.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529203.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lara Fabian - En Toute Intimite a l'Olympia (2003) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528145.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528072.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528037.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527747.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527353.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526607.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526579.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526565.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526523.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_526499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_526499.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 969630   (264373) от 27.12.2015
+
+Стимфония - Герда (2015) [MP3|320 кб/с] <Steampunk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Сопливая песня
+02.  Упыри
+03.  Герда
+04.  Вий(   Читать дальше...   )Жанр: Steampunk, RockПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1FD6C0DAC056070199D2D1D894A9B9DB87EF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339965   (264307) от 22.11.2019
 
 Scartown - Легенды Большого Города (2006) [FLAC|Lossless|image + .cue] <Modern Melodic Death Metal>
@@ -6,7 +35,7 @@ Scartown - Легенды Большого Города (2006) [FLAC|Lossless|im
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264307.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sonic Syndicate - Only Inhuman (2007) [FLAC|Lossless|image + .cue] <Modern Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264305.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264282.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264281.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ten - 21 Альбом Collection (1996-2018) 23 CD  [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264278.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rod Stewart - You're In My Heart: Rod Stewart (with The Royal Philharmonic Orche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264256.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Chris Rea - Auberge (1991) 2CD, Deluxe Edition, Remastered 2019 [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264246.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264224.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264193.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Lindemann - F&M: Frau Und Mann (2019) Deluxe Edition [FLAC 2.0|24/44|tracks|WEB-
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264191.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Asking Alexandria - Asking Alexandria (2017) [MP3|320 Kbps] <Metalcore, Post-Har
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264091.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Linkin Park - One More Light Live (2017) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264078.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Theocracy - 3 Альбома Collection (2003-2011) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264021.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Platitude - Discography  3 альбома (2003-2005) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264020.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Plotnik82 - Смерть глотает блесну (2019) [MP3|320 Kbps] <Elec
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264015.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Marc Bolan - Electronic Musik (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264003.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263992.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263984.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Pretty Maids - Undress Your Madness (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263977.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ VA - С Новым годом, землячки! (2017) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263776.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Infornal FuckЪ - Край родной (2017) [MP3|320 Kbps] <Parody Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263729.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263714.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263692.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ Machine Men - 3 Альбома Collection (2004-2007) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263628.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Fools Faith - 2 Альбома Collection (2007-2011) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263627.jpg" />
 </div>
 
 
@@ -707,34 +736,6 @@ Fools Faith - 2 Альбома Collection (2007-2011) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FC3ED4364D32E787A3BB33DE1309928C1DC5CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340515   (263623) от 24.11.2019
-
-Winterborn - 2 Альбома Collection (2006-2008) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263623.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2004 году образовалась группа Winterborn. Фирменный стиль группы сформировался сразу, он вобрал в себя элементы современных форм тяжелой экстремальной музыки и классического хэви. Голос вокалиста Теему Коскеласа (Teemu Koskelas) сильно выделяется и легко узнаваем в композициях этой группы. Дебютный альбом группы состоялся в конце 2006 года - "Cold Reality". (   Читать дальше...   )Список альбомов:
-2006 - Cold Reality
-2008 - Farewell to SaintsЖанр: Melodic Heavy MetalПродолжительность: 01:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95741C3B10A8B3FE21E4BEC1DFFDF737620D79A
 ```
 
 https://mybot314.ru/tekegram_catalog/

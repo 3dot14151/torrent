@@ -1,3 +1,116 @@
+###  Публикация: 1262319   (296964) от 14.11.2018
+
+Miami Disco Boys Club - Music to Make You Feel Good (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Head Spins (06:02)
+02. How You Feeling (05:31)
+03. Everything Has Changed (04:05)
+04. Never Meant To Hurt U (04:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39743264EDB7179A03D8CB0F5F9A099A409908B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261922   (296955) от 14.11.2018
+
+Estiva - Spectacle I (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cubes (Original Mix)
+02. Rainbow (Original Mix)
+03. The One (Original Mix)
+04. Bloom (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B77B8A67DC4CCACD16ABC9602B42AAC1B641B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184983   (296946) от 19.11.2017
+
+Tears For Fears - Rule The World: The Greatest Hits (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Wants to Rule the World (4:12)
+ 02. Shout (7" Edit) (4:47)
+ 03. I Love You But I'm Lost (4:21)
+ 04. Mad World (3:34)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D491E2141CA92894B449DA8454E8325675FDC03B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 677349   (296940) от 19.11.2017
+
+VA - The Mystic Art Of Chill Vol.1-2 (2004-2005) [FLAC|Lossless]<Chillout, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Chillout, Lounge, AmbientПродолжительность: 02:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F0148D689887E4D0D9B934E971B1579FF4E275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334236   (296924) от 28.10.2019
 
 VA - Progressive Onrush III (2019) [FLAC|Lossless|WEB|tracks] <Progressive House>
@@ -6,7 +119,7 @@ VA - Progressive Onrush III (2019) [FLAC|Lossless|WEB|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296924.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ mindXpander - Triumphant Return (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296918.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - Magic Island - Music For Balearic People Vol. 9 (Mixed  by Roger Shah) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296823.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Sun:Sets 2019 (Selected by Chicane) (2019) [FLAC|Lossless|WEB|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296816.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Talla 2XLC - Fascinated (2019) [FLAC|Lossless|WEB|tracks|image] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296815.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296572.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Health Regeneration 8th Potion (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296508.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - Groove The Day With Chilling Music (2016) [MP3|320 Kbps] <Balearic, Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296505.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ VA - Genuine Chillout (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296504.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ VA - Chillout Album 3 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296501.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ VA - House Lovers Christmas (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296500.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ VA - Lounge Underground London Edition (2016) [MP3|320 Kbps] <Balearic, Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296497.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ VA - Winter Opening Finest Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296495.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ VA - Midnight Lounge Vol 12: Easy Lounge Living (2016) [MP3|320 Kbps] <Balearic,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296492.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ VA - Lounge Box Vol. 3 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296402.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ VA - Lounge Box Vol. 1 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296401.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ VA - Chillout City Echoes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296400.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ VA - Let There Be House: Classic Organic Grooves For Clubbers (2016) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296397.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ VA - Black Hole Recordings Best Of 2016 (2016) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296396.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ VA - Best of EDM Party 2017 (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296395.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Lunatick Project - Veronika (2015) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Dow
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296392.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ Armin van Buuren - Balance (Extended Versions) (2019) [MP3|320 Kbps] <Big Room H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296381.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ Armin van Buuren - Balance (Extended Versions) (2019) [MP3|320 Kbps] <Big Room H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26F9C1FDC38C35BA14F010B332E9C04EC807B3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334370   (296371) от 28.10.2019
-
-mindXpander - A Tribute To Laserdance (2000) [FLAC|Lossless|image + .cue] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Run (6:00)
-02. Enemy On Earth (5:39)
-03. The Challenge (5:56)
-04. New Adventures (5:54)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E39333374DB22D23ABE1C4B275054F136EFAE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334367   (296369) от 28.10.2019
-
-Humphrey Robertson - Synthesizer Dance Christmas Edition (2005) [FLAC|Lossless|tracks + .cue] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come All Ye Faithful (4:21)
-02. White Christmas (6:17)
-03. Jingle Bells (4:28)
-04. The Christmas Song (3:52)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309A353F0EF985F8821211DCCF165B7B8C55B72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079256   (296248) от 03.12.2016
-
-Markus Schulz - Global DJ Broadcast - World Tour - Moscow & Saint Petersburg, Russia (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz (Recorded Live from Stereo Hall in Moscow - November 18th 2016)
-01. Markus Schulz - The Lost Oracle
-02. ID
-03. David Forbes - Lap of the Gods(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3751FA58C136C53AD6408861979505E891A0F1D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079005   (296134) от 03.12.2016
-
-VA - Goa 2016 Vol.5 (Compiled by DJ BIM) (2016) [MP3|320 Kbps] <Goa Trance, Psychedelic, Full On>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azax & Pettra - Aboriginman (feat Mayumana) 6:35
-02. Yoake - Pickers 7:30
-03. Animato & Ticon - Last Resort 8:13
-04. Rocky Tilbor - Carnival Wave (Ritmo Remix) 7:53(   Читать дальше...   )Жанр: Goa Trance, Psychedelic, Full OnПродолжительность: 02:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EB5D8A14CB068D118DF5DED8551AAE67C66310
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 576731   (362870) от 17.11.2012
+
+Eurythmics - Peace - (1999) /BMG Japan, Remastered 2005/ [FLAC|Lossless]<Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 17 Again (4:57)
+02. I Saved The World Today (4:53)
+03. Power To The Meek (3:32)
+04. Beautiful Child (3:29)
+05. Anything But Strong (5:03)
+06. Peace Is Just A Word (5:58)
+07. I've Tried Everything (4:18)
+08. I Want It All (3:33)
+09. My True Love (4:44)
+10. Forever (4:11)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417091   (362856) от 18.10.2020
+
+VA - Black Hole Trance Music 10-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Sunlounger - I Can Feel (extended mix) 05:17
+02. Boris Foong & Blu Eyes - I Wish (extended mix) 05:19
+03. Johan Gielen - Balearic Reflection (extended mix) 05:39
+04. Leon Bolier - Kronos (extended mix) 05:59(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D90A57BB659B6CD9E7094B5AF475CF12F63F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417035   (362846) от 18.10.2020
+
+The Midnight - Horror Show (2020) EP [MP3|320 Kbps] <Synthwave, New Retrowave, Synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Stranger [00:01:41]
+02 Ghost In Your Stereo [00:04:08]
+03 Neon Meduza [00:05:05]
+04 Devil Make A Deal [00:04:55](   Читать дальше...   )Жанр: Synthwave, New Retrowave, Synthpop, ElectronicПродолжительность: 00:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD0B408160CDF0BA07EC748A74C22F4EF74B9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416950   (362837) от 18.10.2020
+
+Chronovalve - Light (2020) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362837.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Watching Over You (05:39)
+2. So Sunny Out (05:41)
+3. If There Ever Was (06:04)
+4. Breathing Space (05:20)(   Читать дальше...   )Жанр: Ambient, Drone, MinimalПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8BB5EF50257BE409D2B883C7903DB7F4EC6716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328330   (362802) от 30.09.2019
 
 Above & Beyond - Flow State (2019) [FLAC|Lossless|tracks + .cue] <Ambient>
@@ -6,7 +128,7 @@ Above & Beyond - Flow State (2019) [FLAC|Lossless|tracks + .cue] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362802.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ Armin Van Buuren - Embrace (2015) [FLAC|tracks+.cue]<Trance, Progressive House>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362756.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ VA - Electro Paradise (2010) [MP3|320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362317.jpg" />
 </div>
 
 
@@ -90,7 +212,7 @@ VA - Lounge Mit Mir (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362134.jpg" />
 </div>
 
 
@@ -119,7 +241,7 @@ VA - Big Room Essentials, Vol. 01 (2016) [MP3|320 Kbps] <Progressive House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362133.jpg" />
 </div>
 
 
@@ -148,7 +270,7 @@ VA - Chillout: Ultimate Sunset Collection (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362040.jpg" />
 </div>
 
 
@@ -177,7 +299,7 @@ VA - Dubai Deep House (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362039.jpg" />
 </div>
 
 
@@ -206,7 +328,7 @@ VA - New York City: Deep House Rhythms (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362029.jpg" />
 </div>
 
 
@@ -235,7 +357,7 @@ VA - Getting Deep Vol.7 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362024.jpg" />
 </div>
 
 
@@ -264,7 +386,7 @@ Andrew Lang - Visions (2016) [MP3|320 Kbps] <Progressive House, Progressive Tran
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361949.jpg" />
 </div>
 
 
@@ -293,7 +415,7 @@ VA - Fifty Shades of Lounge Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361941.jpg" />
 </div>
 
 
@@ -322,7 +444,7 @@ VA - Under The Surface Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361937.jpg" />
 </div>
 
 
@@ -351,7 +473,7 @@ Scheuber - The Me I See (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop, Darkwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361872.jpg" />
 </div>
 
 
@@ -380,7 +502,7 @@ Moebius - Mutatis Mundi (2016) [MP3|320 Kbps] <Ambient, Psychill, Atmospheric>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361804.jpg" />
 </div>
 
 
@@ -409,7 +531,7 @@ VA - Markus Schulz - Global DJ Broadcast - Amsterdam Dance Event Edition (2018) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361666.jpg" />
 </div>
 
 
@@ -438,7 +560,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 October (2018) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361637.jpg" />
 </div>
 
 
@@ -467,7 +589,7 @@ Proxeeus - Celephaïs (Celephais) (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361208.jpg" />
 </div>
 
 
@@ -496,7 +618,7 @@ Kangding Ray - Cory Arcane (2015) [FLAC|Lossless|WEB-DL]<Techno, IDM, Experiment
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361146.jpg" />
 </div>
 
 
@@ -525,7 +647,7 @@ VA - Hidden Light (Compiled by DJ V++) (2017) Microcosmos Records [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361099.jpg" />
 </div>
 
 
@@ -554,7 +676,7 @@ Solarstone - 6 Albums , 17 Compilations (2001 - 2014) [MP3|256 - 320 кб/с]<Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360974.jpg" />
 </div>
 
 
@@ -580,7 +702,7 @@ Koan - Crossing The Rubicon (2017) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360757.jpg" />
 </div>
 
 
@@ -609,7 +731,7 @@ Beborn Beton - A Worthy Compensation (2015) [FLAC|image+.cue]<Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360736.jpg" />
 </div>
 
 
@@ -623,122 +745,6 @@ Beborn Beton - A Worthy Compensation (2015) [FLAC|image+.cue]<Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E429C245FE0FA22C04C79137C45AD72C75CB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417263   (360579) от 19.10.2020
-
-Scuta Scalamanta - Synthwave (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scuta Scalamanta & Nicholas Croft - Ocean Wave (3:11)
-02. Scuta Scalamanta, Damon Baxter & Peter Diggens - Droid Hunter (3:17)
-03. Scuta Scalamanta, Damon Baxter & Peter Diggens - Yakuza (2:40)
-04. Scuta Scalamanta - Power Kid (3:08)(   Читать дальше...   )Жанр: Synthwave, ElectroПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DFD23D0F717CE7DEA8341304755735B1782D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177099   (360503) от 26.10.2017
-
-ScAnDroid Experiment's - Strange Thoughts (2017) Авторская раздача [MP3|320 Kbps] <Drum & Bass, Dubstep, Trap>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambient Just Think
-02. Voices
-03. Filling 1
-04. When the Head Grey Autumn(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, TrapapПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F398F11068CC0B2A3F7D527C0B2E9D11BF58FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178006   (360495) от 26.10.2017
-
-Blutengel - Black (2017) [MP3|320 Kbps] <Darkwave, Synth-pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black
-02. Komm zu mir!
-03. There's No Place
-04. Seele(   Читать дальше...   )Жанр: Darkwave, Synth-popПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37560B0AFD99C26FDD33FA7760BC226E5DA104BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577126   (359617) от 17.09.2022
-
-VA - Vocal Melodic House (2022) [MP3|320 Kbps] <Euro Dance, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin & Note U - Brash (Original Mix) (8:03)
-02. MsE - Cage (Original Mix) (2:59)
-03. TREZZ - Without You (Original Mix) (2:41)
-04. Azophi - Break My Heart (Original Mix) (2:23)(   Читать дальше...   )Жанр: Euro Dance, Vocal HouseПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50EB15E39866D4F97B72B9D68F13CA4B0EB28144
 ```
 
 https://mybot314.ru/tekegram_catalog/

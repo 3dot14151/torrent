@@ -6,7 +6,7 @@ VA - Reload The Summer Vol.4 (The Compilation) (2017) [MP3|320 Kbps] <Pop, Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394090.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Best Of 2017 - Die Hits Des Jahres (2017) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393969.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lara Fabian - Camouflage (2017) [MP3|320 Kbps] <Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393922.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gwen Stefani - You Make It Feel Like Christmas (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393048.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jeanne Mas - Le Disque D'or (2012) [MP3|320 кб/с]<French Pop, Electropop, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392918.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - 101 Power Ballads (2017) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392890.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Robbie Williams - Take The Crown (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop,P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391624.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Superbus - Sunset (2012) [MP3|320kbps]<Pop, Pop-Rock, Female Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390808.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - NRJ 300% Hits Vol.2 (2017) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390420.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Pink (P!nk) - Beautiful Trauma (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389599.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Céline Dion - Sans Attendre (2012) (Deluxe Edition) (2012) [MP3|320 кб/с]<Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387622.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - 110 Hits 2018 (2017) 5CD [MP3|320 Kbps] <Dance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387581.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Madness - Can’t Touch Us Now (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387276.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - 50 Chart Hits Of 2020: The Autumn Workout Album (2020) [MP3|320 Kbps] <Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385512.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Billie Eilish - No Time To Die (2020) Single [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385304.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Christina Aguilera - Lotus (Deluxe Version) (2012) [mp3|320 кб/с ]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385276.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Mireille Mathieu – Ennio Morricone (2016) [MP3|320 Kbps] <Pop, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385227.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Pink - 8 Studio Album's + 2 Compilation's + 5 EP's & Single's + 1 live  (2000-20
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384936.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Pupo - 17 Albums (1977-2016) 11LP+6CD [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384816.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Chips - Chips (1980) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383499.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383492.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383407.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Gina X Performance - 4 Albums (1978-1984) Reissue CD, LTM, 2005 [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383272.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Carla Bruni - French Touch (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383259.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ VA - NRJ 300% Hits 2016 (2016) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382478.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Chi-Chi Favelas And The Black And White Band - Rock Solid (1978) LP [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381698.jpg" />
 </div>
 
 

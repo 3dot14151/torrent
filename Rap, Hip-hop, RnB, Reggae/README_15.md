@@ -1,32 +1,3 @@
-###  Публикация: 1220663   (702334) от 20.04.2018
-
-Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Земля мертвых
-02. Желтая стрела (feat. Зараза)
-03. Гири
-04. Огонек (feat. Murda Killa)(   Читать дальше...   )Жанр: RapПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA0E6CE1C88E7315A1742ED67E3C29AD77CF362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402251   (701705) от 14.08.2020
 
 POR.NORAP - Бронетрусы (2019) [MP3|320 Kbps] <Comedy Rap, Electronic>
@@ -35,7 +6,7 @@ POR.NORAP - Бронетрусы (2019) [MP3|320 Kbps] <Comedy Rap, Electronic>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701705.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698494.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Chillhop Essentials Summer (2016) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, J
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696284.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688145.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Vintage Reggae Cafe - The Definitive Collection, Vol. 2 (2019) [MP3|320 Kbp
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688132.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Vintage Reggae Cafe Vol 4 (2015) [MP3|320 кб/с] <Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686256.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Alborosie meets The Wailers United - Unbreakable (2018) [FLAC|Lossless|tracks + 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686235.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Vintage Reggae Cafe Vol 5 (2016) [MP3|320 кб/с] <Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686114.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Sting & Shaggy - 44/876 (2018) Delux [FLAC|Lossless|WEB-DL|tracks] <Reggae, Pop-
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684803.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684402.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684400.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Jah Khalib - Баха и Дмитрий Карантино (2020) [MP3|320 Kbps]
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684270.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Nyctophiliac - Ill Side Of Town (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, D
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684224.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684172.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683982.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Rap Прорыв - Выпуски 1-8 (2000-2006) [MP3|320 kbps]<Рэп, Хип-
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682958.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Tammy Rivera - Fate (2018) [MP3|320 Kbps] <RnB, Soul>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682606.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ L'One - Пангея (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680226.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Chillhop Essentials - Spring (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678241.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - 100 Hits The Best R&B Album (2018) 5CD, Box Set [FLAC|Lossless|tracks + .cu
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678018.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676317.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Snoop Dogg - Neva Left (2017) [MP3|320 kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674489.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Kevin Gates - Islah (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674153.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665396.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Cypress Hill - Back in Black (2022) [FLAC 2.0|44.1, 48/24|WEB-DL|tracks] <Hip-Ho
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665388.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Cypress Hill - Back in Black (2022) [FLAC 2.0|44.1, 48/24|WEB-DL|tracks] <Hip-Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D46AE67CFF8785A67C36FD8C2F4BB6E066A015ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537858   (665381) от 18.03.2022
+
+Cypress Hill - Back in Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Hardcore, Latin, Rapcore>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takeover
+02. Open Ya Mind
+03. Certified (feat. Demrick)
+04. Bye Bye (feat. Dizzy Wright)(   Читать дальше...   )Жанр: Hip-Hop, Hardcore, Latin, RapcoreПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF9F8E14653D0487667190E19274985A1A7B844
 ```
 
 https://mybot314.ru/tekegram_catalog/

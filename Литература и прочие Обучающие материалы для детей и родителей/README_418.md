@@ -1,3 +1,56 @@
+###  Публикация: 1693963   (121376) от 23.01.2024
+
+Книжная серия | Программирование для детей [12 книг] (2017-2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программирование – одна из самых востребованных профессий в наше время, и она останется таковой в ближайшем будущем. Научите своих детей программировать уже сейчас с помощью этих книг! Вы найдете здесь много упражнений – полезных, интересных и забавных, поэтому ваш ребенок не заскучает. Материал написан доступно и просто, поэтому ему не составит труда освоить азы (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655E40EFA1AE84DF190D30827989783FAA454A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491603   (121360) от 23.01.2024
+
+А.Н. Толстой (обработка) | Как лиса училась летать (1976) [Раритет] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русские народные сказки в обработке А.Н. Толстого, с рисунками Е.М. Рачёва. Для детей дошкольного возраста.
+Алексей Николаевич Толстой (29 декабря 1882 (10 января 1883), Николаевск, Самарская губерния, Российская империя — 23 февраля 1945, Москва) — русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических (   Читать дальше...   )Жанр: Детская литератураИздательство: Приволжское книжное издательствоФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A6E47E2C1109F8ACBDDF4D2931218898AE2D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405560   (121304) от 23.01.2024
 
 Евгений Рудашевский | Ворон (2017) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121304.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121081.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121062.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121060.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121058.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121056.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121055.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121052.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121047.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121043.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121039.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120861.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120853.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120848.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120689.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120519.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120518.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120481.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120377.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120319.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120295.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120294.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120289.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120166.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61B1F1D8C9AE977AC0A5AFCE33AAB5FDDC4E45DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695677   (120144) от 30.01.2024
-
-Л. Гоник | Всемирная история. Том 3. От расцвета Аравии до Ренессанса (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый том знаменитой «Всемирной истории:» Ларри Гоника начинается с событий 395 г. - закрытия языческих храмов в Европе - и заканчивается первой экспедицией Христофора Колумба, состоявшейся в 1492-м. Между этими двумя датами в мире происходило очень многое: зарождение ислама, формирование великих тюркских и китайских династий, Крестовые походы... Жизнь Византийской (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Вадим КадученкоЯзык: РусскийИздательство: Колибри, Азбука-АттикусФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9EC787BAD06CC9868323DFAFAF581F67AFE60C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695671   (120142) от 30.01.2024
-
-Л. Гоник | Всемирная история. Том 2. От расцвета Китая до падения Рима (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120142.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом томе тщательно проработанной, доходчивой и невероятно смешной «Всемирной истории» озорной карандаш Ларри Гоника успевает рассказать о ведущих цивилизациях Древнего мира - от Индии и Китая до Рима и его северных соседей. Он заставляет читателя как следует вспомнить школьный материал, подробно останавливаясь на ключевых событиях и фигурах древности. Поскольку (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: В. КадученкоЯзык: РусскийИздательство: Колибри, Азбука-АттикусФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A053C5C326F51287137687EF6D3E835B00186BE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

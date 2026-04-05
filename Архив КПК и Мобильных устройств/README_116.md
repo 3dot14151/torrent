@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152322.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe Acrobat Reader для PDF 21.10.0.19961 Mod by Rajat, MixRoot, Valikovrepi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152230.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ElectroCalc PRO 1.2.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151467.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151322.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Node Video - Pro Video Editor 6.9.0 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151192.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Threema v4.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151189.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Lucky Patcher 11.0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151088.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Plus Messenger (Telegram+) v10.2.9.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151012.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.46
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150888.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Busuu - изучение языков 31.8.1(859427) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150760.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ventusky: Прогноз погоды v29.0 (b2901) Mod by Alex.Strannik [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150651.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150261.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150147.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150134.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Bird Mail PRO 2245.97 [Ru/Multi] - Почтовый клиент
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149970.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ PowerDirector – Video Editor v12.7.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149445.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Smart AudioBook Player Pro v10.2.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148890.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148826.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Balance BY v6.1.255 Pro [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148799.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148588.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Eon music player v5.3.8 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148067.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ ImperiHome Pro 2.8.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148006.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Hyperforma Premium v0.9.37 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147908.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_147713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_147713.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Lush Tower Defense [Игра] (Android 2.1+)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147452.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147146.jpg" />
 </div>
 
 

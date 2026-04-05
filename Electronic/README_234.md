@@ -1,3 +1,119 @@
+###  Публикация: 1544243   (622208) от 15.04.2022
+
+MORTEN - Miami Rooftop Sessions, Miami Music Week, United States (2022-03-23) [MP3|320 Kbps] <Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Öwnboss & Sevek - Move Your Body (Intro Edit) w/Wildchild - Renegade Master (Acappella) w/Usher ft. Ludacris & Lil Jon - Yeah!
+02. Swedish House Mafia ft. Sting - Redlight (Mark Roma Remix)
+03. David Guetta & MORTEN - Restless
+04. The Prodigy - No Good (Start The Dance) (MORTEN Edit)(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99A01AE9B4B7CBDC4A09754792E2F18254DB216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294662   (622203) от 11.04.2019
+
+VA - Future 80's Records Compilation Vol. I (2013) [FLAC 2.0|44.1/16, 24|tracks|WEB-DL] <Synthpop, Synthwave, Retro Wave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scream & Dive - Power Move (4:50)
+02. Station a3 - Cyberpunks vs Detroit Cops (4:32) (24Bit)
+03. Flash Track - The Legend of Billie Jean (3:08)
+04. John Sparxx - Lost In Universe (4:46)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retro WaveПродолжительность: 02:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D6AED76EF60010C156EC556CE6648B76FD441E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544314   (622193) от 15.04.2022
+
+Blutengel - Labyrinth (2007) Limited Edition, 2CD Box Set [FLAC|Lossless|image + .cue] <Electro, Synth-pop, Darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucifer (DubMixx By Jenne) (4:59)
+02. Born Again (5:28)
+03. Stormy Rivers (4:50)
+04. Victory Of Death (6:23)(   Читать дальше...   )Жанр: Electro, Synth-pop, DarkwaveПродолжительность: 2CD, 02:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703649BFCCA26699FD68F23CDBBE9CFF40F48E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295248   (622185) от 11.04.2019
+
+The Chemical Brothers - No Geography (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eve Of Destruction
+02. Bango
+03. No Geography
+04. Got To Keep On(   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:674F5CDBB913EBB0C59F4F6CBF514B572C55F62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544424   (622183) от 15.04.2022
 
 Third ≡ Party - Tomorrowland Friendship Mix (2022-04-14) [MP3|320 Kbps] <Progressive House, Electro House>
@@ -6,7 +122,7 @@ Third ≡ Party - Tomorrowland Friendship Mix (2022-04-14) [MP3|320 Kbps] <Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622183.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Blutengel - Erlosung - The Victory of Light (2021) Deluxe Edition, 2CD Box Set [
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622069.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ The Chemical Brothers - No Geography (2019) [MP3|320 Kbps] <Electronic, Breakbea
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622055.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Syrian - Death Of A Sun (2013) European Edition [FLAC|Lossless]<Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622027.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Space - Magic Fly (1977) Reissue, 2010, Repertoire Records [FLAC|Lossless|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621997.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Clubbers Culture: Chill Out At Sunset Beach (2017) [MP3|320 Kbps] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621764.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Bjm Mario Bajardi - Schengen (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621760.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Chill Out Ibiza: The Best Of 50 Tracks (2017) [MP3|320 Kbps] <Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621638.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Ibiza Night Affairs The Very Best Of Chill House (2015) [MP3|320 кб/с]<D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621565.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Alizee Moreau - Sexy Relaxing Lounge And Chill Out Music (2017) [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621547.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Talamasca - A Brief History of Goa-Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621412.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 �
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621151.jpg" />
 </div>
 
 
@@ -358,7 +474,7 @@ VA - Trance Runner - Episode Seven (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620969.jpg" />
 </div>
 
 
@@ -387,7 +503,7 @@ Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620892.jpg" />
 </div>
 
 
@@ -416,7 +532,7 @@ VA - In The Blink Of An Eye (2018) Disco Gecko [FLAC|Lossless|WEB-DL|tracks] <Ps
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620890.jpg" />
 </div>
 
 
@@ -445,7 +561,7 @@ Luttrell - Into Clouds (2019) 2CD, Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620764.jpg" />
 </div>
 
 
@@ -473,7 +589,7 @@ Nango Manchay - Under Our Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Do
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620633.jpg" />
 </div>
 
 
@@ -502,7 +618,7 @@ VA - Pure Synthwave Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620622.jpg" />
 </div>
 
 
@@ -531,7 +647,7 @@ Paris France Transit - Paris France Transit (1982) Unofficial Release, 1996, Qui
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620459.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ The Crystal Method - The Trip Out (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620327.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ I Ya Toyah - Discography 13 Releases (2018-2022) [MP3|320 Kbps] <EBM, Industrial
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620056.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ Steve Gibbs - Adrift (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Class
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619831.jpg" />
 </div>
 
 
@@ -632,125 +748,6 @@ Steve Gibbs - Adrift (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74DE6FDAB5FF639537AD1818D0465318B522CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520666   (619427) от 15.07.2012
-
-Tish - Shadows EP (08-07-2012) [MP3|320 кб/с]<Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows 07:50
-02. Shadows (Fabio Giannelli Remix) 08:19
-03. Attic House 07:52
-04. Inversus 06:19Жанр: Tech HouseПродолжительность: 00:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3058FE76BC99F3A1C685C2E893DF45ACFFBC93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036560   (619256) от 21.07.2016
-
-Interference Of Frequencies - The Orphic Continuum (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slowform (17:10)
-02. Reach it (14:15)
-03. Frozen Sadness (13:26)
-04. Secret Place (08:27)(   Читать дальше...   )Жанр: Ambient, Experimental, DowntempoПродолжительность: 01:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB448BE96E1CF5105705DE40A43C78C4EB498D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523477   (619040) от 15.07.2012
-
-VA - Best Of Deep House (50 Most Wanted) (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weekend Of Robots - "Information 4 Peace" (07:47)
-02. Adapt To Survive - "Its Something" (06:18)
-03. Adapt To Survive - "Greed" (06:16)
-04. Alex Aglieri - "Twisted" (07:01)
-05. Klangware - "Strandrauber" (07:43)
-06. E-Teb - "Explicit Differentiation" (05:18)
-07. Sinior Cliff - "Across The Sunset" (08:54)Жанр: HouseПродолжительность: 05:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827F4F92EFC364A8329F854675843399CEA2C5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036690   (618900) от 21.07.2016
-
-VA - Amsterdam Trance Sessions Vol. 5 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen & Envy -  The Cry Within (Para X Remix) 8:02
-02. Dave Pearce -  Trance Sanctuary (Original Mix) 5:45
-03. Sean Truby -  Coyote (Ultimate And Moonsouls Remix) 6:47
-04. Merc -  Obsession (Original Mix) 7:41(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F247EF78257DC98337DC4CE00A009E2EC528727B
 ```
 
 https://mybot314.ru/tekegram_catalog/

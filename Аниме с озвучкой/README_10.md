@@ -1,3 +1,136 @@
+###  Публикация: 1490144   (919920) от 19.08.2021
+
+Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Train | Истребитель демонов: Поезд «Бесконечный» [2020, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не успели главные герои восстановиться, как вновь получают задание. В этот раз под предводительством «столпа пламени» Кёдзюро Рэнгоку они попадают в поезд, в котором за короткий промежуток времени пропало более 40 человек и было убито несколько отправленных на разведку мечников. Какую тайну скрывает этот поезд и с чем придётся столкнуться новому отряду?
+© unique, (   Читать дальше...   )Производство: Япония, Aniplex, Shueisha, UfotableЖанр: Приключения, фэнтези, сёнэнРежиссер: Харуо СотодзакиЯзык озвучки: Русский, японскийПродолжительность: 01:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195266122609374F2CC51799F8FD8C931962379B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986798   (919867) от 20.02.2016
+
+Madox-01 / Metal Skin Panic Madox 01 / Бешеный бык [1987, OVA, 1 эп.] DVDRip DivX 480 raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919867.jpg" />
+</div>
+
+
+###  Подробнее
+
+После создания компьютеризированного боевого экзоскелета, специализируегося на ведении боя с тяжёлой техникой в городских условиях, во время транспортировки был утерян испытательный образец. Простой парень случайно нашёл контейнер с ним и при активации оказался внутри робота, переключившегося в боевой режим. Главный герой стремится попасть на свидание к своей любимой (   Читать дальше...   )Производство: Япония/ToshibaЖанр: Боевик, меха, фантастикаРежиссер: Арамаки СиндзиЯзык субтитров: Русский (отключаемый), Английский (отключаемый).Автор перевода - Костин ТимофейПродолжительность: 45мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EC543E482EE175E62E63CD75030E8B116DCBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341702   (919745) от 13.03.2020
+
+Dororo | Дороро [2019, TV, 24 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919745.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стране царит смута, и один из генералов жаждет во что бы то ни стало одержать победу в решающей битве, которая ни много ни мало сулит ему трон всей страны. Для этого он решается на страшный грех и заключает сделку с двенадцатью демонами: те помогают ему выиграть бой, а он за это отдаёт каждому из них одну из частей тела своего новорождённого сына. Обречённый на (   Читать дальше...   )Производство: MAPPA, ЯпонияЖанр: Приключения, Фэнтези, Сверхъестественное, ЭкшенРежиссер: Фурухаси КадзухироОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 24 Эпизода по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD94BC5409492C93433AB0C3ED73EDCBF31EAF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342876   (919742) от 13.03.2020
+
+Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхождение Героя Щита [2019, TV, 25] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наофуми Иватани вместе с тремя другими людьми был призван в параллельный мир, чтобы стать его Героем. При переносе в другой мир каждый из них получил специальную экипировку, которая соответствует типу Героя. Наш же протагонист получил в руки легендарный щит и решил отправиться в путешествие по этому сказочному миру.
+Но уже в самом начале его пути возникли проблемы. (   Читать дальше...   )Производство: Kinema Citrus, ЯпонияЖанр: Приключения, Фэнтези, Романтика, ДрамаРежиссер: Або ТакаоОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 25 Эпизодов по 25 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD24EE79884B94DDF5D292D31157578B19D110F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632919   (919338) от 20.03.2013
+
+Nozoki Ana / A Peep Hole / Дыра / Щель [2013, OVA, 1ep] DVDrip rus (Ancord)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный японский парень Кидо Тацухико переезжает из глубинки в город и поступает в Художественную путягу. Не потому что он любит рисовать или типа того а просто хочет обычной спокойной жизни.
+ Получится ли это у него, учитывая то, что он найдет в своей новой квартире и КЕМ окажется его соседка....Жанр: комедия, этти, эротикаРежиссер: Нисидзима КацухикоПродолжительность: OVA (1 эп.), 45 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F1BE0DBD1A3A2853EF91B0FD9C762FF1C8E984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920748   (918222) от 21.02.2016
 
 To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: Тьма 2 [ТВ-4] [2015, TV, 14] HDTVRip 720p rus
@@ -6,7 +139,7 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918222.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Baka to Test to Shoukanjuu | Дурни, Тесты, Аватары [ТВ-1][201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918216.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Baka to Test to Shoukanjuu Ni! | Дурни, Тесты, Аватары [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918215.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ Batman Ninja | Бэтмен Ниндзя [2018, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918214.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ Promare | Промар [2019, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918212.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ Steins;Gate | Врата Штейна [2011, TV, 24 ep + 2 sp + 4 ONA] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916649.jpg" />
 </div>
 
 
@@ -164,7 +297,7 @@ Kyoukai no Kanata / Beyond the Boundary / За гранью [2013, TV, 12 ep + S
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914669.jpg" />
 </div>
 
 
@@ -190,7 +323,7 @@ Legend of Lemnear: Kyokuguro no Tsubasa Valkisas | Legend of Lemnear | Леге�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913320.jpg" />
 </div>
 
 
@@ -217,7 +350,7 @@ Ao no Exorcist / Blue Exorcist / Синий Экзорцист [2011, TV, 25 и�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_912175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_912175.jpg" />
 </div>
 
 
@@ -244,7 +377,7 @@ Robotics;Notes | Записки о Робототехнике [2013, TV, 22 ep] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912020.jpg" />
 </div>
 
 
@@ -271,7 +404,7 @@ Chaos;Child | Хаос; Дитя [2017, TV, 12 ep + 1 sp + 2 OVA] BDRip 1080p 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911768.jpg" />
 </div>
 
 
@@ -298,7 +431,7 @@ Chaos;Head | Хаос; Вершина [2008, TV, 13 ep] BDRip 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911757.jpg" />
 </div>
 
 
@@ -324,7 +457,7 @@ Gekijouban Steins;Gate: Fuka Ryouiki no Deja vu | Врата Штейна: Зо�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911755.jpg" />
 </div>
 
 
@@ -352,7 +485,7 @@ Steins;Gate 0 | Врата Штейна 0 [2018, TV, 23 ep+1 sp] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911753.jpg" />
 </div>
 
 
@@ -379,7 +512,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909954.jpg" />
 </div>
 
 
@@ -405,7 +538,7 @@ Babylon | Вавилон [2019, TV, 12] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909953.jpg" />
 </div>
 
 
@@ -431,7 +564,7 @@ Soul Eater | Пожиратель Душ [2008, TV, 51 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909952.jpg" />
 </div>
 
 
@@ -457,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908149.jpg" />
 </div>
 
 
@@ -483,7 +616,7 @@ Chaos Dragon: Sekiryuu Seneki / Драконий хаос: Война красн
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905431.jpg" />
 </div>
 
 
@@ -509,7 +642,7 @@ Hells Angels | Hells | Ангелы Ада [2008, Movie] BDRip 1080p 10-bit raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904530.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita | Геро
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904529.jpg" />
 </div>
 
 
@@ -547,136 +680,6 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita | Геро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE351D76C6A075473E81A6B38D265C8991FCFA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991930   (903488) от 29.02.2016
-
-Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015, MV] BDRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная работа отправит нас в Европу XIX века. Юный студент Джон Уотсон был завербован службой разведки в качестве секретного агента. Технократия — мир, где наука совершила невероятный прорыв для любой промышленности. Создание гомункулов поставлено на поток, и существа с мертвым телом и искусственной душой используются во всех сферах жизни в роли солдат и рабочей (   Читать дальше...   )Производство: Wit StudioЖанр: Приключения, Психологическое, ФантастикаРежиссер: Макихара РётароПеревод: Rinon Ninqueon, Esito (Team Shirome)Субтитры: ASSФормат: MKVПродолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E5741BCBD875C1325516FADC652B22837E9753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492424   (903469) от 29.08.2021
-
-Aldnoah.Zero | Алдноа.Зеро [ТВ-2] [2015, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конфликт Земли и Версианской империи вступил в затяжную фазу. На деле противостояние не нужно обеим сторонам, но огонь войны раздувает часть имперской аристократии, опьяненная своим могуществом и кровной местью за понесенные ранее потери. Лидер «ястребов», граф Сазбаум, заручился даже поддержкой наследной принцессы Ассейлам, которую лично спас из лап земных дикарей, (   Читать дальше...   )Производство: Производство: Япония, A-1 Pictures Inc., TroycaЖанр: Приключения, фантастика, меха, драмаРежиссер: Эй АокиЯзык озвучки: Русский, японскийПродолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFBD44BD618BFAE6823022E2C13AD95A61E5357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492348   (903467) от 29.08.2021
-
-Musaigen no Phantom World | Myriad Colors Phantom World | Бескрайний мир фантомов [2016, TV, 13 из 13 + 1 SP] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпидемии всегда угрожали человечеству – то чума, то СПИД, то какой-нибудь свиной грипп, но в этом мире в начале XXI века случилось странное – очередной вирус вызвал не болезнь, а… массовое расширение сознания! Да, жители Земли стали видеть незримое, тот самый «тонкий мир», ранее доступный лишь избранным. И ничего, пока ученые ломали голову, простые люди быстро привыкли (   Читать дальше...   )Производство: Kyoto Animation / 京都アニメーションЖанр: приключения, комедия, мистикаРежиссер: Исихара ТацуяЯзык озвучки: Японский и русскийСубтитры: ASS, Встроенные, Полные+надписи |Продолжительность: 14 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A937F176408587D53EE8B979FB377379B52C3FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492421   (903461) от 29.08.2021
-
-Aldnoah.Zero | Алдноа.Зеро [ТВ-1] [2014, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903461.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1972 году на Луне астронавты нашли Гиперврата – древний портал на Марс. Люди стали заселять Красную планету, а вскоре колонисты обнаружили технологию Предтеч под названием Альдноа. Раскрыв ее тайну и получив в руки страшное оружие, доктор Верс Рэйверс объявил себя императором Марса (переименованного в Верс) и лидером новой расы, что заменит прогнившее человечество. (   Читать дальше...   )Производство: Япония, A-1 Pictures Inc., TroycaЖанр: Приключения, фантастика, меха, драмаРежиссер: Эй АокиЯзык озвучки: Русский, японскийПродолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015D09D5B8EF1CB2CE22BCE1BADB739ADB87B863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369417   (902878) от 23.03.2020
-
-Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий научный Акселератор [2019, TV, 12] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акселератор, самый сильный эспер Академграда, отдыхает в больнице после того, как спас Ласт Ордер и в процессе получил пулю в голову. Но его лечение прерывается, когда загадочная девушка приносит фото маленькой подруги Акселератора и просит о помощи. Теперь они противостоят Дисциплинарной мере, организации фанатиков, которые хотят любой ценой нести «справедливость». (   Читать дальше...   )Производство: Япония, J.C. StaffЖанр: приключенияРежиссер: Каманака НобухаруСубтитры: Полные, отключаемые (Вшитые) | RusПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4141B342D622A2A42399B65CBBA12060545DF302
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Wreckreation (2025) [Ru/Multi] (1.4.4.149571) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061089.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Test Drive Unlimited (2007) [Ru] (1.45a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060094.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Test Drive Unlimited (2007) [Multi] (1.66a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060088.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.3.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059990.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ World of Outlaws: Dirt Racing 24 (2025) [En] (1.0) Scene Tenoke [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059183.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FlatOut: Ultimate Carnage (2008) [Ru] (1.0) Repack R.G. ReCoding
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058586.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FlatOut: Ultimate Carnage (2008) [Multi] (1.0) License RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058564.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Need for Speed: Underground (2003) [Multi] (1.4.0) Scene Spirity
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058563.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Juiced 2: Hot Import Nights (2007) [Multi] (1.0) License DETONATiON
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058557.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FlatOut 2 (2006) [Ru] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058395.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FlatOut (2004) [Ru] (1.1) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058181.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Driver: San Francisco (2011) [Ru/En] (1.04) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058126.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Need for Speed: Underground 2 (2004) [En] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057979.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ DiRT 3 (2012) [Ru] (1.2.0.0/dlc) Repack R.G. Freedom [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057870.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Juiced (2005) [En] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057672.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ TRAIL OUT (2022) [Ru/Multi] (1.1/dlc) License GOG [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054837.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.2.157.1/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052425.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10.4/dlc) Repack seleZen [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051625.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050537.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Heading Out (2024) [Ru/Multi] (1.047) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050304.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.874931) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050160.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ The Crew (2014) [Ru/Multi] (1.2.0.0/dlc) Repack dixen18 [Unlimited]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049532.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Heading Out (2024) [Ru/Multi] (1.047) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048768.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Scene voices38
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048754.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NASCAR 25 (2025) [En] (1.0/dlc) Scene Rune [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048509.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ First Racer (2023) [Ru/Multi] (1.1.9) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046859.jpg" />
 </div>
 
 

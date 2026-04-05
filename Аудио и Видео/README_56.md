@@ -6,7 +6,7 @@
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809850.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809561.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809363.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809149.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809009.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809008.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808920.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808761.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Harabe Daydreams II (2020) [AAC|~324 Kbps] <Tech House, Deep House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808494.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Harabe Daydreams I (2019) [AAC|~309 Kbps] <Tech House, Deep House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808493.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Harabe Daydreams III (2021) [AAC|~319 Kbps] <Tech House, Deep House, Techno
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808443.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Kfir Ochaion - VIII (2020) [AAC|~282 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808429.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Pink Floyd - Relics (1996 Remastered Version) (1996) [AAC|~340 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808349.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Kfir Ochaion - V (2019) [AAC|~333 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808346.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Kfir Ochaion - IX (2020) [AAC|~343 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808345.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Kfir Ochaion - II (2017) [AAC|~325 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808344.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Kfir Ochaion - IV (2018) [AAC|~294 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808343.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Kfir Ochaion - VI (2020) [AAC|~328 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808342.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Kfir Ochaion - III (2017) [AAC|~323 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808341.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Kfir Ochaion - VII (2020) [AAC|~340 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_808333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_808333.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Pink Floyd - The Piper at the Gates of Dawn (2016) [AAC|~370 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808332.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Kfir Ochaion - X (2021) [AAC|~343 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808222.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Kfir Ochaion - I (2016) [AAC|~302 Kbps] <Instrumental Guitar Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808220.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808154.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808151.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808150.jpg" />
 </div>
 
 

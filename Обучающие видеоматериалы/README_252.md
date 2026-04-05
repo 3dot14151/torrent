@@ -1,3 +1,31 @@
+###  Публикация: 1673514   (164919) от 01.11.2023
+
+Strogoorganic, Мария Винокур, Эля Ямилева | Курс начинающего садовода для занятых женщин с помощью методики "Нисо" (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164919.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПРЕВРАТИТЕСЬ В УМЕЛОГО САДОВОДА ЗА 4 МЕСЯЦА
+Уделяйте участку всего 1 день в неделю и обеспечьте семью вкусным урожаем
+Советы, вырванные из разных источников, без системного подхода и базовых знаний о том, как устроена природа, увы, не работают! Важно понимать ее законы и механизмы, знать, о чем просит земля и как о ней позаботиться. Пройдите комплексное обучение (   Читать дальше...   )Производство: StrogoorganicЖанр: Обучающий курс, онлайн-практикумЯзык озвучки: РусскийПродолжительность: 229:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7692E15CA0EF6754931B525C4429D4D94878F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672822   (164913) от 01.11.2023
 
 Udemy, Stephen Grider | React Testing Library and Jest: The Complete Guide (2023) WEB-DL [AD] [EN, RU / EN, RU Sub]
@@ -6,7 +34,7 @@ Udemy, Stephen Grider | React Testing Library and Jest: The Complete Guide (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164913.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ IAmTimCorey, Tim Corey | Изучение C#: Blazor WebAssembly / Exploring C#:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164861.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164806.jpg" />
 </div>
 
 
@@ -91,7 +119,7 @@ The Gnomon Workshop, Maarten Verhoeven | The Making of Red Myst (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164729.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ Mold3D Academy, Dylan Ekren | Creating Appealing Characters in 3D (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164643.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Over
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164617.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164590.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ The Gnomon Workshop, Ted Mebratu | Cinematic Lighting in Unreal Engine 5 (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164526.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ FlippedNormals, Henning Sanden | Character Face Texturing in Substance Painter (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164514.jpg" />
 </div>
 
 
@@ -249,7 +277,7 @@ Udemy.com | Photoshop CC 2018 for Absolute Beginners (2018) PCRec [H.264/720p-LQ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164128.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164119.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ Cubebrush, Marc Brunet | Complete Guide to a Concept Art Career (2017) WEB-DLRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164064.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ Gumroad, Eugene Petrov | Handgun for Video games Tutorial (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164041.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ Udemy, Roope Kiuttu | Make Money on YouTube Following PROVEN STEPS - Works in 20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163982.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Game Developer Course (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163981.jpg" />
 </div>
 
 
@@ -415,7 +443,7 @@ Motionguru, Jafar Fazel | Motion Design Course (Motion Hero) (2021) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163965.jpg" />
 </div>
 
 
@@ -442,7 +470,7 @@ Udemy, Dan Britain, Phil Ebiner | ChatGPT & YouTube: AI Tools for YouTube Video 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163960.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Erick Wendel | Mastering Node.js Streams with Erick Wendel (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163919.jpg" />
 </div>
 
 
@@ -497,7 +525,7 @@ SkillUP | Тестировщик ПО с гарантией трудоустро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163894.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ JUG Ru Group | HolyJS 2022 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163877.jpg" />
 </div>
 
 
@@ -549,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163858.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ JUG Ru Group | Joker 2022. Конференция для опытных Java-р�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163802.jpg" />
 </div>
 
 
@@ -601,7 +629,7 @@ Levelup.Digital, Rosa Lee | Sculpting & Texturing Harley Quinn (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163747.jpg" />
 </div>
 
 
@@ -629,7 +657,7 @@ CG Cookie, Jonathan Lampel | ASSEMBLE: Introduction to Procedural Modeling with 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163732.jpg" />
 </div>
 
 
@@ -656,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163720.jpg" />
 </div>
 
 
@@ -667,32 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F772FB35F135CD4981A83EBDBD969D3BA5FE99D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597955   (163637) от 17.12.2022
-
-Domestika, Luis Alberto Gayoso Berrosp | Digital Sculpture of Fantastic Creatures with ZBrush (2019) PCRec [ES, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163637.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сфере 3D моделирования специалисты создают не только человекоподобных персонажей но и фантастических, каких можно увидеть в кино или видеоиграх. Луис Гайосо 3D дженералист. Он специализируется на создании фантастических персонажей и у него более 15 лет опыта работы в качестве цифрового художника. С 2014 года он полностью посвятил себя дизайну персонажей, и в своем (   Читать дальше...   )Производство: DomestikaЖанр: 3D моделирование, СкульптингЯзык озвучки: Испанский, Русский (отдельным файлом)Продолжительность: 03:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE0F62C540C76251453D6B3C1A87665086871FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

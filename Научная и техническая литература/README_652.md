@@ -1,133 +1,3 @@
-###  Публикация: 1815598   (4918) от 31.08.2025
-
-J. Heyrovsky, J. Kuta | Zaklady Polarografie (1962) [PDF] [Cz]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство по основам полярографии от её создателя.Жанр: ХимияЯзык: ЧешскийИздательство: Nakladatelství Československé akademie vědФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FDA1012C2E52A0AF9387BD9FB6BEA5947337E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815818   (4844) от 01.09.2025
-
-А.Б. Старостина | Китайская мифология: обитатели небес, демоны и духи местности (2025) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4844.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании представлены очерки китайской народной мифологии, которая, будучи самобытной в течение тысячелетий, одновременно постепенно вбирала инокультурные представления об устройстве мира и населяющих его богах, духах и волшебных зверях. В китайских народных легендах можно найти следы влияния буддизма и даосизма, зороастризма, а также ислама и христианства. (   Читать дальше...   )Жанр: Научно-популярной литература, КультурологияИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62B594ED3455131D59E418FF3522F5F52A2ADD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815892   (4836) от 01.09.2025
-
-Серия книг | Подарочные издания. Живая природа [8 книг] (2020-2023) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги об удивительном и прекрасном мире живой природы. Лучший подарок для тех, кто любит природу, хочет научиться распознавать виды животных, птиц, насекомых, рыб и растений в естественной среде обитания.Жанр: Энциклопедии, биологияИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3CB7BD9CE72A62237022B6633EFA31D3C25795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816029   (4664) от 02.09.2025
-
-В.И. Соколов | Введение в теоретическую стереохимию (1979) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена теоретическим проблемам современной стереохимии.Жанр: ХимияИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6354D97F4E14068D25246C2CA91DD9CD10147330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816520   (4204) от 06.09.2025
-
-Мария Сергеева | Грибы русского леса. Иллюстрированный определитель (2025) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русский лес щедр на дары – нужно лишь знать, где и что искать. Этот иллюстрированный определитель поможет вам легко распознавать съедобные и несъедобные грибы, уверенно отличать их от опасных двойников и находить интересные и вкусные виды в разное время года. Понятная теория, яркие авторские иллюстрации, точные описания и удобный формат делают этот определитель надежным (   Читать дальше...   )Жанр: Энциклопедии, микология, справочникИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFC2716271931311DC95E8FDC1535F1B0094563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816794   (4198) от 06.09.2025
 
 Т.В. Ивченко | Китайский язык. Полная грамматика в схемах и таблицах (2021) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4198.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4183.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4175.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4163.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4159.jpg" />
 </div>
 
 
@@ -266,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4154.jpg" />
 </div>
 
 
@@ -292,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4150.jpg" />
 </div>
 
 
@@ -320,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4137.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4130.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4128.jpg" />
 </div>
 
 
@@ -398,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4126.jpg" />
 </div>
 
 
@@ -424,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4123.jpg" />
 </div>
 
 
@@ -450,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4121.jpg" />
 </div>
 
 
@@ -477,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4115.jpg" />
 </div>
 
 
@@ -504,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3867.jpg" />
 </div>
 
 
@@ -531,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3757.jpg" />
 </div>
 
 
@@ -557,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3746.jpg" />
 </div>
 
 
@@ -583,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3733.jpg" />
 </div>
 
 
@@ -601,32 +471,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817717   (3231) от 12.09.2025
-
-Павел Довгалюк | Базовые алгоритмы. Реализация на Python и C++ на примере классических игр (2025) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3231.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дается базовая алгоритмическая подготовка, классические алгоритмы разобраны одновременно на двух языках — C++ и Python на примере широко известных и интуитивно понятных компьютерных игр. Наглядно излагается реализация циклов, перебора, рекурсии, эвристики, рассматривается работа с деревьями решений, на примере шахмат предлагается знакомство с прямоугольными (   Читать дальше...   )Жанр: Программирование, учебное пособиеИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA519649DAC87FBC2CDBCDE91DEB738CD8C4085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817896   (2961) от 13.09.2025
 
 Б.В. Иоффе, Р.Р. Костиков, В.В. Разин | Физические методы определения строения органических соединений (1984) [DJVU]
@@ -635,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2961.jpg" />
 </div>
 
 
@@ -661,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2875.jpg" />
 </div>
 
 
@@ -673,6 +517,167 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EECAEB3C24F8AD5DCE26595931BF209AF56FA4F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818049   (2796) от 14.09.2025
+
+Б. Хэссард, Н. Казаринов, И. Вэн | Теория и приложения бифуркации рождения цикла (1985) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга американских математиков, отражающая успехи в развитии теории бифуркаций и ее применений. Подробно изложены основы теории, даны разнообразные примеры, приведены явные формулы и программы для вычислений.
+Для математиков-прикладников, инженеров, биологов и специалистов, использующих методы прикладной математики.Жанр: МатематикаИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83D4A63033E298A81318EAF9DD0121E51281366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818371   (2491) от 16.09.2025
+
+А.П. Томилов, М.Я. Фиошин, В.А. Смирнов | Электрохимический синтез органических веществ (1976) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография знакомит читателя с использованием электролиза для синтеза органических веществ различных классов.
+Рассматриваются реакции, происходящие при электролизе растворов органических веществ, методика проведения и выбор условий электрохимических синтезов, конструкция лабораторных и промышленных влектролизеров.
+Приводятся примеры электрохимических синтезов органических (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F3CDF9FB661CBA5DB4D3A7A957E5951F14AF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818551   (2366) от 17.09.2025
+
+Н.А. Слузова | Компьютерное моделирование (2025) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие «Компьютерное моделирование» предназначено для студентов профильных направлений подготовки, а также для студентов магистратуры смежных направлений и аспирантов, планирующих к использованию в своих исследованиях математические методы.
+Оно призвано познакомить их с основами построения и анализа компьютерных моделей различных систем. Это пособие направлено (   Читать дальше...   )Жанр: Учебное пособиеИздательство: КИРАФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79F179EA5578F2D9974753AD89B54198E5B1BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818983   (2046) от 19.09.2025
+
+А.П. Шилин | Дифференциальные уравнения: Подробный разбор решений типовых примеров (2023) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие представляет собой сборник задач по дифференциальным уравнениям, особенность которого в том, что задачи и примеры представлены здесь в форме однотипных многовариантных заданий по важнейшим темам курса дифференциальных уравнений. В про­цессе многолетней преподавательской работы со студентами физических специальностей автор неоднократно апробировал (   Читать дальше...   )Жанр: МатематикаИздательство: ЛенандФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E25704067E02EDDD8061EC81377E44A278C197D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818987   (2014) от 19.09.2025
+
+Л.Ф. Шампайн, И. Гладвел, С. Томпсон | Решение обыкновенных дифференциальных уравнений с использованием MATLAB (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2014.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии представлены все разделы информатики, определяющие современный уровень подготовки.
+В книге исследуются вопросы численного решения дифференциальных уравнений с использованием системы MatLAB. Рассматриваются задачи с начальными условиями (ЗНУ) и граничными условиями (ЗГУ) для обыкновенных дифференциальных уравнений, а также дифференциальные уравнения (   Читать дальше...   )Жанр: МатематикаИздательство: ЛаньФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B866C706388A5330ECF7ED82C6BE7AD4EC4DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818012   (1906) от 20.09.2025
+
+Роман Бессонов | Просто начни. Самоучитель английского языка. Для тех, кто давно хотел выучить иностранный (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский с нуля вместе с опытным преподавателем с высшей квалификационной категорией! Роман Бессонов обучает английскому подростков и взрослых, опираясь на всемирно признанную Кембриджскую коммуникативную методику, которую также заложил в основы самоучителя. Выполнение устных и письменных упражнений и работа со словарем помогут закрепить пройденный материал и начать (   Читать дальше...   )Жанр: Изучение языковИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7562CE6CA284DDCC2AE48A3373021611DE1D7EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

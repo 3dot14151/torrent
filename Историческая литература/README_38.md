@@ -1,29 +1,3 @@
-###  Публикация: 1287663   (701891) от 08.03.2019
-
-А. Рязанова | Профсоюзы и работница. Работница в производстве [Выпуск 1] (1922) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Условия труда в современной промышленности — хищническое отношение к рабочей силе, длинный утомительный рабочий день, отсутствие необходимого отдыха, низкий уровень жизни, антигигиеническая обстановка фабричных помещений и промышленного труда — все это пагубно отражается на здоровье рабочего класса, и в особенности на женщинах работницах. Ни в одной области промышленной (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BFBB2CD6D0D01C15ACFBD66655B78C2BAA17A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287556   (701890) от 08.03.2019
 
 Е. В. Чистякова | Городские восстания в России в первой половине XVII века [30-40-е годы] (1975) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701890.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701353.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701299.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699699.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699567.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699374.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699330.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699215.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698976.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698970.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698875.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698864.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698355.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697778.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697493.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696802.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695667.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695552.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695132.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695122.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694829.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694544.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694263.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693645.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693331.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25DBB927E7C088215682A99B047E59AD995A037A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133576   (693316) от 13.05.2017
+
+Б. И. Горев | Анархизм в России [от Бакунина до Махно] (1930) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая тяжба анархизма с научным коммунизмом, начавшаяся борьбой Бакунина с Марксом в I Интернационале, нигде не получила такой яркой формы и законченного выражения, как в России. Кроме того, нигде так четко не выявилась социальная сущность анархизма и его классовая основа, как в русском революционном движении. Не случайным является тот факт, что именно в России (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEEE3B760330C65349A36F14A54ED0080C60A187
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1565605   (492309) от 24.07.2022
+
+Глубоко в сердце: история дикой природы Техаса / Deep in the Heart: A Texas Wildlife Story (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [EN / EN, Spa Sub]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техас — бывшая самостоятельная страна с огромной территорий, превышающей территорию такой страны, например, как Франция. Разумеется, и климат, и ландшафт на этой огромной территории различны: от севера, где зимой может выпасть снег, к югу с его звенящим испепеляющим зноем, от побережья Мексиканского залива до пустынь на границе с Нью-Мексико. Визуально ошеломляющее (   Читать дальше...   )Производство: США, Fin & Fur FilmsЖанр: документальный, природаРежиссер: Бен МастерсПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, испанскиеПродолжительность: 01:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5325C183E8EAD7975A43781C0652DDA70D380AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545071   (487544) от 09.09.2012
 
 Лесные тайны [1-3] / Geheimnisse des Waldes (2007) SATRip
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487544.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Истоки жизни. Завоевание (Первая жизнь с �
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486972.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484177.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484003.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483702.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483007.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476369.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474634.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473902.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473268.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473259.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472634.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470835.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468640.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468529.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467203.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467111.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Nat Geo Wild: Дом пауков / The Amazing Spider House (2015) HDTVRip [H.2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466729.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466569.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465128.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461817.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461725.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461083.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459076.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459071.jpg" />
 </div>
 
 
@@ -643,33 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBE1A530DDE2393EF495AB3F6FAFF4F9CE54DE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321466   (458947) от 24.08.2019
-
-Россия - царство тигров, медведей и вулканов / Russland - Im Reich der Tiger, Bären und Vulkane (2011) BDRemux [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм "Россия. В царстве тигров, медведей и вулканов" - это окно в Россию, неизвестную для западного человека и даже для многих россиян. "Россия – самая большая страна мира. Во многих своих частях она остается неизведанным миром, полным чудес. Пусть сохранится этот мир и для поколений, которые придут после нас".
-...С этих слов начинается (   Читать дальше...   )Производство: Россия, Германия, NDR Naturfilm, Studio Hamburg Doclights Produktion, Norddeutscher Rundfunk (NDR), Westdeutscher Rundfunk (WDR), National Geographic International, Animal Planet US, Parthenon Entertainment, Sianel 4 Cymru (S4C), Channel One Russia, PolybandЖанр: Документальный, природа, флора, фаунаРежиссер: Уве Андерс, Кристиан Баумейстер, Оливер ГоетцлПеревод: Одноголосый закадровый, профессиональный (В.Курдов)Субтитры: Русские, Немецкие, АнглийскиеПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED3B0D39AD6AD945DC65F9BEEE745BF1FDE31DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 1823091   (121490) от 10.10.2025
-
-Б.М. Аскеров | Кинетические эффекты в полупроводниках (1970) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагается современная теория гальваномагнитных и термомагнитных явлений в полупроводниках. Рассмотрены случаи параболической и непараболической зон, а также зоны со многими минимумами. В книге большое место занимает квантовая теория кинетических эффектов. Учитывается влияние непараболичности зоны проводимости на кинетические эффекты в квантующем магнитном поле. (   Читать дальше...   )Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C060AB97E79DA542EA32FCC1D297BAA3F9E79FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823089   (121488) от 10.10.2025
-
-Б.М. Аскеров | Электронные явления переноса в полупроводниках (1985) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Систематическое изложение теории стационарных электронных явлений переноса в полупроводниках. Классическая и квантовая теория гальвано- и термомагнитных эффектов. Теория рассеяния носителей. Для специалистов, старшекурсников и аспирантов.Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFCDC44581C257F706D7A6EA573278CC82C8506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694062   (121356) от 23.01.2024
-
-К.И. Сухачев, Д.В. Родин, А.С. Дорофеев | Особенности проектирования цифровой электроники на базе программируемой логики (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121356.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном учебном пособии представлена информация об основных семействах программируемых логических микросхем, дано их сравнение и области применения. Представлен вводный курс в HDL Verilog, проведено сравнение с другими популярными HDL и графическим методом разработки дизайна ПЛИС. Дано описание среды разработки Quartusfree, на примере полного цикла разработки реального (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Самарский университетФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6683E8CD8A2C4D899B5BEA829E0103E35468EEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694043   (121336) от 23.01.2024
-
-И.П. Матвеенко | Электроника и основы микропроцессорной техники. Курсовое проектирование (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит методические рекомендации по выполнению курсовой работы по дисциплине «Электроника и основы микропроцессорной техники», основные требования к оформлению, образец выполнения курсовой работы с подробными рекомендациями, приложения, список литературы.
-Для студентов специальности 1-53 01 01 Автоматизация технологических процессов и производств (по направлениям) (   Читать дальше...   )Жанр: ЭлектроникаИздательство: БГАТУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3242649A038FEB897A496B5892EEF3AD3816EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693967   (121326) от 23.01.2024
-
-Книжная серия | Задачник «Кванта». Физика. Части 1, 2 и 3  [3 книги] (2010 - 2012) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги представляют собой три части «полного состава» задач по физике, опубликованных в разделе «Задачник «Кванта» журнала «Квант» (1997 - 2010 г.). Задачи в большинстве своем авторские, многие задачи предлагались на олимпиадах различного уровня. К задачам даются краткие ответы. Книга адресована учащимся и преподавателям средних школ, лицеев и гимназий, членам и руководителям (   Читать дальше...   )Жанр: ФизикаИздательство: МЦНМОФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD16957FD7FFDCAE605281AAEB613CC53A12E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694253   (121201) от 24.01.2024
 
 Книжная серия | Справочники-определители географа и путешественника [15 книг] (1966 — 1986) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121201.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120996.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120995.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120851.jpg" />
 </div>
 
 
@@ -245,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120832.jpg" />
 </div>
 
 
@@ -271,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120830.jpg" />
 </div>
 
 
@@ -297,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120829.jpg" />
 </div>
 
 
@@ -325,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120705.jpg" />
 </div>
 
 
@@ -352,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120693.jpg" />
 </div>
 
 
@@ -378,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120684.jpg" />
 </div>
 
 
@@ -405,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120665.jpg" />
 </div>
 
 
@@ -431,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120661.jpg" />
 </div>
 
 
@@ -457,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120360.jpg" />
 </div>
 
 
@@ -483,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120349.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120340.jpg" />
 </div>
 
 
@@ -536,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120316.jpg" />
 </div>
 
 
@@ -562,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120311.jpg" />
 </div>
 
 
@@ -588,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120288.jpg" />
 </div>
 
 
@@ -614,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120262.jpg" />
 </div>
 
 
@@ -640,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120235.jpg" />
 </div>
 
 
@@ -666,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120219.jpg" />
 </div>
 
 
@@ -677,6 +546,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1098327FA617AE894CBD49D80735DAB713DAD80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695698   (120156) от 30.01.2024
+
+С.Г. Герман-Галкин | Компьютерное моделирование полупроводниковых систем в MATLAB 6.0 (2001) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книга рассматривает вопросы практического использования MatLab 6.0 для решения задач по проектированию полупроводниковых систем электропривода.
+
+Учебное пособие для технических университетов и техникумов содержит следующие основные разделы: основы электропривода, моделирование систем в пакете «MatLab 6.0 – Simulink», силовые полупроводниковые преобразователи, (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Корона принтФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EED50CF8F64AF3BA92C55D831A2512B08C17C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695866   (120152) от 30.01.2024
+
+Александр Нефедкин | Военное дело древних персов (2022) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй половине VI века до н. э. персидскими царями из династии Ахеменидов была создана одна из величайших империй в мировой истории. В ходе завоеваний Кира II Великого (558−530 гг. до н. э.) и его наследников в течение всего лишь около сорока лет персы завоевали государства и племена на огромном пространстве от Малой Азии до Индии. Непокорные местное население (   Читать дальше...   )Жанр: Военная документалистика и аналитика, ИсторияИздательство: Яуза, МоскваФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6D8227CF8C83EBB2C82AB423C6ABC9A27CAD1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695840   (120125) от 30.01.2024
+
+Alexander Werth | Russia at War, 1941–1945 A History (2017) [PDF, EPUB][EN]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foreword by Nicolas Werth
+In 1941, Russian-born British journalist Alexander Werth observed the unfolding of the Soviet-German conflict with his own eyes. What followed was the widely acclaimed book, Russia at War, first printed in 1964. At once a history of facts, a collection of interviews, and a document of the human condition, Russia at War is a stunning, modern (   Читать дальше...   )Жанр: History, Military HistoryЯзык: АнглийскийИздательство: Skyhorse PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD84EA12AABD8D20661AC89E45A01714AAC7A46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696045   (120019) от 31.01.2024
+
+Книжная серия | Справочные материалы [9 книг из 10] (1988 - 1994) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг от издательства Просвещение для выпускников школ, поступающих в вузы и занимающихся самообразованием.Жанр: ОбразованиеИздательство: ПросвещениеФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DBE19CB65913CF0D724C7A8879860371BF3A9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695870   (119995) от 31.01.2024
+
+Натан Эйдельман | Твой XVIII век. Твой XIX век. Грань веков (2023) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Натан Яковлевич Эйдельман – историк, литературовед, писатель, публицист, чей вклад в отечественную историографию XX века трудно переоценить. Он оставил богатейшее творческое наследие – более 20 книг и многочисленные статьи, эссе, рецензии в периодической печати. Основной областью научных интересов Н. Я. Эйдельмана была история русской культуры и общественного движения (   Читать дальше...   )Жанр: ИсторияИздательство: Азбука, Азбука-Аттикус, Санкт-ПетербургФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AA39E56B1CE4A5B87A08F77FA23172893DE664
 ```
 
 https://mybot314.ru/tekegram_catalog/

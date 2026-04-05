@@ -6,7 +6,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480392.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478586.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BBC: Бахус. Античный бог экстаза / Bacchus Uncovered: Anc
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477007.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476815.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BBC: Сказочный замок короля Людвига II / The Fairytal
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476803.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC: Мир природы. В мире жуков / Natural World. Beetlemania 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474967.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473514.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BBC. В краю муссонов: Экстравагантные изгои / W
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470979.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468757.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466068.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466067.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC. Мрачное обаяние Адольфа Гитлера / The Dark Char
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464268.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464037.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC: Человек на Марсе. Экспедиция на красную п
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461633.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461547.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457017.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC: Выдающиеся женщины ХХ столетия. Амелия Э�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455393.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BBC: Нацизм: Предостережение истории (1999) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454979.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ BBC. Загадки квантовой физики / The Secrets of Quantum Phy
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454311.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BBC: Атлантида была здесь / Atlantis: the Evidence (2010) IPTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453244.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BBC Horizon: В какой Вселенной мы находимся? / Which U
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453102.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BBC: Мужчина и Женщина / The Human Sexes (1997) [H.264] DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452350.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BBC: Каковы размеры Вселенной? / How Big is the Universe? 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448199.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BBC. Самые опасные дороги мира / World's Most Dangerous Ro
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446937.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ BBC: Двадцатка самых опасных наркотиков /BBC: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446832.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444486.jpg" />
 </div>
 
 

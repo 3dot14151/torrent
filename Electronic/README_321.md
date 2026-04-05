@@ -1,3 +1,119 @@
+###  Публикация: 1573433   (407499) от 03.09.2022
+
+Oblivion - Secrets Of Time (The 4-th Album) (2021) [OGG Vorbis|485 Kbps] <Synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Time Keeper (Intro)	1:59
+02. A New World (Terminator Koto Theme)	5:21
+03. Future Mind	5:26
+04. Galaxy Of Broken Dreams	7:13(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82C285FF4383A9408558960EC76CE45BBF4E248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574164   (407483) от 03.09.2022
+
+VA - Costa - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa & Kate Louise Smith - We Are The Universe (Original Mix) (3:36)
+02. Costa & Tricia McTeague - Call I'll Be There (Original Mix) (3:42)
+03. Costa & Ellie Lawson - Illuminate (Original Mix) (3:51)
+04. Ana Criado & Costa - Love Is An Act Of Courage (Original Mix) (3:21)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9557A71E53517A3BF48929449AC7157F114DFFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326147   (407423) от 18.09.2019
+
+VA - Garden Of Eden Vol.1 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive - Run (Original Mix) 3:06
+02. Johannes Huppertz & Mirage Of Deep feat. Gushi - Selflove (Mirage Of Deep Remix) 5:16
+03. Lemongrass - Habla Mi Corazon (Kevin Yost's Otherside Of The Word Remix) 7:22
+04. Marga Sol - Falling (Original Mix) 6:30(   Читать дальше...   )Жанр: Downtempo, ChillOut, RelaxПродолжительность: 02:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59B0A51E091F87D09C8111B6F66028145B7786E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413803   (407242) от 05.10.2020
+
+Fatih Tuter - Beehive (2020) Shimmering Moods Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407242.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Birds And Sunrise On Langeoogerstr.	8:22
+2	Appreciation	7:32
+3	Winterwald	7:44
+4	In Your Hometown, Before You Were Born (feat. Ryckyboy)	7:14(   Читать дальше...   )Жанр: Ambient, Drone, Dub TechnoПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433B4E7C813556329F1B5E31485BE29E1CF28DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413699   (407228) от 05.10.2020
 
 Ulver - Flowers Of Evil (2020) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Alternative, Psychedelic, Synthpop>
@@ -6,7 +122,7 @@ Ulver - Flowers Of Evil (2020) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Alte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407228.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Odesza - Summers Gone (2012) [MP3|320 кб/с]<Ambient,Chillwave, Electronic>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407114.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ Simon Le Grec - 25 Years Anniversary (Unique Music) (2020) Compilation [FLAC|Los
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406819.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ VA - Kontor Sports: Nonstop Powermix 2020.05 (2020) [MP3|320 Kbps] <House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406809.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ VA - Kontor Sports: Nonstop Powermix 2020.04 (2020) [MP3|320 Kbps] <House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406807.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ VA - Dancefloor FG Ete Summer 2012 (2012) [MP3|~245 кб/с (V0)]<House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406721.jpg" />
 </div>
 
 
@@ -192,7 +308,7 @@ Giyo - Play your joker (2012) [MP3|320 кб/с]<abstract, downtempo, trip-hop, U
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406641.jpg" />
 </div>
 
 
@@ -224,7 +340,7 @@ VA - African Chillout: Mystic Oriental Sunset Lounge Dreams (2012) [MP3|320 кб
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406627.jpg" />
 </div>
 
 
@@ -259,7 +375,7 @@ Dave Ross - Dance Machine (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406424.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ VA - Disco Sensation (2012) [MP3|320 кб/с]<Funky, Club House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406182.jpg" />
 </div>
 
 
@@ -329,7 +445,7 @@ VA - Pure Salinas. Lounge & Deep House Edition Vol. 4  (2012) [FLAC|Lоssless]<L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406120.jpg" />
 </div>
 
 
@@ -358,7 +474,7 @@ VA - Dessous Classics Volume 2 (2012) [MP3|320 кб/с]<Deep House, Downtempo>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405969.jpg" />
 </div>
 
 
@@ -393,7 +509,7 @@ VA - For New Music Lovers & Dancers (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405057.jpg" />
 </div>
 
 
@@ -422,7 +538,7 @@ VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405055.jpg" />
 </div>
 
 
@@ -451,7 +567,7 @@ Rahul Sharma & Richard Clayderman - Milap (2017) [FLAC|Lossless|tracks] <Easy Li
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404990.jpg" />
 </div>
 
 
@@ -480,7 +596,7 @@ Richard Clayderman - Movie Favourites (2017) [FLAC|Lossless|tracks] <Easy Listen
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404984.jpg" />
 </div>
 
 
@@ -509,7 +625,7 @@ VA - Black Hole Presents Best Of Vocal Trance Volume 1 (2017) [FLAC|Lossless|WEB
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404924.jpg" />
 </div>
 
 
@@ -538,7 +654,7 @@ Richard Clayderman - The Andrew Lloyd Webber Collection (2017) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404898.jpg" />
 </div>
 
 
@@ -567,7 +683,7 @@ Richard Clayderman - The ABBA Collection (2017) [FLAC|Lossless|tracks] <Instrume
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404885.jpg" />
 </div>
 
 
@@ -596,7 +712,7 @@ VA - Ocean Tunes: Sydney (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404105.jpg" />
 </div>
 
 
@@ -625,7 +741,7 @@ VA - Sea & Sand Bar Grooves Pt.1-2: Sexy Lounge Island Tunes (2012) [MP3|320 к�
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403892.jpg" />
 </div>
 
 
@@ -660,7 +776,7 @@ VA - Intuition (mixed by Guy Mantzur) - 2012 [FLAC|Lossless]<Tech House, Progres
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403765.jpg" />
 </div>
 
 
@@ -671,128 +787,6 @@ VA - Intuition (mixed by Guy Mantzur) - 2012 [FLAC|Lossless]<Tech House, Progres
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564424   (402993) от 23.10.2012
-
-VA - Ocean Deep Ibiza: The Exquisite Deep House Collection By Eva Pacifico (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jorge Takei - Paris (Los Suruba Remix)
-02. Phonique - Vincent Price (Original Mix)
-03. Valentin Huedo - Campo De Flores (Original Mix)
-04. Rosa Lux - Lose You (T. Finland Remix)
-05. Marek Hemmann - You Know (Original Mix)
-06. Oliver Schories - I'm Not (Original Mix)
-07. Robag Wruhme - Donnerkuppel (Original Mix)
-08. Alex Niggemann - Don?t Wait (Original Mix)
-09. Inxec, Droog - Westbound (Original Mix)
-10. 1988 - Youandewan (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A138A81336EEE4298F3B7C4759AF2D7D0C609CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169105   (402471) от 28.09.2017
-
-VA - Recoverworld Radio 012 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dream State - Patagonia (Extended Mix)  8:31
-02.  Manuel Le Saux, Amos & Riot Night - Hand On Heart (Original Mix)  6:45
-03.  Marco Van Deroga - I Know You (Original Mix)  6:17
-04.  Simon McCann - The Unknown (Original Mix)  7:32(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58FCF33B8BA3CF9EF249BE28A66950E157971EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169122   (402465) от 28.09.2017
-
-VA - Recoverworld Radio 013 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daydreamer - Levitation (JP Bates Remix)  6:44
-02.  Obi - Soulmate (Original Mix)  8:07
-03.  Para X - Dream Zone (Original Mix)  7:12
-04.  Greg Dusten - Higher State (Original Mix)  7:36(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAB89C2B3C6104DFAB165FAC2DEBC9AD1DAA52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169498   (402351) от 28.09.2017
-
-Pola & Bryson - This Time Last Year: The Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pola & Bryson - Call Of The Night (Silence Groove Remix) (05:00)
- 02. Pola & Bryson feat. Siege MC - Way Back (Data 3 Remix) (05:02)
- 03. Pola & Bryson feat. BLAKE - Temporary Love (S.P.Y Remix) (06:56)
- 04. Pola & Bryson - This Time Last Year (Chords Remix) (04:59)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C551727CF08E92B78A41158C0C589EE3C520926
 ```
 
 https://mybot314.ru/tekegram_catalog/

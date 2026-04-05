@@ -6,7 +6,7 @@ NG. Самая огромная акула-бык / World's Biggest Bull Shark (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195035.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195021.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195004.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194981.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194978.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194038.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192809.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192632.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191796.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Секреты истории - Эксперименты ЦРУ: Контр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190955.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190462.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189498.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG: 11 сентября - хроника террора / Inside 9/11 (2007) TVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189484.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188212.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187032.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ NG. Охотники за вирусами / Virus Hunters (2020) IPTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184897.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182987.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181974.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NG: Момент смерти / Moment of Death (2008) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177918.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176313.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG. С Точки Зрения Науки: Полёт в систему Юпит
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174885.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG: Последствия: Мир без нефти / Aftermath: World without 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174690.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NGW: 700 Акул / 700 Sharks (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173770.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NG. Эпические приключения с Берти Грегори / Epi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172754.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NGW: Драконы Комодо / Komodo Dragons (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169290.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NG. Ледяная дорога / Ice Road Rescue (2021) HDTV [H.264/1080i] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169093.jpg" />
 </div>
 
 

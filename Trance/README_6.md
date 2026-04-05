@@ -1,3 +1,61 @@
+###  Публикация: 1089164   (953904) от 02.01.2017
+
+VA - Best 10 Trance Of The Year (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.M.P - November Leaves (Psymfonius Remix) 06:35
+02. Barzek - July (Stephane Badey Remix) 08:28
+03. Noize Compressor - Hurricane (Original Mix) 06:54
+04. Pax (UK) - Transatlantic (Mobil Remix) 06:18(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2715BD45BBA4822F640821617E893EA54701F27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089596   (950787) от 04.01.2017
+
+VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Decline - Lunge (Original Mix) [4:23]
+02. Sentencia - Above The Sky (Original Mix) [4:30]
+03. Dmitry Kostyuchenko - Heaven Love (Original Mix) [7:39]
+04. Yuri Pike - 21 (Original Mix) [6:19](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730889C090C28D327B2E1B4F93E31870BC5BFAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090358   (947684) от 06.01.2017
 
 VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947684.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947531.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ DJ Eco - Подборка синглов (2007 - 2010) [MP3|320 kbps] <Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947454.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ VA - Black Hole Trance Music 02-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946572.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Tiesto - Elements Of Life (Remixed - Extended Mixes) (2016) [MP3|320 кб/с] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945228.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [MP3|320 Kbps] <Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944857.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Global DJ Broadcast Top 20 January 2016 (With Markus Schulz) (2016) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943745.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Kai Tracid - In Da Club: Back to School (2010)[MP3|320 kbps]<Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943516.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ VA - Suanda Winter Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943234.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ VA - Trance Euphoria Vol.7 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Elec
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940843.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ VA - Global DJ Broadcast: Top 20 January (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937421.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ VA - Suanda Music Radio Top 10 January 2016 (Mixed by Roman Messer) (2016) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935557.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ VA - Total Trance Selections Vol.01 (2016) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932492.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ VA - Total Trance Selections  Vol.02 (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932431.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ VA - Trance Inside, Vol. 4 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932240.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ Jonas Stenberg - Overworld (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926944.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ VA - Redux Presents: The Uplifting Selection Vol.1 (2017) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922879.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922878.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ VA - Aria Selections Class Of 2016 (Mixed by David Forbes) (2017) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922764.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Markus Schulz - City Series Collection (2016) [MP3|320 кб/с] <Progressive Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922718.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ VA - Redux Presents : The Progressive Selection Vol. 1 (2016) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921090.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifti
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919395.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917144.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915509.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59F76DD3DF86696FD9537E7C3E405DA026D56CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991239   (908019) от 27.02.2016
-
-Ferry Corsten - Hello World (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart's Beating Faster (feat Ethan Thompson) (3:03)
-02. Find A Way (4:08)
-03. Beat As One (feat Angelika Vee) (2:56)
-04. Homeward (5:32)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CF2848F3E20AD6C8840A538281BD7D782BD696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368286   (907418) от 21.03.2020
-
-VA - Black Hole Trance Music 03-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlight Project, Fanizza - Light Me Up (Extended Mix) 5:10
-02. Dave Neven, Ocata - Sirens In The Sky (Extended Mix) 8:07
-03. Solarstone, Robert Nickson - Voyager II (Extended Club Mix) 7:59
-04. Somna, Jennifer Rene - Stars Collide (Extended Mix) 5:56(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615C068ACE44669AED1E157B82E01891A61F6D90
 ```
 
 https://mybot314.ru/tekegram_catalog/

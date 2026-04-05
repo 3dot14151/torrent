@@ -1,3 +1,31 @@
+###  Публикация: 1413993   (406695) от 06.10.2020
+
+Parker Walbeck | Создание коммерческого видео / Commercial Video Pro (2019) HDTV [En]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, что вам нужно знать о создании кинематографических коммерческих видеороликов
+
+Независимо от того, являетесь ли вы новичком или хорошо разбираетесь в основах, этот курс проведет вас через каждый шаг на пути создания профессиональных и эффективных рекламных роликов для ваших клиентов.Производство: FulltimeFilmmakerЖанр: ВидеграфияЯзык озвучки: АнглийскийПродолжительность: 04:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5590403C7C03E0D2F4F59BE03D966FFD0025CBAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413930   (406661) от 06.10.2020
 
 [Udemy] John Smilga | Курс React Styled Components + Проект / React Styled Components Tutorial and Project Course (2020) PCRec [En / En Sub]
@@ -6,7 +34,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406661.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406655.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Eduard Mykhailov | Безумные визуальные эффекты в After
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406619.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406618.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406495.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405376.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403747.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ lynda.com | Основной курс Logic Pro 9 Essential Training [2011] [RUS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402658.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401789.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401075.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ CodeDojo | Основы Node.js (2017) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401072.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400639.jpg" />
 </div>
 
 
@@ -336,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398989.jpg" />
 </div>
 
 
@@ -365,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397394.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ Pragmatic Studio | Ruby and Rails [Master Package] (2012-2014) PCRec [H.264] [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396481.jpg" />
 </div>
 
 
@@ -418,7 +446,7 @@ Lynda.com | Muse Essential Training - Основной курс [2012] [EN] PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394673.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394627.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394501.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394457.jpg" />
 </div>
 
 
@@ -535,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393694.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ Rick Arnold | Строим сарай с Риком Арнольдом / Build a
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393675.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389730.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387930.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ Pluralsight, Dan Cox | Creating Game-ready Modular Structures in 3ds Max (2016) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387624.jpg" />
 </div>
 
 
@@ -668,7 +696,7 @@ Gameinstitute, Dojn | Game Mathematics (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387448.jpg" />
 </div>
 
 
@@ -682,32 +710,6 @@ Gameinstitute, Dojn | Game Mathematics (2017) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F929E6DF64BDCA3C522E022A3A9EB59ABB1C9998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414148   (387407) от 07.10.2020
-
-Eduard Mykhailov | Rich Glitch (2019) PCRec [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня нам повезло, потому что glitch - это невероятно классный и стильный инструмент. По сути, это просто несколько случайно меняющихся пикселей с некоторой логикой за ними. И если вы смотрите это видео, то, вероятно, уже знаете об этом. Итак, в этом мастер-классе я покажу вам основные методы, которые я использую для создания элементов глюка в After Effects. Я (   Читать дальше...   )Производство: Motion Design SchoolЖанр: Создание эффектовЯзык озвучки: АнглийскийПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703FD4E82C109A8503212770EEDD70176D609AB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

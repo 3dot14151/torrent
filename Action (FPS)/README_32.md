@@ -1,3 +1,55 @@
+###  Публикация: 1081378   (283632) от 09.12.2016
+
+Root Of Evil: The Tailor (2016) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Root Of Evil: The Tailor - история об одном случае произошедшем 20 лет назад. Супружеская пара, была убита, в живых остался лишь их новорожденный ребенок. Полиция провела расследование и оказалось, что по их мнению это было самоубийство, и дело было закрыто. Новорожденный ребенок был отправлен в детский дом. После окончания расследования, в доме стали происходить (   Читать дальше...   )Тип издания: LicenseРазработчик: EastFog StudiosЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: Русский, Английский, ВьетнамскийЯзык интерфейса: Русский, Английский, Вьетнамский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15E5506C2B6BF8ABD6FA4E73A3788852BFB7E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186965   (283356) от 26.11.2017
+
+Battlefield: Bad Company 2 (2010) [Ru/En] (795745) Repack xatab
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сохраняя все лучшие традиции серии, Battlefield: Bad Company 2 предлагает вниманию поклонников игры массу интересных возможностей. Сражаться предстоит в самых разных условиях: в заснеженных лесах и непроходимых джунглях, в жарких пустынях и неприступных горах, что предполагает использование соответствующей тактики.Тип издания: RepackРазработчик: EA Digital Illusions Creative EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB986B7E30D9E0A3AEA57E7528B56786D50C761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081586   (282132) от 10.12.2016
 
 Signal Ops (2013) [En] (1.0.5361) License GOG
@@ -6,7 +58,7 @@ Signal Ops (2013) [En] (1.0.5361) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282132.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Killing Room (2016) [Ru/Multi] (1.37.7) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276687.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Maize (2016) [En] (1.0.1310) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276627.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Outlaws (1997) [En] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276180.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275408.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Space Rift NON VR (2016) [En] (1.0) License CODEX [Episode 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275360.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275348.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274157.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Elena (2016) [En/Ge] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271912.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ SOMA (2015) [Ru/Multi] (1.500) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271863.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Superliminal (2019) [Ru/Multi] (1.0.2019.11.12.1) Repack Butter_
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270197.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12212) License PLAZA [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270053.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Far Cry 3 (2012) [Ru/En] (1.05/dlc) Repack xatab [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270008.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ SOMA (2015) [Ru/Multi] (1.500) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267486.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Umfend (2018) [Ru/Multi] (1.0F) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267466.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (2.0.1/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267271.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265623.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.3) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264757.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264332.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88874/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264160.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Emily Wants to Play Too (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264038.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Sniper: Ghost Warrior (2010) [Multi] (1.2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263461.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Sniper: Ghost Warrior 2 (2013) [Multi] (3.4.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263428.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/Multi] (3.8.6/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263083.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Sniper: Ghost Warrior 3 (2017) [Ru/Multi] (3.8.6/dlc) License GOG [Gold Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A889B28B551082EBBF192F26623F160E1A8BDA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839048   (261654) от 26.11.2025
-
-Green Hell (2019) [Ru/Multi] (2.9.4) Repack Necros
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симулятор выживания в открытом мире, чье действие происходит в неизведанном уголке джунглей Амазонки. Вы оказались одни в джунглях, без еды и снаряжения. Из всего снаряжения у вас есть только рация, и вы идете вперед на знакомый голос любимого человека, преодолевая бесконечные опасности джунглей... постепенно, кусочек за кусочком, складывая картину того, что же с (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy JarЖанр: Экшен от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E083A201F7E405602E624DA4D23A79A57F49AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838557   (260755) от 23.11.2025
-
-Killbug (2023) [En] (1.5) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жук-убийца, добро пожаловать в тайный мир насекомых, где кишащие массы ведут непрерывную битву за власть. Ваша сила устрашила врагов. Они обрезали вам крылья и отправили в изгнание, но и этого им оказалось мало. Они хотят убить вас - берегитесь засады. Клинок и ствол жаждут крови. Они грезят сладким нектаром мести. Заставьте их страдать. Не щадите панцири и щиты. (   Читать дальше...   )Тип издания: LicenseРазработчик: Samurai Punk, Nicholas McDonnellЖанр: ЭкшеныЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B577F470F55B21695F7E23D3B7B37990CFF6377
 ```
 
 https://mybot314.ru/tekegram_catalog/

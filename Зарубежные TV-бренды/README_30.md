@@ -6,7 +6,7 @@ NG: C точки зрения науки: Вымирание человечес�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774226.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ History Channel: Автомобильная нация / Car Nation (2017) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774212.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Дикая Корея. За границей / Wild Korea. Voice of nature 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774150.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Animal Planet: Знакомство с пингвинами / Meet the Penguins 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774146.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Мир стволовых клеток со Стивеном Хоки
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774075.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774030.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773017.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772812.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772598.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772517.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771722.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Animal Planet: Дом для рептилий. Приключения цепко
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771717.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery. Шахты на Луне / Mining the Moon (2008) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771166.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_771148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_771148.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NG. Убийство Кеннеди / Killing Kennedy (2013) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771113.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771011.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ PBS. Восстание дронов / Rise of the Drones (2013) WEB-DLRip [H.26
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770953.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NG. Комета века / Comet of the century (2013) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770114.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769716.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NG: Королевство белого волка / Kingdom of The White Wolf (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769659.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC: Да Винчи: Утерянное сокровище / Da Vinci: The Lost
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769491.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BBC. Планета муравьёв: Взгляд изнутри / Planet Ant: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769487.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BBC. Наука и ислам / Science and Islam (2009) HDTVRip [H.264/720p] [3
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769485.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC. Порядок и беспорядок / Order and Disorder (2012) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769473.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BBC. Викинги / Vikings (2012) BDRip [H.264/720p-LQ] [Серия 1-3 из 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769470.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769317.jpg" />
 </div>
 
 

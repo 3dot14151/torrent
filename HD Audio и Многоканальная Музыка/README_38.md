@@ -1,38 +1,3 @@
-###  Публикация: 570616   (387218) от 07.11.2012
-
-Los Angeles Guitar Quartet - LAGQ’s Guitar Heroes (2004) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical, Jazz, Blues, Folk-Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ralph Towner – Icarus - 3:31
-2. Norman Blake & David Bromberg – B & B - 4:18
-3. John McLaughlin – We Know You Know: Reverie For Mahavishnu - 5:02
-4. Jimi Hendrix – Pluck, Strum, And Hammer - 4:15
-5. Pat Metheny – Letter From Home - 3:25
-6. Assad Duo – Uarekena - 8:19
-7. Steve Howe – Aire Para Un Día (Mood For A Day) - 4:13
-8. Django Reinhardt – Gypsy Flower - 5:58
-9. Duane York – Pop - 2:16
-10. Los Romeros – El Baile De Luis Alonso - 3:22(   Читать дальше...   )Жанр: Classical, Jazz, Blues, Folk-RockПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599FB8A3785DF5DF0A7FF4FBD4BAF654A104FFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570584   (387197) от 07.11.2012
 
 Meat Loaf - Bat Out Of Hell (1977) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Hard Rock, Progressive Rock>
@@ -41,7 +6,7 @@ Meat Loaf - Bat Out Of Hell (1977) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Hard Ro
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387197.jpg" />
 </div>
 
 
@@ -75,7 +40,7 @@ Los Angeles Guitar Quartet - Spin (2006) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387069.jpg" />
 </div>
 
 
@@ -110,7 +75,7 @@ Bon Jovi - This Left Feels Right (2003) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<х
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386912.jpg" />
 </div>
 
 
@@ -145,7 +110,7 @@ Los Angeles Guitar Quartet - LAGQ Latin (2002) [DSD 2.0 / DST 5.1|1bit/2822,4kHz
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386908.jpg" />
 </div>
 
 
@@ -180,7 +145,7 @@ Bob Dylan - Limited Edition Catalog Box Set (2003 Remaster) (1963-2001) [DST 5.1
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386777.jpg" />
 </div>
 
 
@@ -209,7 +174,7 @@ Yello - Toy (2016) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Pop>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386261.jpg" />
 </div>
 
 
@@ -238,7 +203,7 @@ Yujiro Mabuchi '68 All Stars - Okizari Ni Shita Kanashimi Wa / Soshun No Minato 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385110.jpg" />
 </div>
 
 
@@ -267,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384781.jpg" />
 </div>
 
 
@@ -296,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384428.jpg" />
 </div>
 
 
@@ -325,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384349.jpg" />
 </div>
 
 
@@ -354,7 +319,7 @@ VA - Folk Rock Collection 1965 - 1975 (2022) Compilation, Unofficial Release [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383653.jpg" />
 </div>
 
 
@@ -383,7 +348,7 @@ VA - Рок-панорама-87 (1988) 3LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383165.jpg" />
 </div>
 
 
@@ -412,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380449.jpg" />
 </div>
 
 
@@ -441,7 +406,7 @@ VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Sound
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379261.jpg" />
 </div>
 
 
@@ -470,7 +435,7 @@ VA - Шедевры инструментальной музыки части 1 -
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378990.jpg" />
 </div>
 
 
@@ -499,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378154.jpg" />
 </div>
 
 
@@ -528,7 +493,7 @@ Johann Sebastian Bach–Piano concertos: BWV1061,BWV1060,BWV1062 Zoltan Kocsis, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375650.jpg" />
 </div>
 
 
@@ -558,7 +523,7 @@ Dan Spătaru/Дан Спатару – Песни Из Кинофильма «П
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375376.jpg" />
 </div>
 
 
@@ -587,7 +552,7 @@ This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374956.jpg" />
 </div>
 
 
@@ -613,7 +578,7 @@ The Doors - The Doors (1967) Reissue /1980, Warner Pioneer / [FLAC 2.0 24/96|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374861.jpg" />
 </div>
 
 
@@ -642,7 +607,7 @@ Rockets - Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371810.jpg" />
 </div>
 
 
@@ -671,7 +636,7 @@ Inside The Music: New Age (2001) [DTS 5.1|44.1/16|wav+.cue|DVD-Audio] <new age>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371657.jpg" />
 </div>
 
 
@@ -700,7 +665,7 @@ Blackfield - Blackfield IV (2004) [DTS 5.1|44.1/16|.wav+.cue (DVD-Audio)] <art r
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371489.jpg" />
 </div>
 
 
@@ -729,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371435.jpg" />
 </div>
 
 
@@ -758,7 +723,7 @@ The Doors - The Singles (2017) 1973 [AC3 4.0 CD-DA|44.1/16|image+cue|BD-Audio] <
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371361.jpg" />
 </div>
 
 
@@ -772,6 +737,35 @@ The Doors - The Singles (2017) 1973 [AC3 4.0 CD-DA|44.1/16|image+cue|BD-Audio] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D304A65DACA89C3DB56CFED0732812A6B9963C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254967   (370157) от 15.10.2018
+
+Modern Talking - The 1-st Album (1985) [FLAC 2.0 24/96|Lossless|tracks|Vinyl-Rip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370157.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. You're My Heart, You're My Soul (5.36)
+A2. You Can Win If You Want (3.55)
+A3. There's Too Much Blue In Missing You (5.30)
+A4. Diamonds Never Made A Lady (4.40)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82EF9B7D2F0635157555C873D48345536816A334
 ```
 
 https://mybot314.ru/tekegram_catalog/

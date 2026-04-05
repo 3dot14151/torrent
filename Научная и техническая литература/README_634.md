@@ -1,133 +1,3 @@
-###  Публикация: 1772718   (31177) от 12.01.2025
-
-Валерий Кузенков, Юрий Максимов, Ираида Кузенкова | Охота. Большая энциклопедия. 17 диких зверей (2022) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга дает охотнику четкое понимание роли охоты в управлении и охране природы, сопровождая его по всем важным составляющим этого вида деятельности. Актуальные рекомендации профессионалов учитывают широкий спектр этико-правовых особенностей охотничьей деятельности, а также правил безопасности и способов охоты без ущерба для природных ресурсов. Кулинарный раздел книги (   Читать дальше...   )Жанр: Хобби и досугИздательство: АСТ, КладезьФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69DEB41EF4F5A3B68C1E10A920402CE6215386A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772955   (31159) от 12.01.2025
-
-А. Барнард | Теоретические основы неорганической химии (1968) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой современный курс неорганической химии повышенного типа. В отличие от существующих учебников по общей и неорганической химии, посвященных в основном изложению фактического материала, в книге Барнарда излагаются теоретические концепции современной неорганической химии, основанные на законах квантовой химии, кристаллохимии и физической химии. (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332AF1BB57BFFE510B50571F497B463A20ED415A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772973   (31156) от 12.01.2025
-
-И.Я. Карханіна | Технологія напівпровідникових матеріалів (1961) [PDF] [UKR]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освещены физические основы технологии полупроводников, приведены примеры, схемы, практические советы, рецепты, помещены сведения о важнейших элементарных полупроводниках и соединениях. Для студентов специализации физики полупроводников и полупроводниковой электроники, а также может быть полезна для лиц, интересующихся теоретическими и практическими вопросами изготовления (   Читать дальше...   )Жанр: ЭлектроникаЯзык: УкраинскийИздательство: Державне видавництво технічної літературиФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D91488F33F4EA9988344FB422C311E946A39D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773131   (31105) от 13.01.2025
-
-А.М. Дунаев и др. | Электротехника и электроника (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31105.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом пособии излагаются теоретические основы работы линейных и нелинейных электрических цепей постоянного и переменного (синусоидального и несинусоидального) тока, а также свойства переходных процессов в этих цепях. Пособие соответствует ФГОС 3++ и представляет собой руководство по выполнению лабораторно-практических работ по дисциплине «Электротехника (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЛаньФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F745B38BB249A56BBB51725D84A9FF4FDCB0A097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773113   (31096) от 13.01.2025
-
-Д.И. Кочнева, М.А. Журавская, А.В. Сметанина | Основы логистики [2 книги] (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс лекций разработан на основе требований Федерального государственного образовательного стандарта высшего образования и рабочей программы дисциплины. В конспекте представлены материалы по отдельным формам аудиторной работы студентов, вопросы для контроля знаний по всем темам дисциплины, литература, рекомендованная для изучения в ходе самостоятельной подготовки. (   Читать дальше...   )Жанр: учебное пособие, курс лекций, методические указанияИздательство: УрГУПСФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2C05A09103AABED5C8A73943E552CE49C08015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773079   (31065) от 13.01.2025
 
 А.Л. Бартновский | Электрические измерения. Лабораторный практикум (1977) [DJVU]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31065.jpg" />
 </div>
 
 
@@ -163,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31061.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31012.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30989.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30984.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30900.jpg" />
 </div>
 
 
@@ -298,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30886.jpg" />
 </div>
 
 
@@ -324,7 +194,7 @@ Issa Batarseh, Ahmad Harb | Power Electronics: Circuit Analysis and Design (2017
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30885.jpg" />
 </div>
 
 
@@ -350,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30879.jpg" />
 </div>
 
 
@@ -376,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30878.jpg" />
 </div>
 
 
@@ -405,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30869.jpg" />
 </div>
 
 
@@ -431,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30865.jpg" />
 </div>
 
 
@@ -457,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30855.jpg" />
 </div>
 
 
@@ -483,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30852.jpg" />
 </div>
 
 
@@ -510,7 +380,7 @@ Muhammad H. Rashid (ed.) | Power Electronics Handbook (2006) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30851.jpg" />
 </div>
 
 
@@ -536,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30825.jpg" />
 </div>
 
 
@@ -562,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30800.jpg" />
 </div>
 
 
@@ -588,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30793.jpg" />
 </div>
 
 
@@ -616,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30791.jpg" />
 </div>
 
 
@@ -645,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30767.jpg" />
 </div>
 
 
@@ -674,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30751.jpg" />
 </div>
 
 
@@ -685,6 +555,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5409E90DBBB314693A4E725B67899120CBE7D5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773582   (30675) от 17.01.2025
+
+Библиотека ЖАФИК, Vol. 6: Фотожурналистика, История в фотографиях (События, Политика, Люди, Планета, Война, Антифашизм, Протесты, Криминал) (1964-2024) [371 книг] [PDF, CBZ] [ENG]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы фотографий. Большая часть: материалы «золотой эры» фотожурналистики (1930-1950 годы) от фотокорреспондентов Life (США), Associated Press (Нью-Йорк) , The Daily Graphic (Нью-Йорк), Press Assotiation Photos (Лондон), The Daily Mirror (Лондон), Paris Match (Париж), и иных ведущих зарубежных издательств.
+
+Ключевые фигуры: Доротеея Ланж, Роберт Капа, Виджи, Альфред (   Читать дальше...   )Жанр: Живопись, альбомыЯзык: АнглийскийИздательство: РазличныеФормат: PDF, CBZКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AC6441C84DDE16A987EBAA6EE2551AA7569B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773737   (30652) от 17.01.2025
+
+А.С. Просвиров | Жуки. Второе издание (2018) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карманный справочник посвящен видам, встречающимся в Европейской части нашей страны. Особенность книги - краткая характеристика их биологии и великолепные профессиональные фотографии жуков, сделанные опытными энтомологами.
+Карманный справочник "Жуки" предназначен всем любознательным людям, тем, кого интересует окружающий мир. Его автор, кандидат биологических (   Читать дальше...   )Жанр: энтомология, колеоптерология, справочникИздательство: Фитон XXIФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:102DA17F08F5CCDF4580552A7D655DFC303EA9EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773764   (30647) от 17.01.2025
+
+Е. Пчелов | История России языком дворянских гербов (2025) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Традиционная геральдика, берущая начало в культуре высокого Средневековья, - это целая символическая система, «дешифровка» и исследование которой может быть нетривиальным источником сведений о том или ином периоде человеческой истории.
+Книга Евгения Пчелова знакомит читателей с российской дореволюционной дворянской геральдикой и преломлением в ней истории России (   Читать дальше...   )Жанр: геральдика, историяИздательство: Новое литературное обозрениеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D059E5187BB677CF6E5210A33CF6800B0BBBCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773599   (30640) от 17.01.2025
+
+Библиотека ЖАФИК, Vol. 5: Альбомы фотография (Город, Люди, Автомобили, История, Планета) (1971-2024) [108 книг] [PDF, DJVU] [ENG]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фото и художественные альбомы издательства Taschen (60%), иные зарубежные издательства (40%)
+Оцифровка: профессиональная, планетарный сканерЖанр: Живопись, альбомыЯзык: АнглийскийИздательство: РазличныеФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41558D24086FF1C475EFD7735E825773B7217DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773730   (30618) от 17.01.2025
+
+Б.С. Гершунский, Е.Г. Ранский | Лабораторный практикум по основам электронной и полупроводниковой техники (1974) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30618.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии приведено описание 30 лабораторных работ в соответствии с программой курса "Основы электронной и полупроводниковой техники" для техникумов по специальности "Электронные вычислительные машины, приборы и устройства".
+Для каждой работы указаны цель работы, рекомендуемая литература, контрольные вопросы, описание схемы исследования, (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5030B0C75FAAD4FEDF185E46355EEC125A4D43FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

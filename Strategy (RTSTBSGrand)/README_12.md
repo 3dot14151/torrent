@@ -1,3 +1,55 @@
+###  Публикация: 1183838   (304768) от 15.11.2017
+
+Polaris Sector (2016) [Ru/En/Spa] (1.06с/dlc) License CODEX
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра представляет из себя полномасштабную космическую 4X-стратегия, с акцентом на космических кораблях и космических сражениях. Существует интересная экономическая часть, хорошо развитая политика, уникальная система науки и т.д. Вы начинаете игру, выбрав форму галактики, количество звезд (это может быть пара десятков или сотен), расы, условия победы и прочее.Тип издания: LicenseРазработчик: SoftWarWareЖанр: Grand Strategy, Turn-BasedЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2CD42F2FBA644FC2C2D6DC9485173C0E774A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332848   (302572) от 25.10.2019
+
+Close Combat: The Bloody First (2019) [Multi] (1.00.02) License GOG
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Close Combat: The Bloody First - это новая игра в популярной серии Close Combat, впервые использующая движок 3D Archon. Благодаря движку, Close Combat: The Bloody First теперь сочетает классический тактический геймплей Close Combat с битвами, которые ведутся в самых разных трехмерных ландшафтах, включая скалистые гребни, узкие долины и плотные деревни. Переход на (   Читать дальше...   )Тип издания: LicenseРазработчик: Slitherine Ltd.Жанр: Стратегия, В реальном времени, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ИспанскийЯзык интерфейса: Английский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9AA5A288240A7E9F1BCCDBA593512B8DEDAC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078073   (301795) от 30.11.2016
 
 Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) License PROPER-PLAZA
@@ -6,7 +58,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) License PROPER-PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301795.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296447.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack R.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296301.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Master of Orion (2016) [Ru/Multi] (54.6/dlc) License CODEX [Collector's Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295154.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Spellforce 3 (2017) [Ru/Multi] (1.38) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290705.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288875.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288867.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Armies of Exigo / Armies of Exigo: Хроники великой войны (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277279.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Hinterland: A New Kingdom / Hinterland: Das Neue Koenigreich (2010) [Multi] (1.0
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277277.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275939.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Sid Meier's Civilization III (2001) [Ru] (1.22) Repack
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275931.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275416.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275073.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274176.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Master of Orion Dilogy (1993/1996) [Ru] (1.3/1.31) Repack Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273906.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Sid Meier's Civilization V / Sid Meier's Civilization 5 (2014) [Ru/En] (1.0.3.27
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270925.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270051.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Polaris Sector (2016) [Ru/En/Sp] (1.06d) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266530.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/En] (1.0.0.3
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264155.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Pandora: First Contact (2013) [Multi] (1.6.7/dlc) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264046.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Age of Empires II: HD Edition (2013) [Ru/En] (5.6/dlc) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263642.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack xa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263320.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Earth 2150: Lost Souls / Земля 2150: Воды Стикса (2002) [Ru/Multi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262681.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война миров
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262674.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война миров
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81CB997404208C3A17D53BE3D1F021162A6B8D9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192842   (262666) от 18.12.2017
-
-Earth 2150: Moon Project / Земля 2150: Дети Селены (2000) [Ru/Multi] (2.1.0.1) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262666.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 2150 год - тёмные времена в истории человечества… В то время как Лунная Корпорация, Евразийская Династия и Объединенные Развитые Государства яростно сражаются на поверхности родной планеты, на луне выполняется секретный исследовательский проект. Об этом проекте неизвестно ничего кроме кодового названия - «Солнечный свет». Для выяснения причин, по которым (   Читать дальше...   )Тип издания: LicenseРазработчик: TopWare KrakowЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0779862D112A93B833FA704D3E968E719049E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193336   (262161) от 20.12.2017
-
-Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лишь несколько тысяч людей успели покинуть Землю до того, как ее уничтожили в 2150 году. Следующие годы беженцы провели, терраформируя Красную планету, развивая технологии и создавая новые цивилизации. Каким-то образом каждая из фракций – Евразийская Династия, Объединенные Цивилизованные Штаты и Лунная Корпорация – сумели сделать все это самостоятельно и независимо (   Читать дальше...   )Тип издания: LicenseРазработчик: Reality Pump StudiosЖанр: Стратегия, В реальном времени, ФантастикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF510175DE3C65F8A54B0505AC734FD5CEFF493F
 ```
 
 https://mybot314.ru/tekegram_catalog/

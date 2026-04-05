@@ -6,7 +6,7 @@ NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765038.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Инстинкт выживания: Китай. Яростная река /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764301.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Инстинкт выживания: Пустыни / Primal survivor: Deser
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764300.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Грандиозные переезды - Перенос древнего Е
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761953.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Просто магия / General Magic (2018) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761878.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Взгляд изнутри. Крупнейший круизный лайн�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760785.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Огромная акула-молот / Mega Hammerhead (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760336.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Дикие острова гигантов / Savage Island Giants (2016) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760328.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Прайд / Pride (2014) HDTV [H.264/1080i-LQ] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758615.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Крокодил против акулы / The Croc That Ate Jaws (2021) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758243.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Потоп / The Flood (2018) WEB-DL [H.264/1080p] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758239.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG: Кремниевая долина / Valley of the Boom (2019) SATRip (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758189.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG: Увлекательная зоология: лучшее / Ultimate Animals
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757855.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NGW: Львы на деревьях / Tree Climbing Lions (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756834.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756833.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NGW: Смертельно опасные монстры Австралии / Aus
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756710.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756705.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756504.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NG. Индия с высоты птичьего полёта / India From Above 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756488.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756481.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755731.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755079.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ NG: Последствия: Перенаселенная планета / Afterm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755024.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ NGW: Дикая природа. Южная Африка / Wild South Africa (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754952.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NG. Реальность или фантастика? Привидения / Is 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752110.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750937.jpg" />
 </div>
 
 

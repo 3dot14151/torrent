@@ -1,138 +1,3 @@
-###  Публикация: 1601863   (204602) от 02.01.2023
-
-М.Л. Ловать | Физиология человека и животных [2 части] (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конспект лекций по курсу "Физиология человека и животных" МГУ им. М.В. Ломоносова.Жанр: ФизиологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653C2B5B4C8460872AFF201C7C6924CE9F827709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655229   (204590) от 25.08.2023
-
-Я.П. Понарин | Элементарная геометрия [3 книги] (2004 - 2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данные пособия призваны возродить интерес к элементарным методам решения геометрических задач. В них приведены яркие геометрические сведения, не вошедшие в современный школьный учебник. Например, формула Эйлера, окружность девяти точек, теорема Птолемея, геометрические неравенства и многое другое.
-Третий том является заключительной в серии книг по элементарной геометрии. (   Читать дальше...   )Жанр: МатематикаИздательство: МЦНМОФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28F918808A4A4C4FB5E21153FF04C67E216D057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655302   (204537) от 25.08.2023
-
-А.В. Погорелов | Лекции по основаниям геометрии (1959) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит изложении курса 'Основания геометрии' в объеме, предусмотренном программой министерства высшего образования для университетов. Она отличается оригинальностью изложения многих разделов курса, в особенности раздела 'Геометрия Лобачевского' и раздела 'Проективная геометрия'.Жанр: МатематикаИздательство: Издательство Харьковского университетаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D275855E48310BCB0A5CD6121AE2874062318D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602029   (204511) от 04.01.2023
-
-М.И. Блудов | Беседы по физике (в 3-х частях) 1-е изд. (1964,1965,1970) [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для внеклассного чтения учащихся средней школы. Автор в интересной и доступной для учащихся форме излагает многие вопросы школьного курса физики
-
-Часть 1 посвящена механике, молекулярной физике и термодинамике
-Часть 2 - электричеству, электромагнитным явлениям, оптике и строению атома(   Читать дальше...   )Жанр: научно-популярнаяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4D8C6D79E9650AED5732345757BC04558F3656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655332   (204496) от 25.08.2023
-
-С. Стернберг | Лекции по дифференциальной геометрии (1970) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного американского математика содержит современное изложение основ теории дифференцируемых многообразий, вариационного исчисления, дифференциальной геометрии, а также теории групп Ли.
-Для чтения её достаточно знаний начального университетского курса. Книга заинтересует математиков самых различных специальностей.Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046D107522E4281381647DC8581444C76E5CE6FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655477   (204344) от 26.08.2023
 
 А.Н. Берлин | Абонентские сети доступа и технологии высокоскоростных сетей (2016) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204344.jpg" />
 </div>
 
 
@@ -168,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204204.jpg" />
 </div>
 
 
@@ -195,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204188.jpg" />
 </div>
 
 
@@ -222,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204163.jpg" />
 </div>
 
 
@@ -250,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204115.jpg" />
 </div>
 
 
@@ -276,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203999.jpg" />
 </div>
 
 
@@ -303,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203952.jpg" />
 </div>
 
 
@@ -329,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203869.jpg" />
 </div>
 
 
@@ -355,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203741.jpg" />
 </div>
 
 
@@ -381,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203602.jpg" />
 </div>
 
 
@@ -407,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203579.jpg" />
 </div>
 
 
@@ -433,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203510.jpg" />
 </div>
 
 
@@ -461,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203507.jpg" />
 </div>
 
 
@@ -487,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203479.jpg" />
 </div>
 
 
@@ -514,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203458.jpg" />
 </div>
 
 
@@ -540,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203446.jpg" />
 </div>
 
 
@@ -566,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203344.jpg" />
 </div>
 
 
@@ -592,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203282.jpg" />
 </div>
 
 
@@ -618,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203223.jpg" />
 </div>
 
 
@@ -644,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203142.jpg" />
 </div>
 
 
@@ -671,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203046.jpg" />
 </div>
 
 
@@ -682,6 +547,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E916772550A4AC74F45DEB1E3F40725C89F37693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390844   (203024) от 06.02.2023
+
+Н.Г. Тактаров | Справочник по высшей математике для студентов вузов (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий справочник содержит все главные разделы высшей математики - от математического анализа и алгебры до математической логики и дифференциальной геометрии, включая аналитическую геометрию, теорию функций комплексной переменной, теорию дифференциальных уравнений, вариационное исчисление, векторный и тензорный анализ, теорию вероятностей, математическую статистику, (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBE9A39A2C82D8660EA63966F059554C6F40C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610394   (202997) от 07.02.2023
+
+Диего Маттарелли и др.| Экскурсия в прошлое: динозавры. Самая реалистичная энциклопедия (2023) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга-экскурсия в прошлое, которая проведет вас по мезозойской эре и познакомит с 60 видами вымерших ящеров.
+Эта объемная энциклопедия ответит на все вопросы о динозаврах. А реалистичные иллюстрации отправят читателей прямиком в фантастический древний мир, где гуляют огромные ящеры.
+Для каждого животного – отдельный разворот с кратким описанием, инфографиками и любопытными (   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4060544CAFBCE1F7A4F2C7AD29BB9E8E68C9F066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611725   (202781) от 12.02.2023
+
+Л.Т. Левина | Современный телефон для любимых чайников (2022) [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое издание «Современного телефона для любимых чайников» — это настоящий путеводитель в мире смартфонов. Благодаря многочисленным иллюстрациям подружиться с гаджетом сможет даже самый «ржавый чайник»!
+
+Эта книга просто бесценна для тех, у кого рядом нет никого, кто помог бы разобраться с вновь приобретенным устройством. А я расскажу про то, какой сухой остаток (   Читать дальше...   )Жанр: Информационные технологии, руководства по пользованию программамиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99B6F8162681687EB2C08F740C7C3D893F02558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656810   (202770) от 01.09.2023
+
+С.Н. Бурмистров | Задачи по физической кинетике (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит 40 задач различной степени сложности, в основе которых лежат материалы семинарских занятий по курсу Физическая кинетика со студентами Факультета Общей и Прикладной Физики МФТИ. Всем задачам даны подробные решения, а в комментариях отражена их связь с вопросами и методами современной физической кинетики. Краткое введение содержит необходимые сведения (   Читать дальше...   )Жанр: ФизикаИздательство: ИД ИнтеллектФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523D2AFDBD66048F2A09EA34B76477B9094FE316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611577   (202752) от 12.02.2023
+
+Дэнни Грегори | Все, что нужно сейчас, – рисовать. Просто начните с ручкой, бумагой и этой книгой (2023) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие из нас с детства убеждены, что для рисования нужен особый талант, а если его нет, то и пробовать не стоит. Автор творческих бестселлеров и основатель Sketchbook Skool Дэнни Грегори вас в этом переубедит. Он расскажет, с чего начать, и покажет, что ничего волшебного или сложного в рисовании нет – достаточно желания и самых простых материалов и инструментов. (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE75595EF39CB1AFB36673B066B80A4D4BB0786
 ```
 
 https://mybot314.ru/tekegram_catalog/

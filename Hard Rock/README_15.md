@@ -1,3 +1,32 @@
+###  Публикация: 914148   (600359) от 01.07.2015
+
+John West - Earth Maker (2002) [MP3|320 кб/с]<Melodic Progressive, Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Of The Beast (6:38)
+02. When Worlds Collide (5:03)
+03. Sleep Of The Dead (3:31)
+04. Stand Sentinel (7:45)(   Читать дальше...   )Жанр: Melodic Progressive, Heavy Metal, Hard RockПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85284BFD4A84D7FE0C7449E8D053264FCF4A7FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914191   (598563) от 02.07.2015
 
 Truk - Truk Tracks (1971) Remastered 2008 [MP3|320 кб/с]<Hard Rock>
@@ -6,7 +35,7 @@ Truk - Truk Tracks (1971) Remastered 2008 [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598563.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Heart - Greatest Hits (1985-1995) (2000) [MP3|320 кб/с]<Hard Rock / Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597074.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Smoke No. 7 - Old Bones (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595044.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ The Wildhearts - Renaissance Men (2019) [MP3|320 kbps] <Hard Rock, Punk'n'Roll>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594594.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Guns N’ Roses - Appetite For Destruction (1987) Remastered, 2018, Geffen Recor
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592901.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Junkyard Drive - 3 Albums (2017-2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590231.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Autograph - That's The Stuff (1985) Remastered /2009, Rock Candy/ [MP3|320 кб/
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589937.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Talisman - Vaults (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589594.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Whitesnake - Flesh & Blood (2019) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587013.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Javelin - Rotten Ways (2019) [MP3|320 kbps] <Hard Rock, Classic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583276.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Last Ones Left - Songs to Drink and Do... (2019) [MP3|320 kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583275.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Rampage - Eagle´s Flight (2019) [MP3|320 kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583192.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Rain - Live, Christmas Night (1971) Reissue, 2005, Radioactive, [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581499.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Black Sabbath & Ozzy Osbourne - The Very Best Of (2015) [MP3|320 кб/с]<Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580811.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Jackyl - Rowyco (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580521.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ Burn The Rez - 3 Альбома (2014-2016) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580463.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Barbe-Q-Barbies - Borrowed Time (2019) [MP3|320 kbps] <Hard Rock, Female Vocal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580244.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ The V - Now Or Never (2015) [MP3|320 кб/с]<Hard Rock, Melodic Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580120.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ Parish Hall - Skid Row Runner (1970) Reissue, 1996, Audio Archives [MP3|320 Kbps
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579544.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ George Lynch - Shadow Train (2015) [MP3|320 кб/с]<Hard Rock, Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578930.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ Def Leppard - Diamond Star Halos (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578792.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ AC/DC - Live At River Plate (2011) Аудио дорожка к DVD [MP3|320 kbp
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578583.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ Mr.Big - 17 альбомов (1989-2011) [MP3|320 kbps]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578537.jpg" />
 </div>
 
 
@@ -690,7 +719,7 @@ Michael Schenker Group - Universal (2022) [MP3|320 kbps] <Hard Rock, Heavy Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577625.jpg" />
 </div>
 
 
@@ -719,7 +748,7 @@ Restless Spirits - Restless Spirits (2019) [MP3|320 Kbps] <Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574321.jpg" />
 </div>
 
 
@@ -733,35 +762,6 @@ Restless Spirits - Restless Spirits (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92175ABDF773B9255304B4E45201F5B315A67170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152028   (568559) от 21.07.2017
-
-Europe - The Final Countdown 30th Anniversary Show (2017) Live At The Roundhouse [MP3|320 Kbps] <Hard Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568559.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hole in My Pocket (Live)
-2. The Second Day (Live)
-3. Praise You (Live)
-4. Nothin to Ya (Live)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E871CB60DDCDA29CC6B4A6CBA35D807477445A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 717564   (1011614) от 11.06.2021
-
-Кай Умански | Ведьма Пачкуля и Эликсир желаний (2011) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время генеральной уборки в своей хибаре № 1 в районе Мусорной свалки ведьма Пачкуля нашла давно потерянную книгу заклинаний бабули Малодур. А в ней отыскался рецепт Эликсира желаний — чудесного зелья, один глоток которого исполнит любую вашу просьбу или мечту. Ах, какая удача! Ведь совсем скоро в Непутевом лесу состоится ежегодный конкурс на лучшее колдовство. (   Читать дальше...   )Жанр: СказкаПеревод: Дарья СоколоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFAD3061534C970C491C6B6F56131E4316F7722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 698239   (1011500) от 12.06.2021
 
 Мэри Нортон | Помело и волшебная шишечка от кровати (2006) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011500.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011130.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010798.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010607.jpg" />
 </div>
 
 
@@ -141,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010473.jpg" />
 </div>
 
 
@@ -170,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010358.jpg" />
 </div>
 
 
@@ -196,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010338.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010292.jpg" />
 </div>
 
 
@@ -249,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010033.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010026.jpg" />
 </div>
 
 
@@ -301,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009968.jpg" />
 </div>
 
 
@@ -327,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009790.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009521.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009468.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009188.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009091.jpg" />
 </div>
 
 
@@ -460,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009002.jpg" />
 </div>
 
 
@@ -486,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008908.jpg" />
 </div>
 
 
@@ -512,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008675.jpg" />
 </div>
 
 
@@ -538,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008418.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008337.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007980.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007911.jpg" />
 </div>
 
 
@@ -644,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007859.jpg" />
 </div>
 
 
@@ -670,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007571.jpg" />
 </div>
 
 
@@ -684,6 +658,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C4828195E95A04490E4156742D00CF0DA575884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 671513   (1007236) от 10.07.2021
+
+Серж Брюссоло | Пегги Сью и призраки (11 книг) (2007-2012) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пегги Сью и призраки - детская серия о том, как 14-летняя девочка ставит на место всяких там призраков.
+Время от времени призраков кусает Синий Пёс. Синий пёс — лучший друг Пегги Сью. Он очень её любит и всегда защищает. Он получил свой синий окрас, когда загорал на синем солнце, созданном призраками. Любимая фраза: «Атомная сосиска».
+В книгах много других положительных (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2D479977D0AF374B248A0ED600889417A0C01C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Billy Idol - Idolize Yourself ( the very best of ) (2008) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431696.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Gain. Bloom (2012) [H.264/1080р] HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422344.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410134.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Monster Rock Ballads (2CD) (2007) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409879.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Rock and Roll - Hall of Fame + Museum, Live (1 диск) (2009) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408015.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Rock and Roll - Hall of Fame + Museum, Live (2 диск) (2009) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408007.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Relax Romantic Spa Vol.2 - Sensual Delights (2008) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407927.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Cream - Live at the Royal Albert Hall (2005) [1080i] Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407710.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407199.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407111.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Enigma - Sitting on the Moon (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405450.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ British Rock Viewseum - Vol.1 British Blues & Hard Rock Explosion (2010) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405269.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Don Davis & Van Dobrynin - Discovery (Cosmic Journeys) (2012) HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403835.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ The Brian May Band - Live At The Brixton Academy (1994) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400997.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Counting Clouds (clips) (2007)
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400003.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Guitar Heroes At The BBC (Vol.2)(2CD) (2009) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399055.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Guitar Heroes At The BBC (Vol.1)(2CD) (2008) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399019.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dead by April - Videography / Dead by April - Videography (2012) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395007.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Vida Loca ft. Soatz - Me Gusta (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392185.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Cheek ft. Jonne Aaron - Anna Ma Meen (2012) [H.264] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392036.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Scooter - Army Of Hardcore (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391830.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Wuauquikuna: Ловец Снов / Wuauquikuna: Dream Catcher. The best indian s
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391463.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380987.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378812.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Oceana - Put Your Gun Down[Official Video HD] (2012) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376230.jpg" />
 </div>
 
 
@@ -763,7 +763,7 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) BDRip [1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369870.jpg" />
 </div>
 
 

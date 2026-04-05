@@ -6,7 +6,7 @@ McCoy Tyner - Time For Tyner (1968) 2006, Toshiba-EMI [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142616.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ray Charles - Mister Genius (1948 - 1960) 3CD, 2011, Le Chant du Monde [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142481.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Charlie Barnet - 1940 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142205.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ James Moody - The Complete Argo Collection (1957 - 1964) 4CD, 2020, Enlightenmen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142189.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142113.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142080.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Michael Feinstein - The Sinatra Project, Vol. II: The Good Life (2011) Concord J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142065.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Papik - Cocktail Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141726.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Claude Hopkins - 1937 - 1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141550.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Frank Wright - Unity (1974) 2006, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141544.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kenny Dorham - 'Round About Midnight At The Cafe Bohemia (1956) 2CD, 1995, Blue 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141499.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Eero Koivistoinen - Altered Things (1991) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141361.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141354.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141344.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Gilberto Gil - Refavela (1977) 1994, Warner Music[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141251.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ J.R. Monterose - The Message (1959) 1997, Venus Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140965.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ George Shearing - Walkin' (1995) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140895.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ The George Shearing Quintet - As Requested (1972) 2005, Koch [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140881.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Ella Fitzgerald - Les Jazz RTL: La voix du swing (2012) 2CD [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140786.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Phil Woods, Tommy Flanagan, Red Mitchell - Three For All (1981) 1989, Enja Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140624.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Jazz Brunch Easy Chilly Atmosphere Instrumentals (2023) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140439.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Michael Feinstein - An Intimate Holiday with Michael Feinstein (2001) 2СD, Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140143.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Barbara Cook & Michael Feinstein - Cheek To Cheek (2011) DuckHole Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140134.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Michael Feinstein & Maynard Ferguson - Big City Rhythms (1999) Concord Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140126.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Instrumental Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140111.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Fusion Jazz Funk (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140036.jpg" />
 </div>
 
 

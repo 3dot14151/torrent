@@ -1,3 +1,31 @@
+###  Публикация: 1495563   (878611) от 13.09.2021
+
+j-design.pro, Сергей Привалов | 3D моделирование в ZBrush для ювелиров (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владение навыками лепки в ZBrush просто необходимо ювелирам и 3D модельерам, чтобы создавать действительно сложные и интересные украшения.
+    Если вы уже создаете ювелирные модели в Rhinoceros, но не всё получается сделать с помощью NURBS поверхностей,
+    вам нужно добавлять на свои модели пластичные формы: фигурки людей, животных, растений, мелкую фактуру, бионические (   Читать дальше...   )Производство: j-design.proЖанр: Создание видеоЯзык озвучки: РусскийПродолжительность: 27:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4484DF85FB7333EE570980F6D87B5AA8FC056DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495665   (878600) от 13.09.2021
 
 ItGid, Александр Лущенко | HTML для JavaScript разработчиков (2021) WEB-DL
@@ -6,7 +34,7 @@ ItGid, Александр Лущенко | HTML для JavaScript разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878600.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877536.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Viscorbel, Austris | Classic Furniture VOL2 ORNAMENT (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877251.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877247.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ Udemy, Steve Lord | Sculpting Animals (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877230.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ Digital Tutors, Alex Jerjomin | Importing and Rendering a Stylized Environment i
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877120.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ Digital Tutors, Alex Jerjomin | Texturing a Stylized Game Environment in Photosh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877119.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ Digital Tutors, Justin Marshall | Cloth Workflows in ZBrush (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877112.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ Digital Tutors, Alex Jerjomin | Sculpting a Stylized Game Environment in ZBrush 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876981.jpg" />
 </div>
 
 
@@ -253,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876961.jpg" />
 </div>
 
 
@@ -281,7 +309,7 @@ ITVDN | Видео курсы по YII2 [Essential, Advanced] (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876364.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ Profileschool | Коммерческая фотография. Рецепт ус
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875188.jpg" />
 </div>
 
 
@@ -334,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874675.jpg" />
 </div>
 
 
@@ -362,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874674.jpg" />
 </div>
 
 
@@ -388,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874387.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873678.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ Cameron Fous | Торговля рынка акций вместе с Кемер
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873459.jpg" />
 </div>
 
 
@@ -472,7 +500,7 @@ Florida Trader | Торговля Penny Stock (2014) PCRec [H.264/720p]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873437.jpg" />
 </div>
 
 
@@ -500,7 +528,7 @@ Cornacchia | Создание украшения от Cornacchia (2015) PCRec [H
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873109.jpg" />
 </div>
 
 
@@ -526,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873107.jpg" />
 </div>
 
 
@@ -555,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873095.jpg" />
 </div>
 
 
@@ -584,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873093.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ Rohan Dalvi | Making dessert in Houdini Part 2 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872851.jpg" />
 </div>
 
 
@@ -638,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872797.jpg" />
 </div>
 
 
@@ -667,7 +695,7 @@ Uartsy, Marshall Vandruff | Animal Anatomy (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872597.jpg" />
 </div>
 
 
@@ -679,32 +707,6 @@ Uartsy, Marshall Vandruff | Animal Anatomy (2016) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E96A1D433D85913748F963DC8441C030385D6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105773   (872519) от 19.02.2017
-
-Алор Брокер | Спецназ ЛЧИ (2015) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы докажем Вам, что зарабатывать на фондовой бирже может каждый, нужны только желание и прибыльная торговая стратегия! Вы получите сразу несколько торговых стратегий, которые реально работают. Их эффективность была продемонстрирована в ходе конкурса «Лучший частный инвестор 2013». Каждый из четырех преподавателей расскажет о своей стратегии. Пройдя обучение, Вы сможете (   Читать дальше...   )Жанр: Трейдинг,фьючерсыПродолжительность: 29:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110C462D042A0A173868EA4F829E46C4D6961D95
 ```
 
 https://mybot314.ru/tekegram_catalog/

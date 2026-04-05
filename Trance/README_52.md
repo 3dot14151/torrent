@@ -1,3 +1,61 @@
+###  Публикация: 1674017   (161402) от 05.11.2023
+
+Alexander Popov - Reflected (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Popov & Brandon Mignacca - In The Rain (Extended Mix) [5:06]
+02. Alexander Popov & Whiteout - Right Back (Extended Mix) [5:28]
+03. Alexander Popov & Kitone - Fantasy (Extended Mix) [4:15]
+04. Alexander Popov & Heatbeat - VIVALDI (Extended Mix) [4:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CF20A3E1A0C6C1864DD70D84F486F208D01802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674160   (160845) от 06.11.2023
+
+VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoneface & Terminal - Lose My Need (Robert Nickson Chillout Intro Mix) (Mixed) [1:49]
+02. Solarstone & Aquarius - Arpeggiator Shards (Mixed) [6:13]
+03. Pablo Gargano - The Breeze (Mixed) [4:47]
+04. Macker - Arrakis (Mixed) [7:08](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 07:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6956C98BDB4DF98739D23D760C863D43EC4FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675572   (160246) от 09.11.2023
 
 VA - Roman Messer - For All Time (2023) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Roman Messer - For All Time (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160246.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Levitated - Emotional Trance Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159927.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ VA - Top 10 October 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159896.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ VA - Black Hole Recordings - Best of 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159836.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - The Best Of Trancemission 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159635.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ VA - Trance 2023 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159621.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Always Alive Recordings - Best Of 2015 (Mixed By Daniel Kandi) (2015) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158491.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - A State Of Trance Year Mix 2015 (Mixed By Armin Van Buuren) (2015) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158380.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - Dark Amsterdam Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157876.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ VA - Black Hole Trance Music (12-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157127.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ VA - Anjunabeats Volume 12 (Mixed by Above and Beyond) (2015) [MP3|320 кб/с] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156353.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Infrasonic: The Best Of 2018 (Mixed by Solis & Sean Truby) (2018) [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155962.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Fg Top 10: December 2017 [MP3|320 Kbps] <Trance, Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152464.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Atmosfera Records Best of Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152372.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Future Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152054.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Recoverworld Radio 004 (Mixed by Rich Smith) (2015) [MP3|320 кб/с] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151725.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Trance Autumn 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151314.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - 10 Years Of Suanda Music - Mixed by Christopher Corrigan (2023) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151277.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Interplay Highlights 2022 (2022) [MP3|320 Kbps] <Trance, House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150923.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Rising Sun Wonders (2025) [MP3|320 Kbps] <Progressive House, Melodic House 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150675.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Black Hole Trance Music 11-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150536.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Vocal Trance 2022 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148535.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20: December (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147601.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Uplifting Only: Fan Favorites 2017-2018 (Mixed by Ori Uplift) (2018) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147577.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Uplifting Only: Fan Favorites 2017-2018 (Mixed by Ori Uplift) (2018) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC0AEE7B7190549A8D7CE299927AC4291F699208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272033   (147465) от 25.12.2018
-
-VA - Black Hole Best Of (2018) [MP3|320 Kbps] <Trance,House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Richard Durand & Christina Novelli - The Air I Breathe (Original Mix)
-02.Markus Schulz & Emma Hewitt - Safe from Harm (Original Mix)
-03.Cosmic Gate - Yeah (Original Mix)
-04.Paul Oakenfold ft. Little Nikki - Only Us (Original Mix)(   Читать дальше...   )Жанр: Trance,HouseПродолжительность: 03:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68398FD067DAC75BE6E16750A964ED7625282E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272036   (147419) от 25.12.2018
-
-VA - A State Of Trance Top 20: January (Selected by Armin Van Buuren) (Extended Versions) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Lifting You Higher (ASOT 900 Anthem) (Extended Mix)
-02. Above & Beyond x Spencer Brown feat. RBBTS - Long Way From Home (Extended Mix)
-03. Gareth Emery & Emma Hewitt - Take Everything (Extended Mix)
-04. Cosmic Gate & Emma Hewitt - Be Your Sound (Ilan Bluestone Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5680D94C4CB7BA05D58E80DD7FD5BD44DBAD033D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1840746   (1047459) от 07.12.2025
+
+Stepik, Дмитрий Фокеев | Курс по WordPress с нуля до результата. Создание сайтов без кода (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс по WordPress познакомит вас со всеми инструментами для создания современного сайта с любым дизайном и полным функционалом без подписок и дополнительных трат, которые есть у других CMS и конструкторов сайтов.Производство: StepikЖанр: видеокурс, обучающий курс, создание сайтов, WordPressЯзык озвучки: русскийПродолжительность: 13:43:40Реклама: наложение на видео (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60676D8D35EFE1FCAEEA3A75D102D00BCA8C4F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840077   (1047006) от 02.12.2025
+
+OTUS, Владимир Елфимов | LLM Driven Development. Разработка и эксплуатация AI: полный курс для профессионалов (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс охватывает полный цикл разработки и внедрения больших языковых моделей — от основ архитектуры AI и подготовки данных до тонкостей MLOps, мониторинга и оптимизации. Программа основана на реальных кейсах и инструментах, которые уже сейчас востребованы в индустрии.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 53:54:20Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE0F8C8E130B791959EC733BCD3D740F898D6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839732   (1046800) от 30.11.2025
+
+Rush Academy, Евгений Милованцев, Михаил Охотников, Мария Скрипова и др.| Профессия AI SEO-специалист (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046800.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсе вы:
+получите профессию “SEO-специалист” уровня middle с зарплатой от 70 000 руб. на старте и 120 000 руб. в среднем;
+научитесь продвигать сайты любой тематики в ТОП Яндекс и Google;
+автоматизируете SEO-рутину и ускорите работу с помощью нейросетей;(   Читать дальше...   )Производство: Rush AcademyЖанр: Обучающий курс, нейросети, SEOЯзык озвучки: русскийПродолжительность: 67:12:44Реклама: наложение на видео (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0A2806024CF5DEF3F62E8F98C4D4CCB05A0A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839775   (1046777) от 30.11.2025
+
+Stepik, Василий Еремин | 1С программирование для начинающих (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046777.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном курсе понятным и простым языком вы получите необходимую информацию для начинающего программиста 1С.Производство: StepikЖанр: видеокурс, обучающий курс, программирование, 1СЯзык озвучки: русскийПродолжительность: 13:13:27Реклама: наложение на видео и в презентации (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009362F9D4B7B14CA5EFBFA4D675828764F4AA5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839789   (1046775) от 30.11.2025
 
 Дмитрий Зверев | Сервис Krea. Генерация нейросетевых картинок, фото и видео (2025) PCRec [AD] [RU]
@@ -6,7 +113,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046775.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ OTUS, Сергей Потамошнев, Артем Павлов |  Rust Develop
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046559.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046558.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ N.E.C.O, Sergey Dragunov | Курс по созданию приложения "
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046381.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ Devtodev, Александр Болотников | Разработка HTML5 �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046308.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ Amigoscode, Nelson Djalo | Java Master Class (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046247.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045343.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ Udemy, Дмитрий Фокеев | Верстка и создание веб �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045338.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ Slurm (Слёрм), Леонид Крутовский | Python-разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045247.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ Udemy, Bogdan Stashchuk | Git - Курс по Git и GitHub (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044777.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ CodeBreakers, Анна Радзиевская и др. | Создавайте в
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044280.jpg" />
 </div>
 
 
@@ -304,7 +411,7 @@ Slurm (Слёрм), Виктор Попов, Ирина Блажина | Без�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044108.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ Thinknetica Pro, Кирилл Храпков | Продвинутый Git (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043985.jpg" />
 </div>
 
 
@@ -359,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043881.jpg" />
 </div>
 
 
@@ -387,7 +494,7 @@ Udemy, Rob Baker | Pro Unreal Engine Game Coding (2022) PCRec [EN, RU / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043875.jpg" />
 </div>
 
 
@@ -414,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043869.jpg" />
 </div>
 
 
@@ -442,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043778.jpg" />
 </div>
 
 
@@ -471,7 +578,7 @@ Udemy, Dzianis Matveyenka | Shell and Bash Scripting Beginner's Guide (2022) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043679.jpg" />
 </div>
 
 
@@ -500,7 +607,7 @@ Udemy, Dzianis Matveyenka | Maven (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043576.jpg" />
 </div>
 
 
@@ -526,7 +633,7 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043207.jpg" />
 </div>
 
 
@@ -546,33 +653,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436720   (1043012) от 01.01.2021
-
-Udemy, Alex Horea | Продвинутое программирование на TypeScript с помощью NodeJs и Webpack / Advanced Typescript programming with NodeJs and Webpack (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на мой курс, на котором вы на практике изучите Typescript и NodeJs. Мы не будем тратить много времени на презентации или чтение документации, вы можете сделать это сами, без необходимости курса. Вместо этого мы сосредоточимся на написании реального приложения с полным стеком.
-TypeScript - один из самых любимых языков на данный момент. Как вы можете (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAAF9BE2A3547A40FBB15843AACCC9E1C43152A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607679   (1042833) от 05.02.2023
 
 Нетология, Николай Хащанов, Екатерина Волочаева | Продвинутый SQL (2023) WEB-DL [RU]
@@ -581,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042833.jpg" />
 </div>
 
 
@@ -601,34 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436801   (1042727) от 02.01.2021
-
-Frontendmasters, Lukas Ruebbelke | Angular в продакшене / Production Angular (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1042727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как стать более эффективным разработчиком Angular, применяя методы, которые высокопроизводительные команды Angular используют каждый день. Мы начнем с демонстрации того, как мы можем организовать наши приложения для масштабирования с помощью Angular CLI и Nx.
-
-Затем мы увидим, как мы можем значительно ускорить наш рабочий процесс, используя схемы для формирования (   Читать дальше...   )Производство: FrontendmastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF48DBFA8CB5C4F0CBE3B3BCF8075BD784A5159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436788   (1042724) от 02.01.2021
 
 Udemy, Packt Publishing | Паттерны Проектирования в JavaScript: 20 Паттернов / JavaScript Design Patterns: 20 Patterns for Expert Code (2020) PCRec [En / En Sub]
@@ -637,7 +689,7 @@ Udemy, Packt Publishing | Паттерны Проектирования в JavaS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042724.jpg" />
 </div>
 
 
@@ -648,59 +700,6 @@ Udemy, Packt Publishing | Паттерны Проектирования в JavaS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5284E86A29DF540E6FA34CDCDC43CEE5518E9A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436799   (1042712) от 02.01.2021
-
-Frontendmasters, Nina Zakharenko | Практическое руководство по Python /  A Practical Guide to Python (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практическое руководство по Python использует ваш опыт программирования, чтобы быстро научиться писать эффективный Python. В этом однодневном воркшопе мы рассмотрим все, что вам нужно знать, чтобы писать и читать программы на Python. Этот практический семинар даст вам более глубокое понимание того, как работает Python, вместо простого запоминания синтаксиса.
-Погрузитесь (   Читать дальше...   )Производство: FrontendmastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DD6DE463CF78CF9AB497CC28E337E4B2CCD095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436797   (1042703) от 02.01.2021
-
-Frontendmasters, Lukas Ruebbelke | Архитектурные паттерны (с TypeScript) /  Enterprise Architecture Patterns (feat. TypeScript) (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1042703.jpg" />
-</div>
-
-
-###  Подробнее
-
-При создании крупномасштабных приложений возникает соблазн думать, что нам нужны масштабные методы для выполнения работы. На самом деле противоядием от сложности программного обеспечения является прагматическое применение первых принципов для достижения соответствующего уровня простоты. Мы продемонстрируем эти принципы, проработав серию строго контролируемых примеров (   Читать дальше...   )Производство: FrontendmastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF0667B33131C7BE657C5DE53F89D5BEEE2AA84
 ```
 
 https://mybot314.ru/tekegram_catalog/

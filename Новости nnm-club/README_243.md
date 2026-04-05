@@ -1,3 +1,55 @@
+###  Публикация: 1589706   (188649) от 14.11.2022
+
+Китай отказывается от одноразовых ракет для лунной миссии, в приоритете – создание Long March 9 с возможностью повторного использования
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188649.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине прошлого десятилетия Китай серьезно задумался о высадке своих астронавтов на Луну, а инженеры страны принялись проектировать большой ускоритель для реализации миссии.В 2016 году государственный разработчик ракет China Academy of Launch Vehicle Technology приступил к проектированию сверхтяжелой ракеты Long March 9. Подобно Space Launch System, которую NASA (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659893   (188625) от 14.09.2023
+
+Два, три, демон, приди! / Talk to Me (2022) WEBRip  [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа подростков решает развлечься и во время вечеринки устраивает спиритический сеанс. Миа пытается установить контакт со сверхъестественной силой, преследующей её после смерти матери, но общение с духом оборачивается для всех участников сеанса настоящим кошмаром.Производство: Австралия, Великобритания / Bankside FilmsЖанр: ужасыРежиссер: Дэнни Филиппу, Майкл ФилиппуАктеры: Софи Уайлд, Александра Дженсен, Джо Бёрд, Миранда Отто, Отис Дханджи, Зои Теракс, Крис Алозио, Александрия Стеффенсон, Маркус Джонсон, Санни ДжонсонПеревод: Профессиональный многоголосый (GoLTFilm)Язык озвучки: РусскийСубтитры: ОтсутствуетПродолжительность: 01:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2036B962CE4662C67C171377F31CC99F1F70A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589820   (188604) от 14.11.2022
 
 Реклама в космосе — наше мрачное будущее
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188604.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Shooter Course (2021) P
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188572.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188570.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188385.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 09.2023
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188289.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ CorelDRAW Graphics Suite 2023 24.5.0.731 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188286.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188116.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188113.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187852.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187638.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187296.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187215.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187038.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187011.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Steelrising (2022) [Ru/Multi] (7624/dlc) License GOG [Bastille Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186943.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186942.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Windows 11 x64 Rus by OneSmiLe [22621.2283]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186920.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186914.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186906.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Terraria (2011) [Ru/Multi] (1.4.4.9v4) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186622.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186602.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186339.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.3448]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186141.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Sunkenland (2023) [Ru/Multi] (0.1.40) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186131.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ Sunkenland — это захватывающая игра в жанре выжи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFA9ED5A0389CFDDBA714CD180694FF225F49D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354706   (186124) от 24.09.2023
-
-Рухнувшие небеса / Сошедшие с небес / Falling Skies (2011) HDTVRip (сезон 1, серии 1-10 из 10) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186124.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате инопланетного вторжения на Землю один из сыновей профессора истории Тома Мэйсона попадает в плен, а его жена гибнет. Она оказалась одной из миллионов людей, погибших от рук пришельцев. Люди, которым посчастливилось остаться в живых, вступают в партизанские отряды, объединяются для оказания сопротивления захватчикам. Землю атакуют два вида инопланетян (   Читать дальше...   )Производство: США, Канада, DreamWorks Television, TNT Originals, Invasion ProductionsЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Грег Биман, Олатунде Осунсанми, Серджо Мимика-ГеззанАктеры: Ноа Уайли, Мун Бладгуд, Дрю Рой, Коннор Джессап, Максим Найт, Сейшелл Гэбриел, Уилл Пэттон, Сара Картер, Колин Каннингэм, Питер СинкодаПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40AA73EABD1866BFE48195D5E8B5999635F0AF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647491   (186123) от 24.09.2023
-
-Хемлок Гроув / Hemlock Grove (2013) WEBRip (сезон 1, серии 1-13 из 13) NewStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186123.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городке Хемлок Гроув, выросшем вокруг сталелитейного завода Годфри, находят изувеченное тело девушки. Некоторые подозревают беглеца из «Белой Башни», биотехнологической лаборатории, принадлежащей бывшим владельцам завода. Другие полагают, что убийца — Питер, семнадцатилетний цыган, который рассказывает одноклассникам, что он оборотень. Третий подозреваемый — Роман (   Читать дальше...   )Производство: США, Gaumont International Television, Mad Hatter Entertainment, ShineBox SMCЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Дэвид Стрейтон, Деран Сарафян, Рассел Ли ФайнАктеры: Фамке Янссен, Пенелопа Митчелл, Фрея Тингли, Лили Тейлор, Билл Скарсгард, Лэндон Либуарон, Дюгрэй Скотт, Николь Буавен, Аарон Дуглас, Лори Фортье и др.Перевод: Профессиональный многоголосый - NewStudioЯзык озвучки: Русский, английскийПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079B4733ABCBBDFDEAC096A23EFC366B2BD21C72
 ```
 
 https://mybot314.ru/tekegram_catalog/

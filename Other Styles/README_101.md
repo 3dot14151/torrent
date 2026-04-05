@@ -1,3 +1,68 @@
+###  Публикация: 537163   (510491) от 22.08.2012
+
+Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxophone , World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Namaste (05:26)
+02. Brhama-Vishnu-Shiva (05:29)
+03. Dance Of The Elephant God (04:54)
+04. Lotus Lovers (04:57)
+05. Transcendental Consciousness (05:13)
+06. Valley Of Flowers (05:58)
+07. Silsila (06:38)
+08. Om Shanti (04:10)
+09. Transcendental Consciousness (Walter A. Remix) (03:44)
+10. Namaste (Soul Seekerz Club Mix) (03:38)Жанр: Smooth Jazz , Saxophone , WorldПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377252   (509520) от 18.08.2011
+
+Franz Lambert - Pur (2001) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франц Ламберт (родился 11 марта 1948 года в Heppenheim, Германия) - немецкий композитор и органист. Он является страстным исполнителем на Хаммонд-органе, однако в последние годы предпочитает электронные органы Wersi . За свою карьеру он выпустил более 100 альбомов.
+Его первой заметным публичным выступлением было выступление в 1969 году в немецком телешоу Zum Blauen (   Читать дальше...   )01. El Torero 				(03:12)
+02. Baby Elephant Walk 		(03:27)
+03. Watermelon Man 			(03:05)
+04. Hello Josephine 			(02:45)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4289948189A70C6290BECF60E5C438487A2602D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932411   (509362) от 29.08.2015
 
 VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]<Relaxation, New Age, Piano>
@@ -6,7 +71,7 @@ VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509362.jpg" />
 </div>
 
 
@@ -35,7 +100,7 @@ Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpa
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509027.jpg" />
 </div>
 
 
@@ -64,7 +129,7 @@ Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509024.jpg" />
 </div>
 
 
@@ -93,7 +158,7 @@ Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509018.jpg" />
 </div>
 
 
@@ -122,7 +187,7 @@ Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508825.jpg" />
 </div>
 
 
@@ -151,7 +216,7 @@ Luis Berra - Before Chaos (2019) [MP3|320 Kbps] <Instrumental, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508795.jpg" />
 </div>
 
 
@@ -180,7 +245,7 @@ Alkualat - Space Journey (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508736.jpg" />
 </div>
 
 
@@ -209,7 +274,7 @@ Phildel - Qi (2015) [MP3|320 кб/с]<Piano, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508242.jpg" />
 </div>
 
 
@@ -238,7 +303,7 @@ Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, C
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508231.jpg" />
 </div>
 
 
@@ -267,7 +332,7 @@ Francisco Canaro - Tango Collection (2010) [MP3|192 кб/с]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508047.jpg" />
 </div>
 
 
@@ -296,7 +361,7 @@ Paco De Lucia - 38 albums (1965 - 2005) [MP3|160-320 kbps]<Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507943.jpg" />
 </div>
 
 
@@ -331,7 +396,7 @@ Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507889.jpg" />
 </div>
 
 
@@ -360,7 +425,7 @@ VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507582.jpg" />
 </div>
 
 
@@ -395,7 +460,7 @@ VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506824.jpg" />
 </div>
 
 
@@ -424,7 +489,7 @@ Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506102.jpg" />
 </div>
 
 
@@ -459,7 +524,7 @@ Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505363.jpg" />
 </div>
 
 
@@ -488,7 +553,7 @@ London Philharmonic Orchestra - The Genius of Film Music 1960s-80s (2015) Live [
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505273.jpg" />
 </div>
 
 
@@ -517,7 +582,7 @@ VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505271.jpg" />
 </div>
 
 
@@ -546,7 +611,7 @@ VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504885.jpg" />
 </div>
 
 
@@ -581,7 +646,7 @@ Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504867.jpg" />
 </div>
 
 
@@ -608,7 +673,7 @@ Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504856.jpg" />
 </div>
 
 
@@ -643,7 +708,7 @@ Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504839.jpg" />
 </div>
 
 
@@ -678,7 +743,7 @@ Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504743.jpg" />
 </div>
 
 
@@ -708,7 +773,7 @@ Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504740.jpg" />
 </div>
 
 
@@ -728,70 +793,6 @@ Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Eth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C8FF75E4A7C0F4876FAAD28F839CC36F6DCE057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933868   (504510) от 03.09.2015
-
-Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Within
-02. Dusty Rider
-03. Crying
-04. Fun Fare(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA5421C642447A572A56612B12FF4EAFDCF7BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538422   (504499) от 28.08.2012
-
-Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.From Dawn
-2.Spirit of Silence
-3.Walking In The Air
-4.Dark Ages
-5.Signs of Love
-6.Paradise Lost
-7.Interlude
-8.Metamorphosis (Part 1)
-9.Inner World
-10.Metamorphosis (Part 2)(   Читать дальше...   )Жанр: Electronic, Enigmatic, New AgeПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

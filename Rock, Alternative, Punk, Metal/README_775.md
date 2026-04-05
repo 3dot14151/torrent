@@ -1,3 +1,32 @@
+###  Публикация: 964624   (280783) от 12.12.2015
+
+Eloy - Destination (1992) Japanese Edition /1993, Victor [FLAC|image+.cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Of The Wild 7:01
+02. Racing Shadows 7:11
+03. Destination 7:41
+04. Prisoner In Mind 4:27(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC8A7090D896895A098A043AF3FFE9D0EEC97ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964705   (280781) от 12.12.2015
 
 Tiger B. Smith - Tiger Rock (1972) Reissue, 1997, Second Battle [MP3|320 кб/с]<Hard Rock, Blues Rock>
@@ -6,7 +35,7 @@ Tiger B. Smith - Tiger Rock (1972) Reissue, 1997, Second Battle [MP3|320 кб/с
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280781.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Freak Kitchen - Cooking with Pagans (2014) [OGG|503-524 кб/с]<Heavy Metal, Ha
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280780.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Frankie Miller - Frankie Miller's Double Take (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280763.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Hoolios - God Invents Rock N Roll (2017) CD [MP3|320 Kbps] <Blues, Zydeco, R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280751.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lindemann - Knebel (2019) Single [FLAC|Lossless|WEB-DL|tracks]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280660.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ VA - Greatest Guitar Solos (2007) [MP3|320 kbps] <Rock / Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280654.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280638.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Elvis Presley - Elvis: Ultimate Christmas (2015) 2CD [MP3|320 кб/с]<Rock&Roll
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280629.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Wildness - Wildness (2017) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280450.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279998.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Sting - Greatest Hits [2CD] (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279877.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279783.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Foreigner - Double Vision (1978) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279616.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Revolution Highway - Revolution Highway (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279514.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Ten - Illuminati (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279472.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Mick Jagger - 6 Albums, 1 Single (8 CD) (1985 - 2017) Rock, Classic Rock, Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279397.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Fusion Bomb - Concrete Jungle (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279257.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Arwen - Memories of a dream (2002) [MP3|320 kbps]<Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279214.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ Turnover - Altogether (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279170.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ Herman Frank - Rare Metal (Unreleased Collection) (2019) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279166.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ Villagers - The Art of Pretending to Swim (2018) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279165.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ Mob Rules - Beast Over Europe (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279164.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ The Presidents of the United States of America - II (1996) Japan, 1998 [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279161.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Angel - Risen (2019) [FLAC|Lossless|image + .cue] <Classic rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279157.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ Eclipse - Paradigm (2019) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279154.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ Eclipse - Paradigm (2019) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:338802829262C2A71AA82757710F4A25D9A27D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666534   (279116) от 24.11.2018
-
-Разные люди - 21 альбом (1987-2008) [MP3|160-320kbps]<рок, хард-рок, рок-н-ролл, блюз>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дороги (5:53)
-02 - Водка (3:17)
-03 - Год (4:04)
-04 - Тепло (6:37)(   Читать дальше...   )Жанр: рок, хард-рок, рок-н-ролл, блюзПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1D3B04E91C70B5FB322BD87DB0B013907796C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

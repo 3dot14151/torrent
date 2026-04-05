@@ -1,3 +1,55 @@
+###  Публикация: 1611408   (207613) от 11.02.2023
+
+Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-12 из 12) HDrezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джин, Алисия Чан, Young HellerПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685479A7C44DC0EC1187C4D0F45FEBECA687FA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337284   (207610) от 20.09.2022
+
+Бэтмен / Batman: The Animated Series (1992-1995) BDRip [H.264/720p-LQ] (Сезон 1-2, Серии 01-85 из 85)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ставший уже классическим мультсериал про Бэтмена был заново переиздан на Blu-Ray. Визуальный стиль мультсериала основан на художественных работах продюсера Брюса Тимма. Изначально концепция мультсериала была навеяна комиксом Фрэнка Миллера «Бэтмен: Возвращение Тёмного Рыцаря», фильмами Тима Бёртона «Бэтмен» и «Бэтмен возвращается», а также известными мультфильмами (   Читать дальше...   )Производство: США, Warner Bros. AnimationЖанр: Рисованная анимация, ПриключенияРежиссер: Бойд Кирклэнд, Кент Баттерворт, Кевин Алтьери, Дэн Риба, Брюс Тимм, Фрэнк Паур, Дик Себаст, Эрик РадомскиПерсонажи: Брюс Уэйн / Бэтмен, Ричард (Дик) Грейсон / Робин, Альфред Пенниуорт, Джеймс Гордон, Джокер, Харли КвиннПеревод: Дублированный (СТС)Субтитры: Русский, АнглийскийПродолжительность: 85 серий по ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56411A849B5CD85A33B295C870DEBA0FAC181AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611412   (207609) от 11.02.2023
 
 Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DL [H.264/720p] (сезон 2, серии 1-12 из 12) HDrezka Studio
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207609.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207581.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207455.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207436.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207433.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Secrets o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207410.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207223.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206082.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206075.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205837.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205795.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204967.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204960.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204731.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204677.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204469.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204164.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203523.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203473.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203384.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202357.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201751.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201321.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201311.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F4CF7E543B7AD3BF862FB462C23823D88680908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607203   (201048) от 19.03.2023
-
-Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DL [H.264/720p] (сезон 2, серии 1-12 из 12) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: для взрослых, мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джинАктеры: Лора Бэйли, Толизин Джаффе, Эшли Джонсон, Лайам О’Брайэн, Мариша Рэй, Сэм Ригел, Трэвис Уиллингэм, Мэттью Мерсер, Стефани Беатриз, Хари ПэйтонПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3EAC0299BDD67AAFD4ED702616FB0347C1369A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607204   (201033) от 19.03.2023
-
-Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DLRip (сезон 2, серии 1-12 из 12) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: для взрослых, мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джинАктеры: Лора Бэйли, Толизин Джаффе, Эшли Джонсон, Лайам О’Брайэн, Мариша Рэй, Сэм Ригел, Трэвис Уиллингэм, Мэттью Мерсер, Стефани Беатриз, Хари ПэйтонПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F347369B7BC4A106A0F9579FB0A3D9CAA201A32A
 ```
 
 https://mybot314.ru/tekegram_catalog/

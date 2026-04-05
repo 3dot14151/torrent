@@ -1,3 +1,146 @@
+###  Публикация: 1031358   (652160) от 04.07.2016
+
+Warfect - Scavengers (2016) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purveyors Of Cadavers
+02. Reptile
+03. Anatomy Of Evil
+04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1BA0067804D2A3C688BDA43F67A62F67473594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031551   (652157) от 04.07.2016
+
+Martyr - You Are Next (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Darkest Of All Realms
+02. Infinity
+03. Inch By Inch
+04. Souls Breathe(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A3DB5062681D681D7F9BBEACD7A5AA6E3AD665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031620   (652151) от 04.07.2016
+
+Divine Intervention - Traveler (2016) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prequel
+02. Misdirect
+03. Architect
+04. Alpha(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF965E4D670C1FCA1345C2D8278B7D75E72FBCBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141351   (652138) от 09.06.2017
+
+Alice Cooper - Paranoiac Personality (2017) Single [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652138.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paranoiac Personality
+2. I'm EighteenЖанр: Hard RockПродолжительность: 00:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779E3A750DF92FB1CDF5388E0062BD0CAEB44DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141196   (652129) от 09.06.2017
+
+Anathema - The Optimist (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 32.63N 117.14W (1:17)
+02. Leaving It Behind (4:28)
+03. Endless Ways (5:50)
+04. The Optimist (5:37)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4382F88C9221FE774FA3BCD06B135C5BDDF4F8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515925   (652123) от 29.06.2012
 
 Colaars - Wood Arsenal (EP) (2012) [MP3|320 кб/с]<Math Dance Indie Rock>
@@ -6,7 +149,7 @@ Colaars - Wood Arsenal (EP) (2012) [MP3|320 кб/с]<Math Dance Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652123.jpg" />
 </div>
 
 
@@ -34,7 +177,7 @@ Debauchery - Rockers & War (Limited Edition) (2009) [MP3|320 кб/с]<Melodic De
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652121.jpg" />
 </div>
 
 
@@ -69,7 +212,7 @@ Arsenica - Arsenica (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652104.jpg" />
 </div>
 
 
@@ -98,7 +241,7 @@ Reverb Gun - Rock Is Our Bussines (2015) [MP3|320 кб/с]<Heavy / Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652101.jpg" />
 </div>
 
 
@@ -127,7 +270,7 @@ Triaxis - Zero Hour (2015) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652098.jpg" />
 </div>
 
 
@@ -156,7 +299,7 @@ Herba D'Hameli - Interiors (2015) [MP3|320 кб/с]<Progressive Rock, Symphonic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652096.jpg" />
 </div>
 
 
@@ -185,7 +328,7 @@ Obsequiae - Aria of Vernal Tombs (2015) [MP3|320 кб/с]<Folk Metal, Melodic De
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652095.jpg" />
 </div>
 
 
@@ -214,7 +357,7 @@ Venomous Maximus - Firewalker (2015) [MP3|320 кб/с]<Psychedelic, Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652094.jpg" />
 </div>
 
 
@@ -243,7 +386,7 @@ AOR - L.A Darkness (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652000.jpg" />
 </div>
 
 
@@ -272,7 +415,7 @@ James Taylor - October Road (2002) 2 CD, Limited Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651995.jpg" />
 </div>
 
 
@@ -301,7 +444,7 @@ Low-Pass - Trimurti (2012) [MP3|192 кб/с]<Instrumental Math Rock / Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651947.jpg" />
 </div>
 
 
@@ -334,7 +477,7 @@ Shadowicon - Empire In Ruins (2011) [MP3|320 кб/с]<Symphonic Power Metal, Fem
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651946.jpg" />
 </div>
 
 
@@ -369,7 +512,7 @@ Metal Inc. - Traces of the Past (2015) [MP3|320 кб/с]<Heavy Metal / Thrash>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651932.jpg" />
 </div>
 
 
@@ -398,7 +541,7 @@ The Sideshow Tragedy - Capital (2015) [MP3|320 кб/с]<Blues Rock, Garage>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651931.jpg" />
 </div>
 
 
@@ -427,7 +570,7 @@ Sigh - Graveward (2015) [FLAC|tracks+.cue]<Avant-garde, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651930.jpg" />
 </div>
 
 
@@ -456,7 +599,7 @@ No More Pain - Debate And Rhyme (2012) [MP3|320 кб/с]<Heavy/Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651929.jpg" />
 </div>
 
 
@@ -485,7 +628,7 @@ Gnod - Infinity Machines (2015) [MP3|320 кб/с]<Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651927.jpg" />
 </div>
 
 
@@ -514,7 +657,7 @@ Crow's Claw - Fair Judgement (2015) [MP3|320 кб/с]<Instrumental Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651926.jpg" />
 </div>
 
 
@@ -543,7 +686,7 @@ Forgotten Suns - When Worlds Collide (2015) [MP3|320 кб/с]<Progressive Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651925.jpg" />
 </div>
 
 
@@ -572,7 +715,7 @@ Hell-Us. - Monster Piece (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651922.jpg" />
 </div>
 
 
@@ -601,7 +744,7 @@ Sunchild - Synesthesia (2015) [MP3|320 кб/с]<Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651920.jpg" />
 </div>
 
 
@@ -615,149 +758,6 @@ Sunchild - Synesthesia (2015) [MP3|320 кб/с]<Crossover Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:345C72FA8B925A7090035999A7F7F9325BEED587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905252   (651919) от 05.06.2015
-
-Lux Purus - Chaos Creates (2015) [MP3|320 кб/с]<Symphonic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. At The Edge Of The World (05:32)
-2. Raised By The Wolves (05:57)
-3. The Seven Seals (04:21)
-4. Prophecy Of The Seventh Generation (08:04)(   Читать дальше...   )Жанр: Symphonic Power Metal, Female VocalПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E0EE6033F8E6C5E155151ED12F8DC420442EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905167   (651918) от 05.06.2015
-
-Arion - Arion (2015) [MP3|320 кб/с]<Epic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Road
-02. Gods of Old
-03. Caught in a Dream
-04. Tentalon(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF22A03CF4DEF78D85D09DBF40C070216E276CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905163   (651916) от 05.06.2015
-
-S.A.Y - Orion (2015) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tragedy
-02. Heroes
-03. Crash And Burn
-04. Never Say Goodbye(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09924069307269701CC05340B982BAEC0611103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905286   (651915) от 05.06.2015
-
-Mojo Waves - All The Right Parts Fit The Wrong Way (2015) [MP3|320 кб/с]<Hard Rock, Garage, Heavy Psychedelic, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7x7
-02. Heartquake
-03. Lioneyes
-04. Counting Backwards(   Читать дальше...   )Жанр: Hard Rock, Garage, Heavy Psychedelic, StonerПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CFBDD4F01A8DE2D3A4D578A9CE2251DC20F82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031416   (651806) от 04.07.2016
-
-Симптом - С новым утром! (2016) Single [MP3|320 Kbps] <Gothic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651806.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. С Новым Утром!
-2. Твои Слёзы (Goth'n'Roll version)Жанр: Gothic Hard RockПродолжительность: 00:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9B320D262148C1A61B51D1DD4229C8917BE84F
 ```
 
 https://mybot314.ru/tekegram_catalog/

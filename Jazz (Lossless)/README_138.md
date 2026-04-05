@@ -6,7 +6,7 @@ Duke Ellington - The Essential (1928-1958) 2CD, 2009, Not Now Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594706.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bill Perkins Quintet featuring Victor Feldman - Quietly There (1966) 1991, Origi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594052.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bill Perkins, Art Pepper, Richie Kamuca - Just Friends (1956) Toshiba-EMI Japan 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594050.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Edouard Bineau & OSEFH Quintet - Secret World (2020) Absilone [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594014.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Saxappeal Vol. 2 Lounge Saxophone Smooth Jazz Del Mar (2022) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593905.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cat Anderson - Cat Anderson Plays W.C. Handy (The Definitive Black & Blue Sessio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593888.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Laurent Cugny & Orchestre National De Jazz - Yesternow (1994) Verve[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593658.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Charlie Byrd Trio - I've Got The World On A String (1994) Remaster, 2015, Solid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593582.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Sheryl Bailey 3 - Live @ The Fat Cat (2006) [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593262.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bill Potts - Porgy & Bess + Bye Bye Birdie (1963) 2006, Lone Hill Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593261.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mose Allison - Greatest Hits (1957 - 1959) 1988, Original Jazz Classics [APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593026.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Billy Strayhorn - Piano Passion (1945 - 1961) 2005, Storyville [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592812.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Adrien Varachaud Unity 5tet - Strange Horns (2010) Self-Released [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592810.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stan Kenton And His Orchestras - The Kenton Era (1941 - 1953) 2CD, 2007, Sounds 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592529.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jesse Davis - Second Nature (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592526.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Diego Imbert Quartet - Next Move (2011) [FLAC|tracks+.cue]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592396.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ George Lewis - The Complete Blue Note Recordings Of George Lewis (1943 - 1955) 3
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592165.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sergio Pamies - Borrachito (2011) [FLAC|tracks+.cue]<Jazz, Latin Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591996.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Marilyn Crispell & Gerry Hemingway - Affinities (2011) [FLAC|tracks+.cue]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591970.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Eliane Elias - Made In Brazil (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz, Latin Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591952.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Jazztet - At Birdhouse (1961) /2002, Verve/[FLAC|tracks+.cue]<Jazz, Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591445.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ron Miles - Rainbow Sign (2020) Blue Note Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591239.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591238.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591237.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Albert Ammons & Meade Lux Lewis - The Complete Blue Note Recordings (1935 - 1944
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590784.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jacques Schwarz-Bart Quartet - The Art of Dreaming (2012) [FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590496.jpg" />
 </div>
 
 

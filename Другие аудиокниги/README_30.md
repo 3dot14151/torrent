@@ -1,3 +1,56 @@
+###  Публикация: 1189282   (270351) от 06.12.2017
+
+Евгений Сафронов | Кенотафия. Коммунальный юродивый (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов и повестей Евгения Сафронова в исполнении Олега Булдакова.Жанр: Mагический реализм, драма, приключенияПродолжительность: 02:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5197D07566B85D9DFAFEF61913190C569E2D622A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189935   (268661) от 08.12.2017
+
+Сванте Пэабо | Неандерталец. В поисках исчезнувших геномов (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Сванте Пэабо ( Паабо, шв. Svante Pääbo ), – практически синоним исследования древних ДНК как научной дисциплины. Его «Неандерталец» – увлекательный рассказ о сенсационном прорыве в методах восстановления картины эволюции нашего вида.
+Шведский генетик Сванте Пэабо давно лелеял мечту, казавшуюся несбыточной: выделить ДНК из египетских мумий и, таким образом, (   Читать дальше...   )Жанр: Антропология, Генетика, Научно-популярная литератураПродолжительность: 11:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CF687EB15ED6424FCD343B18BE4F7DD688633F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267103   (267727) от 05.12.2018
 
 Виталий Полупуднев | Митридат (2018) [MP3]
@@ -6,7 +59,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267727.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267070.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266435.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265334.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264463.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264447.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264431.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264421.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264280.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263594.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262921.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262595.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259982.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257980.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255876.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250995.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249545.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249467.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244631.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243786.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242698.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242555.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241132.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240906.jpg" />
 </div>
 
 
@@ -622,63 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CCC1BB87F13B2A17A11927A8D1A27F39AE075B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630833   (236781) от 02.05.2023
-
-Альберто Васкес-Фигероа | Туарег (Книга 2) (2023) [MP3, Александр Гаврилин]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236781.jpg" />
-</div>
-
-
-###  Подробнее
-
-День, когда Гасель Сайях погиб, вошел в историю и стал началом новой легенды.
-Легенды, о силе духа и борьбе за выживание.
-Семья Охотника подвержена гонениям и нигде они не могут обрести покой. Казалось, после многих лет скитаний, забрезжила надежда, но пустыня слишком безжалостна и голодна до человеческих жизней.
-С приходом французов под угрозой оказывается единственный (   Читать дальше...   )Жанр: Зарубежные приключения, Книги о приключенияхПродолжительность: 08:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF8DC0537BE2C136F894F83085B969FA17B11BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643078   (234222) от 30.06.2023
-
-Кёндок Ли | Корейские мифы. От небесного владыки и принцессы Пари до королей-драконов и духов-хранителей (2022) [MP3, Джэм Небеский]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор культурной антропологии Кёндок Ли рассказывает об основных сюжетах и героях корейской мифологии, а также объясняет символизм и потайной смысл старинных легенд и преданий.
-
-Корея долгое время находилась под влиянием других государств, и её мифология оказалась основательно забытой. Теперь, когда культура этой страны завоёвывает мир, пришло время побольше (   Читать дальше...   )Жанр: зарубежная образовательная литература, мифы / легенды / эпосПеревод: Лидия АзаринаИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 07:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C6869B3DD88544F09958A558D746BB89E63094
 ```
 
 https://mybot314.ru/tekegram_catalog/

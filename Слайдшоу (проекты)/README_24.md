@@ -1,3 +1,29 @@
+###  Публикация: 1115285   (827701) от 17.03.2017
+
+Проекты - VideoHive - Hands Holding Pictures [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Holding Pictures - шаблон для создания слайд-шоу, отображающего людей с картинками в руках. Имеется 17 композиций на выбор, вы можете создать идеальную видеопрезентацию. Это один из лучших инструментов для создания эмоционального слайд-шоу с участием человека в видеофутажах. Идеально подходит для семейных видеороликов, для передачи сообщения и т.д.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391D6055D07C45ACF243BEB6F577146FD9B73BD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115253   (827620) от 17.03.2017
 
 Проекты - VideoHive - Dynamic Urban Opener - 17171212 [AEP]
@@ -6,7 +32,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827620.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827619.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827575.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827550.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826902.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826637.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825936.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825893.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825889.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825833.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825733.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824988.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824919.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824906.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Videohive - Break Thrue - 127389 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824891.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824801.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824792.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824618.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824615.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824496.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824220.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824214.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824201.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823219.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823133.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:690E43FC7D525720129A6A7B4ED8A0E0FD1CCBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007140   (822834) от 14.04.2016
-
-Проекты - VideoHive - Glitch Slideshow 3 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья версия Glitch слайд-шоу. Проект для создания короткого вступительного видео или презентации в виде слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85FA6C8444CC89EF0977EB6345DE8EF14EC3537
 ```
 
 https://mybot314.ru/tekegram_catalog/

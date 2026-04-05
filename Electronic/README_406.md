@@ -1,3 +1,117 @@
+###  Публикация: 1451066   (237326) от 28.02.2021
+
+Shen - Outlines (2006) Native State Records [FLAC|Lossless|tracks+.cue] <Dub, IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Springs (06:34)
+ 02. Causation (04:08)
+ 03. Symbol Range (07:25)
+ 04. Cold Bones (07:54)(   Читать дальше...   )Жанр: Dub, IDM, Downtempo, AmbientПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9675DBF88C2959C23AFB682BA713E5416F7C34C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450979   (237313) от 28.02.2021
+
+Daniel[i] - Terra Amica I (2020) Pyramid Blood Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconnect (19:44)
+ 02. Reconnect (19:22)Жанр: Ambient, Drone, Dub TechnoПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1B80A3D6837E0F328DB97A3D16E2E38E2F8188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360290   (237281) от 15.02.2020
+
+Elite Force - Modern Primitive (2006) [MP3|320 Kbps] <House, Downtempo, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern:Primitive (0:46)
+02. Coming Back For More (6:44)
+03. My Generation (6:43)
+04. You (5:45)(   Читать дальше...   )Жанр: House, Downtempo, Tech HouseПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6812C5D58A90D63A59B892AB7EE4E32B53B6FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640511   (237264) от 18.06.2023
+
+VA - We Love Summer Vol. 2 (2023) [MP3|320 Kbps] <Deep House, Deep Tech, Soulful, Deep Groove>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Autumn (Dj Malte of Real Xs Mexican Club Mix)
+02. Mad Meyer - Diggi Dang
+03. Lounge Groove Avenue - It Ain't Right
+04. Mo'jardo - I Am Fashion(   Читать дальше...   )Жанр: Deep House, Deep Tech, Soulful, Deep GrooveПродолжительность: 02:29:48 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFEE26032F3133A77787A6CD740CC0BC7F8EF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630460   (237242) от 01.05.2023
 
 Outlanders - A Peaceful Place (Return to the Oasis) (2023) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Downtempo, Dance>
@@ -6,7 +120,7 @@ Outlanders - A Peaceful Place (Return to the Oasis) (2023) [FLAC 2.0|44.1/24|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237242.jpg" />
 </div>
 
 
@@ -34,7 +148,7 @@ VA - Deep House Summer Paradise Pt. 1 (2023) [MP3|320 Kbps] <Deep House, Deep Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237236.jpg" />
 </div>
 
 
@@ -63,7 +177,7 @@ Decisive Pink - Ticket to Fame (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Elect
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237163.jpg" />
 </div>
 
 
@@ -92,7 +206,7 @@ VA - Silent Shore Trance: Spring (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237138.jpg" />
 </div>
 
 
@@ -121,7 +235,7 @@ VA - Levitated Trance: Spring (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237123.jpg" />
 </div>
 
 
@@ -150,7 +264,7 @@ AK & Dario Lessing - No More Worries (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237120.jpg" />
 </div>
 
 
@@ -178,7 +292,7 @@ VA - Best Collection Of The Year - OMNE ONE (2023) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237117.jpg" />
 </div>
 
 
@@ -207,7 +321,7 @@ VA - Keep It Trance Vol. 10 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237114.jpg" />
 </div>
 
 
@@ -236,7 +350,7 @@ TWO LANES - Duality (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lo-Fi, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237031.jpg" />
 </div>
 
 
@@ -265,7 +379,7 @@ VA - Senssual Miami (2023) CD, Compilation [MP3|320 Kbps] <House, Funky House, N
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236993.jpg" />
 </div>
 
 
@@ -294,7 +408,7 @@ VA - Tune Zone: Deep House Edition (2023) [MP3|320 Kbps] <Deep House, Deep Groov
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236979.jpg" />
 </div>
 
 
@@ -323,7 +437,7 @@ VA - Quantize Soulful House Collection Vol. 1 - Compiled & Mixed By Renée Melen
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236947.jpg" />
 </div>
 
 
@@ -352,7 +466,7 @@ Degenerated Sequences - Schism (2023) [MP3|320 Kbps] <Dark Electro, EBM, Industr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236850.jpg" />
 </div>
 
 
@@ -381,7 +495,7 @@ Degenerated Sequences - Schism (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236837.jpg" />
 </div>
 
 
@@ -410,7 +524,7 @@ VA - Taj Mah Lounge, Ambient Grooves (2011-2023) Vol. 1 - 7  [MP3|320 Kbps] <Ele
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236775.jpg" />
 </div>
 
 
@@ -439,7 +553,7 @@ Sorry Girls - Bravo! (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, 80s>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236710.jpg" />
 </div>
 
 
@@ -468,7 +582,7 @@ Kobaryo - MIXPEED ACTION (2018) [FLAC|Lossless|WEB-DL|tracks] <Speedcore, Electr
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236705.jpg" />
 </div>
 
 
@@ -497,7 +611,7 @@ Stahlnebel & Black Selket - The Darkest Hour (2021) [FLAC|Lossless|image + .cue]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236689.jpg" />
 </div>
 
 
@@ -526,7 +640,7 @@ VA - Relax and Unwind: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236668.jpg" />
 </div>
 
 
@@ -555,7 +669,7 @@ V.A. - Ambient Chill out Ibiza 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236648.jpg" />
 </div>
 
 
@@ -584,7 +698,7 @@ Driftmachine - Spume & Recollection (2021) Umor Rex [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236632.jpg" />
 </div>
 
 
@@ -613,7 +727,7 @@ Wumpscut (:wumpscut:) - Giftkeks (2023) EP [FLAC|Lossless|image + .cue] <EBM, In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236611.jpg" />
 </div>
 
 
@@ -627,122 +741,6 @@ Wumpscut (:wumpscut:) - Giftkeks (2023) EP [FLAC|Lossless|image + .cue] <EBM, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44AC8C49EEBC06BF7F74020539C6F41C58549297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631326   (236373) от 06.05.2023
-
-VA - Armin van Buuren - A State Of Trance 1119 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Williams – The Imperial March (Darth Vader’s Theme / Alex M.O.R.P.H. Intro Edit) (RSO)
-02. Luke Bond X M6 – Nexus (Original Mix) (Armada)
-03. D72 – Our Darkness (Original Mix) (Armada Captivating)
-04. Armin Van Buuren feat. Stuart Crichton – Dayglow (Bryan Kearney Remix)Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459B8F81783DEC875252D4AB6D8FEE28E277F66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640344   (236339) от 17.06.2023
-
-VA - Armada Subjekt - Ibiza 2023 (2023) [MP3|320 Kbps] <House, Tech House, Afro House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.O.D - So Much In Love (Extended Mix) [4:09]
-02. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) [6:10]
-03. Leftwing : Kody & Hayley May - Bring The Heat (Extended Mix) [6:01]
-04. Matt Guy - Baby (Extended Mix) [5:55](   Читать дальше...   )Жанр: House, Tech House, Afro House, ElectronicПродолжительность: 02:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFA1A7729BE7608D38278770786D2CC812EA628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631610   (236333) от 06.05.2023
-
-VA - Climax Chill Out Session Pt.1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun - Art Of Love (3:44)
-02. Guenter Haas - Black Rose (3:17)
-03. 351 Lake Shore Drive,J'unique,The Replaceables - Eine Sekunde (Smooth Deluxe Ambient Mix) (6:20)
-04. Marco Moli - Black Bird (2:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6724C05C074FD7A1DF41C3AF76592924C9C0D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640459   (236185) от 18.06.2023
-
-The Browning - EoE Remixed (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, DnB, Dubstep, Hardstyle>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of Existence (Cassetter Remix) [00:03:33]
-02. Anticendency (Toronto is Broken Remix) [00:05:34]
-03. Fearless (Jonny McBee Remix) [00:03:10]
-04. Gott ist Tot (Fury Weekend Remix) [00:03:49](   Читать дальше...   )Жанр: Electronic, Synthwave, DnB, Dubstep, HardstyleПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469D21F916A73A86B2CA86D6FEEEE402A02F3E54
 ```
 
 https://mybot314.ru/tekegram_catalog/

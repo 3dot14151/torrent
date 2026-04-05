@@ -1,3 +1,263 @@
+###  Публикация: 1843137   (1049149) от 18.12.2025
+
+Проекты - VideoHive - YouTube End Screen Promo Pack - Modern Outro and Subscribe Templates - 60883143 [AEP]
+
+>>Проекты
+>>Разное (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте привлекательные финальные заставки для своих видео на YouTube с помощью этого современного и динамичного набора шаблонов для финальных заставок YouTube. Разработанный для авторов контента, каналов и брендов, этот шаблон поможет вам расширить аудиторию с помощью профессиональных призывов к подписке, превью следующего видео и ссылок на социальные сети.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E20A76D66D166C7646A35713A72E30F4F8F1EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843142   (1049146) от 18.12.2025
+
+Проекты - VideoHive - Notification Ui Liquid Glass - 60883984 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notification UI Liquid Glass — это ультра-современный и визуально гипнотический набор анимированных уведомлений для After Effects. Проект выводит популярный тренд глассморфизма на новый уровень, добавляя элементам эффект «текучести» и органической деформации, что делает интерфейс живым и осязаемым.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38E0D7703768F44522520887059EF64A51B0F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842918   (1049062) от 17.12.2025
+
+Проекты - VideoHive - Glass Review Ratings - 60897489 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glass Review Ratings — это современная и эстетичная коллекция анимированных элементов для демонстрации отзывов, выполненная в популярном стиле глассморфизма (Glassmorphism). Эффект матового стекла, мягкие размытия и полупрозрачность придают плашкам глубину и премиальный вид, позволяя интегрировать текстовую информацию в видео максимально органично и стильно.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10882A2A8B7F12F61CFF50B513E936F393BF6F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842956   (1049045) от 17.12.2025
+
+Проекты - VideoHive - Clean Social Media Reminder Pack - 60956492 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот профессиональный шаблон включает 5 стильных современных анимационных стилей, разработанных для того, чтобы помочь вам превратить зрителей в подписчиков на  любой платформе социальных сетей . Независимо от того, создаете ли вы контент для YouTube, Instagram, TikTok или LinkedIn, эти полностью настраиваемые напоминания идеально подходят как для горизонтальных видеороликов, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF133C38F9EE59F368E26A639D8DC0EA9A90C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843052   (1048977) от 18.12.2025
+
+Проекты - VideoHive - Punch Hole Transitions - 60963311 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Punch Hole Transitions — это стильный и энергичный набор переходов, имитирующий эффект пробитой кинопленки, прожогов и перфорации. Эти переходы добавляют видеоряду уникальную аналоговую текстуру, создавая эффект винтажного проектора или бунтарского, «гаражного» монтажа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F12606D01E104BFC55735A2A4B8FBC7BCA7F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843064   (1048970) от 18.12.2025
+
+Проекты - VideoHive - Elegant Logo Intro - 60825918 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elegant Logo Intro — это утонченный и стильный шаблон для After Effects, созданный для тех, кто понимает, что первое впечатление — самое важное. Плавные линии, мягкий свет и минималистичная анимация позволяют представить ваш логотип с максимальным достоинством и профессионализмом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA557FAD840B004A16E19503F98EF65B5F03A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842756   (1048899) от 16.12.2025
+
+Проекты - VideoHive - Rhythmic Opener - 60795048 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rhythmic Opener — это взрывной и энергичный шаблон для After Effects, где каждый кадр идеально синхронизирован с музыкальным битом. Динамичная смена изображений, смелая типографика и агрессивный ритм создают мощный визуальный поток, который мгновенно захватывает внимание зрителя и держит его в напряжении до последней секунды.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56432C8998E783F784F4CD8493319D8E7242882E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842775   (1048884) от 16.12.2025
+
+Проекты - VideoHive - Fast Lower Thirds - 60822808 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор шаблонов Fast Lower Thirds для After Effects позволяет создавать профессиональные анимации нижних титров за считанные секунды, избавляя от утомительной ручной работы по дизайну. Этот готовый набор пресетов идеально подходит для вещателей, видеоблогеров, ютуберов и создателей контента, которым нужна качественная, готовая к производству графика без затрат времени (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA75DD584EC7DAC54B161E2F1AF0199E2DDFA459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842859   (1048828) от 17.12.2025
+
+Проекты - VideoHive - Digital Technological Slideshow - 60840856 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя идеальное сочетание творчества и технологий с нашим динамичным и вдохновляющим шаблоном слайд-шоу на технологическую тематику. Этот проект After Effects отличается инновационным дизайном и современными визуальными элементами, которые позволят эффектно представить ваш контент.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAA0FB3CA028E2B27F7E381CE7BA21D4FF29052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842888   (1048807) от 17.12.2025
+
+Проекты - VideoHive - Looping Text Animations Pack - 60841617 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Looping Text Animations Pack — это современная и функциональная коллекция текстовых анимаций с бесшовным зацикливанием (loop). Кинетическая типографика сегодня является одним из главных визуальных трендов, и этот набор позволяет мгновенно добавить вашим видео стиля, динамики и профессионального лоска.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8CAD01EAB1A3BD9B15BE213425022718F1175D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842730   (1048749) от 16.12.2025
 
 Проекты - VideoHive - Interactive Text Animations - 60997743 [AEP]
@@ -6,7 +266,7 @@
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048749.jpg" />
 </div>
 
 
@@ -34,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048673.jpg" />
 </div>
 
 
@@ -60,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048588.jpg" />
 </div>
 
 
@@ -86,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048525.jpg" />
 </div>
 
 
@@ -112,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048504.jpg" />
 </div>
 
 
@@ -138,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048482.jpg" />
 </div>
 
 
@@ -164,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048470.jpg" />
 </div>
 
 
@@ -190,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048416.jpg" />
 </div>
 
 
@@ -216,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048309.jpg" />
 </div>
 
 
@@ -242,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048277.jpg" />
 </div>
 
 
@@ -268,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спортивные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048166.jpg" />
 </div>
 
 
@@ -294,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048129.jpg" />
 </div>
 
 
@@ -320,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048003.jpg" />
 </div>
 
 
@@ -346,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047962.jpg" />
 </div>
 
 
@@ -372,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047959.jpg" />
 </div>
 
 
@@ -398,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047810.jpg" />
 </div>
 
 
@@ -409,268 +669,6 @@ Christmas Tree Logo Reveal — тёплая, кинематографичная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A455EBFD384882F70265ED6D7C6AC5FB1DE20C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841147   (1047809) от 09.12.2025
-
-Проекты - VideoHive - Merry Christmas and Happy New Year Wishes - 60998464 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Merry Christmas And Happy New Year Wishes — это волшебный и душевный шаблон для After Effects, созданный, чтобы объединить самые теплые пожелания двух главных праздников года. Искрящиеся частицы, мягкое свечение и элегантная типографика превращают ваше текстовое послание в настоящую зимнюю сказку, полную надежд и радости.
-
-Этот проект — идеальный способ выразить (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256BD65B85BA19496B4A969EFE608CA62B903A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841182   (1047781) от 09.12.2025
-
-Проекты - VideoHive - Sparktrail Holiday Wreath Intro - 60997352 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sparktrail Holiday Wreath Intro — это первоклассная рождественская заставка, новогодний тизер и праздничный логотип для After Effects, разработанный для создания потрясающей и профессиональной праздничной анимации. По экрану проносится светящийся след , образуя волшебный эффект кометы, окруженный мягкими рождественскими частицами и мерцающими праздничными огнями (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA81CF7A234DC1B76D2B2B866C06108C0795BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840962   (1047682) от 08.12.2025
-
-Проекты - VideoHive - Trippy Transitions - 61010702 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trippy Transitions — это коллекция безумных, психоделических и визуально насыщенных переходов, которые перевернут восприятие вашего видео. Эффекты искажения, кислотные цвета, оптические иллюзии и "жидкая" анимация создают уникальный стиль, который идеально подходит для смелых, экспериментальных и дерзких проектов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB907F9976D23599D69BCE329BCFCE0F99EED39B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840980   (1047674) от 08.12.2025
-
-Проекты - VideoHive - 17 Realistic Snow Transition - 61025314 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047674.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 Realistic Snow Transition — это кинематографическая коллекция плавных, естественных и прекрасно анимированных снежных переходов, которые добавят вашим видео зимнего волшебства и лёгкой праздничной атмосферы. Каждый переход включает реалистичные падающие снежинки, морозные текстуры, летящие снежинки и плавные переходы белой снежинки — идеально подходит для создания (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C95B643BDC9E83B8024BE6C4233F5CCDCB00A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840982   (1047673) от 08.12.2025
-
-Проекты - VideoHive - Label Title - 61024106 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет титров, разработанный в Adobe After Effects, отличается чистым и современным стилем анимированной графики, подходящим для широкого спектра применений, например, для рекламных видеороликов, заставок на YouTube, корпоративных презентаций и творческих проектов. Плавная анимация, продуманная структура макетов и гибкие возможности настройки позволяют легко (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16799F88D1E7DFB1EF74FEC4E9DAD012BE2B124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841001   (1047653) от 08.12.2025
-
-Проекты - VideoHive - Elegant Christmas Greetings // Christmas Wishes - 60957894 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элегантные рождественские поздравления со светящимися эффектами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F6392E116D03C7A8793B46DD58684356003689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841003   (1047651) от 08.12.2025
-
-Проекты - VideoHive - Liquid Gradients Background Pack - 60994780 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор фонов «Liquid Gradients» — это стильная и современная коллекция жидких, ярких и красочных градиентных фонов, призванных подчеркнуть любой творческий проект плавностью движений и художественной глубиной. Каждый фон отличается мягкими плавными формами, плавными цветовыми переходами и плавным переходом градиентов, создавая первоклассный футуристический образ как (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CBFDBA81D419016986E14CC12992622CBAFE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839326   (1046524) от 28.11.2025
-
-Проекты - VideoHive - Car HUD Cluster For After Effects - 60899459 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046524.jpg" />
-</div>
-
-
-###  Подробнее
-
-67 элементов пользовательского интерфейса Car Gauge, а также 5 полностью разработанных и анимированных шаблонов интерфейса приборной панели. Идеально подходит для любого современного автомобиля с цифровой приборной панелью и экранами информационно-развлекательной системы.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA883C91059EFC1CA4BA5448BDB5B3CB9C66022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839328   (1046521) от 28.11.2025
-
-Проекты - VideoHive - Paper Collage Transitions - 60898450 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paper Collage Transitions — это креативный и невероятно стильный набор переходов, выполненный в популярной технике коллажа и скрапбукинга. Эффект рваной бумаги, газетных вырезок и аналоговых текстур добавляет видеоряду художественную глубину и ощущение ручной работы (hand-made).Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CDFEC20DEA39B1D71C93DE158A912E52B78A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839370   (1046494) от 28.11.2025
-
-Проекты - VideoHive - Merry Christmas Greetings Slideshow - 60892125 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздничный шаблон слайд-шоу 4K со снежинками, еловыми ветками и редактируемыми поздравлениями — идеально подходит для празднования Нового года и Рождества.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD33B1AB610985C504C2C295B95D6947DEC20638
 ```
 
 https://mybot314.ru/tekegram_catalog/

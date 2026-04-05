@@ -1,3 +1,32 @@
+###  Публикация: 1568914   (455819) от 11.08.2022
+
+(Echo) - Head First into Shadows (2016) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455819.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Blood and Skin
+2.	A Place We Used to Call Home
+3.	Beneath This Lake
+4.	Gone(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF91FFDA6089D2419EE8022D269FD9C8E14D47D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569108   (455811) от 11.08.2022
 
 Yard Act - The Overload (2022) 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk>
@@ -6,7 +35,7 @@ Yard Act - The Overload (2022) 2CD [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455811.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Coal Chamber - The Complete Roadrunner Collection 1997–2003 (2013) box set [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455809.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Norma Jean - Deathrattle Sing for Me (2022) [MP3|320 Kbps] <Chaotic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455802.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Queensryche - Condition Human (2015) [MP3|320 кб/с]<Heavy/ Power/ Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455754.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455748.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Fast Eddie - Shake A Tail Feather (2022)  [FLAC|24/96|tracks|WEB-DL] <Rock, Rhyt
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455727.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Ardi Beltza - Ardi Beltza (2017) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455724.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Ardi Beltza - Cinco Balas (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455721.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ StarStrike - Legacy Or Destiny (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455692.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455686.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Hollywood Undead - Hotel Kalifornia (2022) [MP3|320 Kbps] <Rap Rock, Alt.Rock, E
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455568.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455375.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Parsifal - Heavy Duty (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455307.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Space Chaser - Dead Sun Rising (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455301.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Liquid Steel - Midnight Chaser (2016) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455298.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Soft Heap (Soft Head) - 4 альбома (1978-2009) Дискография [Wav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455190.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455160.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455128.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Gil Edwards - Celebrate (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455123.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Kaiser Chiefs - Stay Together (2016) [MP3|320 Kbps] <Indie Rock, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455040.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Black Veil Brides - 2 Альбома 3 Сингла (2007-2011) [MP3|96-320 Кб
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455019.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Leprous - Malina (2017) [MP3|320 Kbps] <Progressive Metal, Progressive Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454951.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Closure In Moscow - Pink Lemonade (2014) [FLAC|Lossless|tracks + .cue] <Prog Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454943.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Zoot Woman - Redesigned (2018) Anthology [FLAC|Lossless|tracks + .cue] <Acoustic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454942.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Frank Zappa - Finer Moments (2012) 2CD [FLAC|Lossless|tracks + .cue] <Avantgarde
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454937.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ CD2 - 00:40:53
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D6D06A35C91A2EA5661D388C5ADFA373966A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060135   (454904) от 07.10.2016
-
-After All - Waves Of Annihilation (2016) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rejection Overruled
-02. Target Extinction
-03. The Unusual Sin
-04. Fall In Line(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B5A7BE16AC26ABD63D62FDF858B5B0FDAD26AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

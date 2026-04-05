@@ -1,3 +1,83 @@
+###  Публикация: 1851497   (1055177) от 02.02.2026
+
+Оливье Котте | Создание персонажей фильмов и сериалов. От главного до второстепенных героев (2024) [MP3, Александр Слуцкий]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мы смотрим кино, что запоминается больше всего? Операторская работа? Сюжетные повороты? Изящество диалогов? Нет! В первую очередь в нашу память врезаются персонажи! Ведь если нет героя – нет и истории.
+Создать действительно запоминающегося персонажа непросто. Это целая наука! Он должен нравится зрителю, но иметь недостатки. У него должна быть мотивация, но (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: БОМБОРАПродолжительность: 08:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC0548F006983B8DF3BAC13D4877799442D1A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850486   (1054425) от 28.01.2026
+
+Константин Рудницкий | Всеволод Мейерхольд. Визионер сцены (2025) [MP3, Юрий Гуржий]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мейерхольд предстает не просто режиссером, а архитектором новой театральной реальности. Рудницкий скрупулезно воссоздает его легендарные спектакли, позволяя услышать эхо той сценической революции, что навсегда изменила природу театрального искусства.
+Bс. Мейерхольд – фигура, с которой начинается отсчет нового театрального времени. Сорок лет его творческой деятельности (   Читать дальше...   )Жанр: Искусствоведение, Кинематограф - театр, Сценическое искусство, ТеатроведениеИздательство: АСТПродолжительность: 05:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357FA067C07550921AE22C9AB0909D57CCD8EDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850448   (1054416) от 28.01.2026
+
+Артур Шопенгауэр | Страдания мира. Жизнь качается между пустотой и скукой (2022) [MP3, Владислав Горбылёв]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Шопенгауэр (1788-1860), великий немецкий мыслитель, называл существующий мир «наихудшим из возможных миров». В данной книге представлены наиболее значительные произведения Шопенгауэра, характерные для «философии пессимизма», – горькая правда о человеке и мире людей.Жанр: ФилософияИздательство: Аудиокнига (АСТ)Продолжительность: 07:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60699ECAD3508074B92F9AB1AAAE4A6186E46676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850489   (1054415) от 28.01.2026
 
 Джим Кобб | Правила выживания в критических ситуациях (2022) [MP3, Роман Волков]
@@ -6,7 +86,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054415.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054414.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054019.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054018.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053937.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053594.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053380.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053174.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053162.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053161.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053124.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052654.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052594.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052530.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052475.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052470.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052429.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052405.jpg" />
 </div>
 
 
@@ -485,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052285.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052206.jpg" />
 </div>
 
 
@@ -538,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052170.jpg" />
 </div>
 
 
@@ -564,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051998.jpg" />
 </div>
 
 
@@ -591,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051907.jpg" />
 </div>
 
 
@@ -603,86 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:689579EDD47DBC845ACC22515F8B63B6819DC176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847216   (1051904) от 11.01.2026
-
-Георгий Васильев | Верхум (2025) [MP3, Георгий Васильев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051904.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Верхум» – исследование коллективного разума, пронизывающего все структуры культуры и общества.
-Через метафоры и личные истории автора в книге раскрывается, как рождается «личность» социума, и почему это меняет наше понимание реальности. Эта книга о том, как мыслит социум. Верхум можно расшифровать как «верхний ум», то есть мышление вне мозга. В узком смысле верхум (   Читать дальше...   )Жанр: СоциологияИздательство: CorpusПродолжительность: 15:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4761FE797F396FDE08F49D38526659F2E65B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846829   (1051546) от 09.01.2026
-
-Зигмунд Фрейд | О добывании огня. Сборник (2023) [MP3, Игорь Гмыза]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Толкование сновидений, сексуальные аспекты развития личности и мифы – в данном сборнике Фрейд раскрывает широкий спектр своих гипотез и убеждений! Зигмунд Фрейд (1856–1939) – знаменитый врач-психиатр, создатель теории психоанализа, имя которого известно даже тем, кто никогда не читал его работ. В свое время идея Зигмунда Фрейда о влиянии полового инстинкта на психику (   Читать дальше...   )Жанр: Философская проблематика, Зарубежная психологияИздательство: АСТПродолжительность: 05:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17C8A7BB24E7AD5C2A890463D110042A7DA799F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846844   (1051545) от 09.01.2026
-
-Александр Боханов | Царь Иоанн IV Грозный (2025) [MP3, Павел Ломакин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся историк Александр Боханов представляет адекватный портрет первого царя Московского государства, чья фигура веками вызывает яростные споры.
-Первый Царь Московского государства Иоанн Васильевич (1530–1584), получивший народное прозвание «Грозный», – одна из самых величественных фигур в пантеоне Русской истории. При нём Русь-Московия превратилась в великую (   Читать дальше...   )Жанр: Биографии и мемуары, Биографии политиков, Великие правители, Иван Грозный, Исторические исследования, Исторические личности, История России, Мифы истории, Научпоп: прочее, Политическая историяИздательство: АСТПродолжительность: 14:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0122F16C8363C00720FC81A512CD019CDDF7FCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

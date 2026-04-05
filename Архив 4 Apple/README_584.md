@@ -6,7 +6,7 @@ SSH Config Editor Pro 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179413.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179387.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Yoink 3.5.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179378.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DEVONthink Pro Office/Server 3 v3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179310.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Native Instruments Maschine 2 v2.12.1 STANDALONE, VSTi, AUi [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179271.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sketch 70.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179204.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179199.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ PDF Expert 2.5.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179078.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Multitouch 1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178591.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ PDF Search 10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178571.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Duplicate File Finder Pro 6.11.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178568.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ AYBO 1.16.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178565.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ ShredIt X 6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178561.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ NetShred X 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178557.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ PatterNodes 2 v2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178548.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ ColorWell 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178543.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ MacX DVD Ripper Pro 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178541.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Mic Drop 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178538.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ WebScraper 4.14.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178537.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Default Folder X 5.5.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178534.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ CoLocalizer Pro 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178533.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Cisdem AppCrypt 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178532.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Deckset 2.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178528.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ iBarcoder 3.12.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178524.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ MacX Video Converter Pro 6.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178523.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Dropzone 4 Pro v4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178493.jpg" />
 </div>
 
 

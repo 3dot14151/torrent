@@ -1,3 +1,86 @@
+###  Публикация: 1800051   (16098) от 31.05.2025
+
+Алексей Онегин | Гайд по морепродуктам (2021) [PDF]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морепродукты позволяют радовать себя и близких блюдами ресторанного уровня, но так мало людей умеет готовить их по-настоящему хорошо! Готовьте с удовольствием, чаще практикуйтесь и продолжайте учиться: дорога к совершенству не имеет финала, но на пути вас ждёт множество удивительных открытий.
+Гайд по морепродуктам – это справочник, в котором вы найдёте:
+- инструкции (   Читать дальше...   )Жанр: Кулинария, курсыИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1538625436F8F02B7F7A2CC196586FAF3C697F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800145   (15955) от 01.06.2025
+
+Алексей Пинчук | Цикл "Орден неправильных магов" (2024) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15955.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Срочно требуются маги! Работа вахтой. Обучение за счет работодателя. Боевой опыт приветствуется. Оплата сдельная."
+
+Жители вольных островов терпят одно поражение за другим. У противника абсолютное превосходство во всем, начиная от простых солдат, и заканчивая артиллерией, в лице опытных и хорошо обученных магов. Горят корабли, рушатся стены древних городов, (   Читать дальше...   )Жанр: Попаданцы в магические миры, Боевое фэнтези, Боевая фантастика, Героическое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895ED3373683AB293E3DCDFDBDCBACFFFD867FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800518   (15678) от 04.06.2025
+
+В. Лукьянская | Рецепты хлеба (2025) [PDF, FB2, EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь влюбиться в хлеб заново! Василиса Лукьянская откроет вам секрет приготовления хлеба на закваске – это не просто выпечка, это целое искусство. Откройте для себя неповторимый вкус, нежную текстуру и пользу домашнего хлеба. Книга проведет вас через все этапы – от создания собственной закваски до выпечки десятка рецептов, включая
+- восхитительную итальянскую (   Читать дальше...   )Жанр: кулинария, домашний хлебИздательство: СамиздатФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77F89F359680EEC5260EF960D06CCC97E915C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785541   (15497) от 06.06.2025
 
 Дмитрий Дорничев | Цикл "Линкор Михаил [Оцифрованный]" [10 книг] (2024-2025) [FB2]
@@ -6,7 +89,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15497.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15423.jpg" />
 </div>
 
 
@@ -61,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15391.jpg" />
 </div>
 
 
@@ -90,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15172.jpg" />
 </div>
 
 
@@ -119,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14978.jpg" />
 </div>
 
 
@@ -145,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14685.jpg" />
 </div>
 
 
@@ -173,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14663.jpg" />
 </div>
 
 
@@ -200,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14644.jpg" />
 </div>
 
 
@@ -229,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14442.jpg" />
 </div>
 
 
@@ -257,7 +340,7 @@ Wang Yu (忘语) | Путешествие к бессмертию [9] (2008, 201
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14220.jpg" />
 </div>
 
 
@@ -283,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14114.jpg" />
 </div>
 
 
@@ -309,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14037.jpg" />
 </div>
 
 
@@ -338,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13775.jpg" />
 </div>
 
 
@@ -364,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13588.jpg" />
 </div>
 
 
@@ -393,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13587.jpg" />
 </div>
 
 
@@ -422,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12785.jpg" />
 </div>
 
 
@@ -450,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12550.jpg" />
 </div>
 
 
@@ -479,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12337.jpg" />
 </div>
 
 
@@ -505,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12161.jpg" />
 </div>
 
 
@@ -534,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12102.jpg" />
 </div>
 
 
@@ -561,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12071.jpg" />
 </div>
 
 
@@ -589,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11956.jpg" />
 </div>
 
 
@@ -616,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11637.jpg" />
 </div>
 
 
@@ -627,87 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC1C9DAC14FD7571F7BAE1FB689E3D758FEC9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806663   (11555) от 14.07.2025
-
-Павел Корнев | Цикл "Резонанс" [11 книг] (2021-2024) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тебе семнадцать. Позади гимназия, впереди жизнь от зарплаты до зарплаты и служба то ли счетоводом в бухгалтерской конторе, то ли телеграфистом на почте. А, быть может, ссылка или даже каторга – если решишь добиваться лучшей доли на митингах и в уличных стычках с политическими оппонентами.
-Ну и как тут упустить возможность не только одним махом возвыситься над обывателями-мещанами, (   Читать дальше...   )Жанр: Боевая фантастика, Социальная фантастика, Шпионский детективИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE8B605D0987EE556AD61F575A86B6F2A06B276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695482   (11264) от 17.07.2025
-
-Серж Винтеркей | Цикл "Антидемон" [21 книга] (2023-2025) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тебя отправили в прошлое спасать мир, а ты оказался в теле парализованного мага с выжженным источником? Не беда, привыкай, дальше будет ещё круче! Но ты убьешь любого, кто станет перед тобой и твоей целью, потому что твоя ставка — весь мир!Жанр: Боевая фантастика, Попаданцы, ФэнтезиИздательство: Самиздат, litresФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7337C5EA4D8D523830DDC0B77C4E8E1F2418C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807066   (11228) от 17.07.2025
-
-Марина Рыбкина | Миллион практичных рецептов (2025) [PDF]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11228.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Кулинария – это великое искусство, которое наполняет жизнь приятными воспоминаниями. В то же время это источник тех ресурсов, что дают энергию нашему организму и строительный материал для его клеточек.
-Правильно и с любовью организованное питание – это залог семейного благополучия и здоровья каждого члена семьи.
-На каждой странице этой книги я не только даю правильную (   Читать дальше...   )Жанр: кулинарные рецептыИздательство: СамиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05270CCC28CF34856D0E6CF3761173BBC7B9AADE
 ```
 
 https://mybot314.ru/tekegram_catalog/

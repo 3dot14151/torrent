@@ -1,3 +1,29 @@
+###  Публикация: 1308976   (552926) от 17.06.2019
+
+А. В. Сахно | Кризисные явления в медицине капиталистических стран (1986) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552926.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге на основании анализа зарубежной и отечественной литературы охарактеризованы тенденции, присущие государственному здравоохранению и социальному обеспечению развитых капиталистических стран: сокращение финансирования, увеличение ассигнований на военные нужды; неуклонное повышение стоимости медицинских услуг и цен на лекарственные средства; вскрыты причины ухудшения (   Читать дальше...   )Жанр: История, экономика, политология, социология, медицина, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7143A9FA0012ED02C22F868D5E09EEE90AA45386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237282   (552519) от 23.07.2018
 
 Н. И. Ганин | Г. В. Плеханов - первый выдающийся теоретик и пропагандист марксизма в России (1957) [DJVU]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552519.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552291.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552146.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551985.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551611.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551217.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551210.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549269.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548824.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548791.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547967.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547152.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546246.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545312.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545252.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544713.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544607.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544588.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544587.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544529.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544272.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544182.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543770.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540659.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540339.jpg" />
 </div>
 
 
@@ -659,34 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B3235411948F92B44ABDC9775E5F3B6FB5B2385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311642   (540058) от 30.06.2019
-
-И. М. Разин (сост.) | Комсомольский быт. Сборник (1927) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый отдел сборника — „Вопросы коммунистической этики и морали". В нем имеется ряд статей, излагающих воззрения марксизма на сущность коммунистической морали и этики. Среди них особого внимания заслуживают отрывки из речей В. И. Ленина и воспоминания К. Цеткин об ее личных беседах с Ильичом о вопросам морали.
-
-Второй отдел сборника — „Каким должен быть быт (   Читать дальше...   )Жанр: История, политология, культурология, психология, социологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE5EDDBEB8D5B8268ED54DB1FEE2F09B79FFDC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

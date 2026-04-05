@@ -1,3 +1,32 @@
+###  Публикация: 1410947   (429984) от 24.09.2020
+
+Thought Chamber - Angular Perceptions (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Premonition (2:12)
+02. Sacred Treasure (7:07)
+03. A Legend's Avalon (5:48)
+04. Balance Of One (6:18)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741E9197550C8B17A171FFD951F55989AB6D53B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410941   (429983) от 24.09.2020
 
 Cracked Machine - Gates of Keras (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic/Space Rock>
@@ -6,7 +35,7 @@ Cracked Machine - Gates of Keras (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429983.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Heavens Gate - Planet E (1996) Japan [APE|Lossless|image + .cue] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429981.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Raven - Party Killers (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429980.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Resistance - Checkmate (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429977.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ In Element - Act Of Stamina: Twelve Fragments Of Strength And Calm Before The St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429976.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Krisiun - Mortem Solis (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429854.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Helltern - Alighieri's Visions (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429845.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ NZM - Time's Running Out (2020) [MP3|320 Kbps] <Heavy / Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429842.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ ZEIT - Zeit (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429841.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ SPACE DEER - The Forest (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429839.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Kaozm - Labyrinth (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429838.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Jamie Lenman - King of Clubs (2020) [MP3|320 Kbps] <Experimental Metal, Hardcore
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429834.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Nasty - Menace (2020) [MP3|320 Kbps] <Hardcore Punk, Beatdown Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429828.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Vhaldemar - Straight To Hell (2020) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429762.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ La Maschera Di Cera - S.E.I. (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429744.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Ace Frehley - Origins, Vol 2 (2020) [FLAC|Lossless|image + .cue] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429742.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Fleetwood Mac - Live in Helsinki (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429739.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ David Bowie - I'm Only Dancing (The Soul Tour 74) (2020) 2xCD, Limited Edition [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429616.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429562.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Lord Tracy - Deaf Gods Of Babylon (1989) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429542.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Deftones - Ohms (2020) [MP3|320 Kbps] <Nu-Metal, Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429465.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429416.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Messa - Feast for Water (2018) [FLAC|Lossless|tracks + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429273.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429256.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Creye - Creye (2018) Japanese Edition [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429131.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Creye - Creye (2018) Japanese Edition [MP3|320 Kbps] <Melodic Rock, AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE3A98D3C2A985258FEA7CC7E1FBC955810F6FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250061   (429130) от 26.09.2018
-
-The Strokes - Room On Fire (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Ever Happened? (2:54)
- 02. Reptilia (3:42)
- 03. Automatic Stop (3:27)
- 04. 12:51 (2:33)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Garage RockПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD467E77ED8153C63BE1617204A1928390DCF5EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Best Christmas Songs (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214465.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Christmas Party 2018-2019 (Best of Dance, EDM, House and Electro) (2018) [M
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214427.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - M6 Hits 2019 (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214308.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Zоряна - Play (2012) [FLAC|lossless|tracks + .cue] <Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211738.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - 80s & 90s Party Hits (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211483.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Expose - 2 Albums (1987, 1989) LP [MP3|320 Kbps] <Electronic, Freestyle, Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211256.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Fall in Love this Summer (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210367.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Easy Modern Classics (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209371.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Now That's What I Call Music! Disco (2023) CD, Compilation [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209226.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Back To The Disco Hits Of The 80's (2010) 2CD, Compilation [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209207.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Romantic Collection. Volume 2 (1997) [OGG Vorbis|480 Kbps] <Electronic, Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208335.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Romantic Collection. Volume 1 (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208309.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Romantic Collection. France (1998) [OGG Vorbis|480 Kbps] <Rock, Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207812.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Romantic Collection. Italian (1999) [OGG Vorbis|480 Kbps] <Electronic, Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207796.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Romantic Collection. Disco (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207734.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Romantic Collection. Mystique (2000) [OGG Vorbis|480 Kbps] <New Age, Downte
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207505.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Romantic Collection. Cinema (2005) [OGG Vorbis|480 Kbps] <Jazz, Stage & Scr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207496.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Romantic Collection. Reggae (2000) [OGG Vorbis|480 Kbps] <Reggae, Reggae-Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207417.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Romantic Collection. Classic For Love (2001) [OGG Vorbis|480 Kbps] <Classic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207289.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Romantic Collection. Golden 80s (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206962.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Romantic Collection. Golden Oldies (2000) [OGG Vorbis|480 Kbps] <Pop, Oldie
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206884.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Romantic Collection. Instrumental 2000 (2000) [OGG Vorbis|480 Kbps] <Instru
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206878.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Now That's What I Call Music 87 (2023) CD, Compilation [MP3|320 Kbps] <Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206645.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206636.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Romantic Collection. Volume 5 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206192.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Romantic Collection. Golden 70s (2000) [OGG Vorbis|480 Kbps] <Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206171.jpg" />
 </div>
 
 

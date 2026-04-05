@@ -1,3 +1,32 @@
+###  Публикация: 1272890   (140396) от 29.12.2018
+
+Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock And Roll (3:57)
+02. Celebration Day (3:38)
+03. Black Dog (3:45)
+04. Over The Hills And Far Away (6:16)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD99A40670FB185F5F35388448C365CC9DCA6CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678561   (139726) от 24.11.2023
 
 КИНО - Атаман (1990 / 2012) hand made, remastered [FLAC|16/44.1|tracks|CD-Rip] <Rock>
@@ -6,7 +35,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139726.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139412.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138945.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138880.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138537.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138112.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138074.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137949.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137699.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137613.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Imagination - Imagination (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137173.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136850.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136750.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Sabaton - Studio Albums (12 releases) (2005-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136740.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135329.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135301.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134951.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134943.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Opeth - Pale Communion (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134644.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Sorcerer - Studio Albums (5 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134295.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Poison Dollys - Invasion (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134207.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Opeth - Sorceress (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133972.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133951.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133939.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133897.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Them - немецко-американская хэви-метал группа,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89698A042F4627CECBFA421347999C50733FF300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681215   (133116) от 02.12.2023
-
-Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133116.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Krach
-A2 Gorace Telefony
-A3 China Boy
-Music By – C. Szlazak(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

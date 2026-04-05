@@ -6,7 +6,7 @@ Black Country Communion - Live Over Europe (2011) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388237.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388016.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388003.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387865.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387741.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387629.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387586.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Nirvana - Live At Reading Festival (1992) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_385768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385768.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385082.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385075.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Dio - Holy Diver Live (2010) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384123.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383929.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Aerosmith - Music From Another Dimension! (Deluxe Edition) (Bonus DVD) (2012) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_383065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_383065.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382676.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382668.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382639.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382333.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381433.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dream Theater - Live at Luna Park (2013) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381335.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ A-HA - Live In Giske Norway (2017) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380790.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380647.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380505.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_380428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380428.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379956.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Nirvana - Live At Reading Festival [1992] (2009) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379910.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379775.jpg" />
 </div>
 
 

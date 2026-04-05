@@ -1,3 +1,61 @@
+###  Публикация: 1212437   (775822) от 12.03.2018
+
+VA - Marathon 2018: 50 Great Running Tracks (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bob Lee  -  Enhance  3:09
+02.  Ben Billson  -  Advise  3:09
+03.  Artur May  -  Logic  3:09
+04.  Apollo Twin  -  Chest  3:09(   Читать дальше...   )Жанр: HouseПродолжительность: 02:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F79BEEB46EECBD1725A1DD5C3A5D888D953550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212528   (775820) от 12.03.2018
+
+VA - Passion Lounge A Sensual Chillout Mix (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Red Skin Noxe  -  Vanity and Whim  3:24
+02.  Rick Kelly  -  Just Kiss Me  2:58
+03.  Bruce Maginnis & Mike Caen  -  Sand And Silk  3:06
+04.  Keir Fraser & James Braddell  -  Lately  2:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12106A430D205A799DD14EEE0C47FABB153414C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212514   (775816) от 12.03.2018
 
 VA - JOOF Editions Vol.4 (Mixed by John 00 Fleming) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance, Techno>
@@ -6,7 +64,7 @@ VA - JOOF Editions Vol.4 (Mixed by John 00 Fleming) (2018) [MP3|320 Kbps] <Progr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775816.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ SCSI-9 - Metamorphosis (2012) [MP3|320 кб/с]<Tech  Deep House  Minimal>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775743.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Akshan - Versions Inedites (2013) [Altar Records] [FLAC|Lossless]<Psybient, Down
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775378.jpg" />
 </div>
 
 
@@ -87,7 +145,7 @@ VA - Shopping Affair Lounge Edition (2018) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775224.jpg" />
 </div>
 
 
@@ -116,7 +174,7 @@ VA - Moments For Your Soul (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775223.jpg" />
 </div>
 
 
@@ -145,7 +203,7 @@ VA - Amsterdam Trance Sessions Vol.15 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775221.jpg" />
 </div>
 
 
@@ -174,7 +232,7 @@ VA - Sensitive Recollection Vol 1: Slow Deep House Grooves (2018) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775219.jpg" />
 </div>
 
 
@@ -203,7 +261,7 @@ VA - Best Of Deep House 2018 Vol.02 (2018) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775218.jpg" />
 </div>
 
 
@@ -232,7 +290,7 @@ VA - You Gotta Work For This Body (2018) [MP3|320 Kbps] <Deep, Minimal, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775213.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ VA - Abstract Vibes 2 - More Vibes (1997) [FLAC|Lossless|tracks + .cue] <Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775165.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ VA - D.MAX Recordings: Best of 2018 (Mixed by Bryan Summerville & Dave Cold) (20
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775160.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ VA - Winter Sun 01 (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775155.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ MRUKS - Enchantment (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Ret
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775101.jpg" />
 </div>
 
 
@@ -374,7 +432,7 @@ Steve Good (aka Puff Dragon) - Everything's Inside Everything Else (2018) [FLAC 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775096.jpg" />
 </div>
 
 
@@ -403,7 +461,7 @@ John Maus - We Must Become the Pitiless Censors of Ourselves (2011) [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775095.jpg" />
 </div>
 
 
@@ -432,7 +490,7 @@ VA - Top 20 Music For Relax (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775091.jpg" />
 </div>
 
 
@@ -461,7 +519,7 @@ VA - Sports Megamix 2019.1 (2019) [FLAC|Lossless|tracks] <Funky, Club House, Dan
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775085.jpg" />
 </div>
 
 
@@ -490,7 +548,7 @@ VA - 3 Years 3rd Avenue (2016) [MP3|320 кб/с] <House, Progressve House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775081.jpg" />
 </div>
 
 
@@ -519,7 +577,7 @@ VA - Maximum House Expressions Vol.1 (2016) [MP3|320 кб/с] <House, Electro Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775077.jpg" />
 </div>
 
 
@@ -548,7 +606,7 @@ VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [FLAC|Lossless|W
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775019.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ Gescom - Discography 17 Releases (1994-2011) Skam, OR, Warp [FLAC|Lossless|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775003.jpg" />
 </div>
 
 
@@ -606,7 +664,7 @@ VA - Grand Masters Collection Voices of Africa (2015) [MP3|320 кб/с] <Lounge,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774992.jpg" />
 </div>
 
 
@@ -635,7 +693,7 @@ VA - Best of Trip-Hop (2016) [MP3|320 кб/с] <Electronic, Downtempo, Trip-hop>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774986.jpg" />
 </div>
 
 
@@ -664,7 +722,7 @@ VA - Miami Hits (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774514.jpg" />
 </div>
 
 
@@ -678,64 +736,6 @@ VA - Miami Hits (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE12E6BD5D211D023B5703E7D689124B8F6DDA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212904   (774468) от 14.03.2018
-
-VA - Nu Lounge Sounds Late Night Music Playlist (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giampaolo Cavallo - Sunset 3:27
-02. Marco Cimino - Momento Cumbre 3:09
-03. Andrea Cardillo - Sambando 4:10
-04. Crescenzo Vitiello - Blue Star 3:58(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA4E15EAC8166FD85370A7923B05DEBFBD16081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212959   (774453) от 14.03.2018
-
-VA - Ibiza Cafe Del Sol - Chill Lounge Club Sessions (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lea Perry  -  Dubby Sunset Sky At Cafe Del Mar (Ibiza Beach Mix)  5:14
-02.  Silver Beat  -  Time 2 Go (Isla Del Sol)  5:18
-03.  Rainman  -  Riding On A Cloud (Ibiza Mix)  4:05
-04.  Soleil Fisher  -  Lightbox (Ibiza Guitar Mix)  5:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51216573D39D60B9BEF3A3AC3F08FD55FB74DAFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

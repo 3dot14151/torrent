@@ -1,3 +1,56 @@
+###  Публикация: 273580   (270234) от 26.12.2010
+
+[WiiWare] Fluidity [Eng] (2010)
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Fluidity от Nintendo и Curve Studios сочетает в себе удивительный физический движок который воссоздает модель проточной води, с инновационными головоломками. Используя три формы воды — жидкость, лед и пар — игроки будут решать сложные головоломки в множестве глав магической книги под названием Акватикус.Жанр: PuzzleЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E6749C52ABD38675611B1346CAF4A7596CB9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273747   (269449) от 27.12.2010
+
+Warsow [En] (L) 2010
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269449.jpg" />
+</div>
+
+
+###  Подробнее
+
+War§ow - это киберспортивная игра в жанре FPS с открытым исходным кодом, но проприетарными ресурсами. Разработана группой энтузиастов на модифицированном движке QFusion, являющийся в свою очередь модификацией движка Quake 2, исходные коды которого id Software выпустила в 2001 году. Первая публичная версия вышла 8 июня 2005 года.
+War§ow специально создавалась для игры по сети. Она имеет много общего с такими играми как Quake World, модом Quake 3 Challenge ProMode Arena и серией Unreal Tournament. Команда разработчиков хотела создать весёлую, быструю, динамичную игру, поэтому предпочтение было отдано мультипликационной графике, с использованием цел-шейдеров, что делает игру яркой с отличной видимостью противников и уровней.Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st Person
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04699C4A92ABD148FC807DB48CAD70CAC8D5E48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 276344   (267559) от 29.12.2010
 
 TimeShift [Ru] (Lossless Repack) 2007 | R.G. Catalyst
@@ -6,7 +59,7 @@ TimeShift [Ru] (Lossless Repack) 2007 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267559.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267548.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Tooth and Tail (2017) [En] (1.0.8.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267484.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266645.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ Half-Life 2 / Rock 24 [Ru/En] (P/Mod) 2004-2007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266635.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Indivisible (2019) [Ru/Multi] (39810/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264492.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Wolfenstein II (2017) [Ru/Multi] (1.0/u5) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264045.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ Max Payne 3 (NoDVD/1.17 ) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261074.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ Max Payne 3 (RePack/1.0.0.17/7 DLC) [Ru/En/Multi6] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261056.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260985.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ Hyperspeed: Alien Combat and Role-Playing Adventure (RePack) [En] 1991 | RG game
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260780.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Machinarium / Машинариум [Ru/En] (RePack/1.1) 2009 | R.G. Механи
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260647.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ Port Royale 3: Pirates & Merchants [Ru] (RePack/1.1.2 build 24556) 2011 l R.G. R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260527.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260505.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Max Payne 3 (Update1) 2012 | REVOLT/SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260369.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ Ridge Racer Unbounded {1.11} (RePack) [Multi6\+] 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260318.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260309.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ The Tuttles: Madcap Misadventures {0.99b} (P) [En] 2007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260246.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ Red Orchestra 2: Heroes of Stalingrad Game of the Year Edition [En] (L) 2011 | H
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260123.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ Mad Riders [En] (RePack/1.0.1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259977.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ Contraption Zack [En] (RePack) 1992 | RG Games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259846.jpg" />
 </div>
 
 
@@ -570,7 +623,7 @@ The Binding of Isaac: The Wrath of the Lamb [En] (Rip/1.1) 2012 | Theta
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259724.jpg" />
 </div>
 
 
@@ -599,7 +652,7 @@ Gas Guzzlers: Combat Carnage (RePack/1.0) [En/Ru] 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259665.jpg" />
 </div>
 
 
@@ -625,7 +678,7 @@ Titus the Fox: To Marrakech and Back [En] (RePack) 1992 | RG games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259599.jpg" />
 </div>
 
 
@@ -639,58 +692,6 @@ Titus the Fox: To Marrakech and Back [En] (RePack) 1992 | RG games (Pilotus)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501563   (259586) от 30.05.2012
-
-[RePack] DiRT Showdown [En] {1.0} 2012 l Naitro
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарные состязания меняют формат: на смену спортивным гонкам приходит автодерби — гонки на выживание. Никаких компромиссов! Газ в пол и только вперед! Тесните соперников, крушите все, что мешает вам двигаться к цели, добейтесь победы на трассе любыми средствами! Волнующая атмосфера, сумасшедший накал страстей, эффектные аварии и разрушения, заезды на бешеных скоростях в любую погоду, внутриигровые социальные функции — все это DiRT Showdown.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A477121669DB0D3AF22AA3CB151FA3F080EF182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503226   (259468) от 29.05.2012
-
-Gas Guzzlers: Combat Carnage (RePack/1.0) [En/Ru] 2012 l Audioslave
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gas Guzzlers — динамичные захватывающие гонки на выживание для PC. Игра предлагает множество различных средств передвижения, типов оружия, усовершенствований, бонусов на трассах и оригинальных ландшафтов, а также удобный вид «из-за автомобиля». В самом начале игроку доступен лишь маломощный автомобиль, который станет отправной точкой пути на вершину славы и способом заработка денег в сериях увлекательных гонок (ведь стартового капитала едва хватит на покупку самого автомобиля без каких-либо усовершенствований).(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B082A71024E738D1EAFBB9CAFEABC96ED6941F17
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1510408   (791320) от 16.11.2021
+
+JUG Ru Group | Heisenbug 2021 Moscow. Конференция по тестированию. (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heisenbug 2021 Moscow - большая техническая конференция по тестированию. Несколько десятков докладов о разных видах тестирования, инструментах и многом другом.
+
+5-7 октября состоялся Heisenbug 2021 Moscow.
+(   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 42:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E11FD2F5891621CC10AFB29593499C4CC1A677C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509469   (791236) от 16.11.2021
 
 Geekbrains | Frontend-разработчик. Часть 5 из 5 (2020) PCRec
@@ -6,7 +35,7 @@ Geekbrains | Frontend-разработчик. Часть 5 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791236.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791106.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790581.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ Surgical Techniques in Ophthalmology | Хирургические техники
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790428.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ CG Masters | Полное создание автомобиля в Blender / Com
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790199.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790159.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790107.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ GeekBrains | Тестировщик ПО (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789958.jpg" />
 </div>
 
 
@@ -222,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789818.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789816.jpg" />
 </div>
 
 
@@ -276,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789815.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789812.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789811.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789806.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789796.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789731.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789699.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789578.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Udemy, The Net Ninja (Shaun Pelling) | Создавайте Веб-Прилож�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789577.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Udemy, Maximilian Schwarzmüller | Flutter & Dart - The Complete Guide (2021) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789556.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789223.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Udemy | Познавая вёрстку HTML, CSS и кое что ещё (2018)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789217.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ Skillshare, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Mar
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789150.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788879.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 02: What's Possible (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788844.jpg" />
 </div>
 
 
@@ -672,32 +701,6 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 02: What's Possible (2016) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AFC5083B633C58885DFD9423AD2AD60D498C42B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511427   (788836) от 21.11.2021
-
-Ctrl + Paint, Matt Kohr | 3D For Illustrators 04: Texturing (2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходное продолжение "Основ моделирования" это "Текстурирование". В этих видео разбираются различные подходы к созданию материалов, с акцентом на нужды художника. Для иллюстраторов текстуры не всегда должны быть предельно высокого качества и не обязательно на них нужно тратить много времени. Часто они создаются для того, чтобы нарисовать поверх (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3F19FA23CD33CC2AD643F3721652780D7AAEA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

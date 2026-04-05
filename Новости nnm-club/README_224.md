@@ -1,3 +1,62 @@
+###  Публикация: 501438   (258581) от 26.05.2012
+
+Аудитория "Яндекса" превысила число зрителей "Первого канала"
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258581.jpg" />
+</div>
+
+
+###  Подробнее
+
+На российском медиарынке сменился лидер — «главная кнопка» страны теперь не Первый канал, а «Яндекс»: портал собирает большую аудиторию, чем любой отдельно взятый телеканал.В апреле «Яндекс» посещало 19,1 млн человек в день, а Первый канал смотрело 18,2 млн человек в день, подсчитала аналитическая компания TNS (аудитория 12-54 лет в городах с населением более 100 000 человек). «Первый» — самый популярный российский канал, он все время был самым популярным медиаресурсом в стране, интернет-портал обогнал его впервые.«Яндекс», а также Mail.ru почти догнали «Первый» и по недельной аудитории (до результата канала в апреле им не хватило 0,7 млн и 1,2 млн человек соответственно). Самый большой отрыв канала от сайтов — по месячной аудитории: хотя бы раз в месяц «Первый» включает 41,4 млн человек, что на 8,2 млн человек больше, чем пользователей у Mail.ru, и на 8,7 млн — чем у «Яндекса».
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501480   (258441) от 25.05.2012
+
+Torchlight 2/II [En] (RePack/Beta/0.22.82) 2012 | Ali213
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258441.jpg" />
+</div>
+
+
+###  Подробнее
+
+В бета версии ограничение по уровню персонажа до 21 уровня.
+
+Некогда герои Torchlight спасли мир от древнего и могущественного существа Ордрака. И вот, спустя годы, некто украл эссенцию его мощи и использовал ее, чтобы нарушить баланс шести элементов. Вам довелось стать свидетелем разрушительного действия ужасного артефакта…
+
+Теперь вы должны отыскать злодея и предотвратить вселенскую катастрофу. Его след ведет вас через истерзанные войной степи и пустоши к руинам старинного города гномов. А затем вам предстоит углубиться в подземное царство, куда тысячи лет не ступала нога смертного и откуда грозит обрушиться на мир невиданное доселе ужасающее Зло…
+
+(   Читать дальше...   )Тип издания: RepackЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 388221   (258439) от 25.05.2012
 
 Тайный круг / The Secret Circle (2011) HDTVRip (сезон 1, серии 1-22 из 22) DreamRecords
@@ -6,7 +65,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258439.jpg" />
 </div>
 
 
@@ -32,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258435.jpg" />
 </div>
 
 
@@ -59,7 +118,7 @@ Metal Gear Solid - The Twin Snakes (RePack/Emul) [En] 2004 (2012) | MarkusEVO
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258432.jpg" />
 </div>
 
 
@@ -85,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257586.jpg" />
 </div>
 
 
@@ -111,7 +170,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.9.8/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257528.jpg" />
 </div>
 
 
@@ -137,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257353.jpg" />
 </div>
 
 
@@ -163,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257073.jpg" />
 </div>
 
 
@@ -189,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257070.jpg" />
 </div>
 
 
@@ -215,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257051.jpg" />
 </div>
 
 
@@ -242,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256761.jpg" />
 </div>
 
 
@@ -268,7 +327,7 @@ Windows XP Pro SP3 Rus VL Final х86 Krokoz Edition (15.05.2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256547.jpg" />
 </div>
 
 
@@ -295,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256543.jpg" />
 </div>
 
 
@@ -321,7 +380,7 @@ Call of Duty 4: Modern Warfare [Ru] (RePack/1.7) 2007 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256539.jpg" />
 </div>
 
 
@@ -349,7 +408,7 @@ Adobe InDesign CS6 8 [Original installer] [Русский, английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256537.jpg" />
 </div>
 
 
@@ -375,7 +434,7 @@ Paradise Cracked / Код доступа: РАЙ [Ru] (RePack) 2002 | RG Games (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256257.jpg" />
 </div>
 
 
@@ -401,7 +460,7 @@ Adobe® Creative Suite® 6 Design & Web Premium [Multi/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256242.jpg" />
 </div>
 
 
@@ -429,7 +488,7 @@ Victoria 4.46b [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256239.jpg" />
 </div>
 
 
@@ -456,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255976.jpg" />
 </div>
 
 
@@ -482,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255972.jpg" />
 </div>
 
 
@@ -509,7 +568,7 @@ Microsoft Windows 7 Максимальная SP1 x86/x64 DVD Original WPI  17.05
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255969.jpg" />
 </div>
 
 
@@ -539,7 +598,7 @@ Wargame: Европа в огне / Wargame: European Escalation [Multi6/+] (L) 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255968.jpg" />
 </div>
 
 
@@ -567,7 +626,7 @@ Shiri - самый реалистичный автоматизированный
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255836.jpg" />
 </div>
 
 
@@ -593,7 +652,7 @@ WebForMySelf, Андрей Кудлай | Python-Мастер. Полное ру
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255560.jpg" />
 </div>
 
 
@@ -621,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255504.jpg" />
 </div>
 
 
@@ -632,58 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623105   (255485) от 05.04.2023
-
-Тетрис / Tetris (2023) WEB-DLRip [H.264] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255485.jpg" />
-</div>
-
-
-###  Подробнее
-
-История предпринимателя Хенка Роджерса, который загорелся идеей купить видеоигру «Тетрис», созданную советским программистом Алексеем Пажитновым.Производство: Великобритания, США / AI-Film, Apple TV, Marv Films, UnigramЖанр: триллер, драма, биография, историяРежиссер: Джон С. БейрдАктеры: Тэрон Эджертон, Никита Ефремов, Софья Лебедева, Энтони Бойл, Бен Майлз, Кэн Ямамура, Игорь Грабузов, Олег Штефанко, Рик Юн, Тоби ДжонсПеревод: Многоголосый профессиональный (Apple TV+, TVShows)Язык озвучки: русский, английскийСубтитры: английские, русские, украинскиеПродолжительность: 01:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F51ABA9C80AE4DB2F0CB2AB3590AAEBD7E8E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577844   (255398) от 08.04.2023
-
-Три сестры / Uc Kiz Kardes (2022-2023) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 1-27 (17-43) из ??) AveTurk (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то три сестры Тюркан, Дёнюш и Дерья жили в доме с видом на самое красивое море. Их отец Садык Бей и мать Несрин Ханым обеспечили девочкам счастливое детство и не подготовили их к жестокостокой взрослой жизни. Сомер единственный сын самой богатой семьи Айвалыка. Под давлением семьи Сомер женится на Тюркан, однако клянется, что не станет для неё настоящим мужем (   Читать дальше...   )Производство: Турция / Süreç FilmЖанр: драмаРежиссер: Эмре КавукАктеры: Иджлаль Айдын, Реха Озджан, Беркер Гювен, Озгю Кая, Алмила Ада, Мелиса Бербероглу, Бениан Донмез, Назлы Сенем Унал, Хакан Аталай, Демирджан Качел, Вурал Шаханоглу, Веда Юртсевер и др.Перевод: Двуголосый любительский (AveTurk)Язык озвучки: РусскийПродолжительность: ~02:35:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1A062B1C2029BBBD2B95938940CB277838724E
 ```
 
 https://mybot314.ru/tekegram_catalog/

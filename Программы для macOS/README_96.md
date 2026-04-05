@@ -1,3 +1,55 @@
+###  Публикация: 1412351   (417839) от 29.09.2020
+
+OnyX 3.8.6 for macOS Catalina 10.15 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417839.jpg" />
+</div>
+
+
+###  Подробнее
+
+OnyX для macOS Catalina - отличное приложение для оптимизации macOS, тонкой настройки скрытых возможностей Finder, Dock, Safari, Dashboard, Expose, Disk Utility, очистка системного кэша и кэша приложений, просмотр различных отчетов и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2020Разработчик: Titanium SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9420FCB43AB987D892A9C9875D176E5DABF4201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947693   (417801) от 17.10.2015
+
+Focus CK (Pro) 1.1.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Focus CK (Pro) - это мощное программное обеспечение для добавления восхитительных эффектов Lens Blur (размытие при малой глубине резкости) и Tilt-Shift (поворот/сдвиг) в ваши фотографии. Focus CK - это самый простой и быстрый способ сфокусировать внимание именно на том, что вам нужно. Программа является идеальным вариантом, как для профессиональных фотографов, так (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 октября 2015Разработчик: MacPhun SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5B239546C75E6EC6CD88658BEC780A218F27E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251374   (417596) от 01.10.2018
 
 Wondershare TunesGo 9.7.2.1 [Multi]
@@ -6,7 +58,7 @@ Wondershare TunesGo 9.7.2.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417596.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Brightly Pro 2.1.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417261.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Metadata Converter Pro for Mac 1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417259.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Filmage Editor 1.3.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417258.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Synalyze It! Pro 1.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417257.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ PDF Plus - Merge & Split PDFs 1.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417254.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Hyperkey 0.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417251.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Music Converter Pro 1.6.3.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417120.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Contexts 3.9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417118.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Deflection Pro 6.5.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417104.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Smart Player Premium 1.1.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417097.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Forecast Bar 2.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417041.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Author 8.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416896.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ StatusDuck 0.82 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416855.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ iLife '11 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_416759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_416759.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ FruitJuice - Active Battery Health and Monitoring 2.5.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416682.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ Clearview 2.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416555.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ WinZip Mac Pro 10 v.10.6.6200 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416493.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ ExLibris 10.1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416183.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ Toast Titanium 15.1 (4486) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416005.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ Imagenomic Portraiture 3 for Adobe Lightroom 3.5.2.3520 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415907.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ NetNewsWire 4.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415851.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415600.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ JetBrains AppCode 2020.2.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415571.jpg" />
 </div>
 
 
@@ -636,59 +688,6 @@ AppCode – умная IDE, предназначенная для разрабо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89F043F59C44BEE431366467495F5A15D48D7C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412673   (415390) от 30.09.2020
-
-iZotope - RX 8 Audio Editor Advanced STANDALONE, VST, VST3, AAX 8.1.0.544 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415390.jpg" />
-</div>
-
-
-###  Подробнее
-
-RX уже давно является популярным пакетом для ремонта и полировки звука для фильмов, телевидения, музыки, подкастов, видеоигр, библиотек сэмплов и многого другого. В RX 8 мы создали новые инструменты и улучшили любимые модули, чтобы помочь вам достичь большего за меньшее время, чем когда-либо.
-В версии 8 мы добавили новые функции в линейку продуктов, чтобы ускорить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2020Разработчик: iZotope, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA144B0C652B7D73D12841903AE0B025D886920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167560   (415095) от 21.09.2017
-
-Notefile 2.7.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Notefile позволяет быстро делать заметки и синхронизировать их со всеми вашими устройствами. Он доступен как приложение для Mac и универсальное приложение для iOS для iPhone, iPad и iPod touch. Ваши заметки автоматически синхронизируются с iCloud или нашей собственной Junecloud Sync. Если вы используете синхронизацию Junecloud, вы также можете просматривать и редактировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2017Разработчик: Junecloud LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский, Немецкий и др;
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19196935910C8C436807C354E52A22D4DE12B4DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

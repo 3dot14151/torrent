@@ -1,3 +1,29 @@
+###  Публикация: 1197545   (815665) от 07.01.2018
+
+Журнал | Bonsai Focus [English] №1-2 (144) (2017) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как увлекателен Бонсай Фокус! С информативными докладами и потрясающей фотографией каждые два месяца Bonsai Focus Magazine делает вас свидетелем необычного бонсая, великолепными стилями известных мастеров, образовательными методами и полезными советами по обслуживанию. Мы действительно любим бонсай и думаем, что это настоящая живая форма искусства. Бонсай (   Читать дальше...   )Жанр: УвлечениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187F7D31F9390B0AD37DAB093156705823B33F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197572   (815530) от 07.01.2018
 
 Подшивка журналов | Кактусы круглый год (2013-2016) [PDF]
@@ -6,7 +32,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815530.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814886.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813913.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813791.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813069.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812921.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811877.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811874.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811873.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811433.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810510.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808727.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807220.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805552.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805379.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804336.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804237.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804184.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803831.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803087.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802015.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801774.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801703.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801209.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800966.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED9EF9F82919910ADDE444DF3EA2B3D120928C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506352   (800965) от 30.10.2021
-
-Журнал | Моделист-конструктор №9 (сентябрь 2021) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800965.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Моделист-конструктор» — ежемесячный отечественный популярный научно-технический журнал. Издаётся с августа 1962 года. В каждом номере журнала публикуются чертежи и схемы самых разнообразных конструкций — от приспособлений для домашнего хозяйства до самодельных микроавтомобилей и любительских самолётов, а также материалы по истории техники и движению самодеятельных (   Читать дальше...   )Жанр: Научно-технический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5626E63443164DFDD5004C80026AA4214B1DB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ QR Factory 2.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864633.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ iThoughtsX 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864548.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ El Capitan Cache Cleaner 10.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864505.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864504.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MiniTube 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864417.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ IconKit 8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864415.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Vallum 2.1 & Murus 1.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864411.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864405.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Cisdem AppCrypt 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864401.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Boinx FotoMagico 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864255.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Xcode 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864182.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Cascadea 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864109.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ PullTube 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864108.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Wattagio 1.8.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864019.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Keep It 1.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864015.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Music Collector Pro 20.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864010.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Exposure Software Blow Up 3 v3.1.4.296 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864000.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Exposure Software Plug-ins Bundle 2020 update 15.04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863994.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Sound Control 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863990.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Rhinoceros 5 v5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863924.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Vertus Fluid Mask 3.3.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863923.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Marmoset Hexels 2 v2.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863921.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Kaleidoscope 2.3.1 (build 1441) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863899.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ AutoMounter 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863198.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Swinsian 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863195.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ NetWorker Pro 7.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863160.jpg" />
 </div>
 
 

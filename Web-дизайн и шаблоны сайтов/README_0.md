@@ -1,3 +1,29 @@
+###  Публикация: 328110   (717137) от 25.04.2011
+
+Шаблоны сайта - Шаблоны-заготовки для сайтов
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой сборник шаблонов веб-сайтов самой разнообразной тематики - варез, софт, медиа, музыкальные, сайты для себя, о компьютерах, интернет, про политику, безопасность и др. Все шаблоны полностью рабочие и представлены всеми форматами. Имеют все необходимые файлы и картинки, от вас остается только залить их на сайт.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F3C101AC9857F57BD2E3FCC16459132CDCA1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363100   (666283) от 17.03.2022
 
 Шаблоны сайта - RocketTheme - Premium Templates 2018-2019 Joomla 3.3-3.9 [PHP, HTML, CSS, JS]
@@ -6,7 +32,7 @@
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666283.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634509.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628319.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622144.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622098.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561446.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559451.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542832.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498111.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388298.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ WordPress plugin - Interactive 3D FlipBook (Lite version) [PHP, HTML, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265957.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Ui Kits - UI8 - Enefty - NFT Website UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213477.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Ui Kits - UI8 - FindWork - Job Finder App Ui Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212178.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Ui Kits - UI8 - Carsova - Electric Cars Website [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212137.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Ui Kits - UI8 - Convert [PDF]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202414.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Ui Kits - UI8 - Camero - CRM Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193342.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Ui Kits - UI8 - Beesign - e-Signature Document Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173554.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141074.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ WordPress plugin - Rank Math SEO PRO 3.0.49 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127538.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ WordPress plugin - Advanced Custom Fields PRO 6.2.4 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127533.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ WordPress plugin - Oxygen 4.8 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127530.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Ui Kits - UI8 - The Folio - Portfolio, Blog, and Personal Website Template [FIG,
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117610.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Ui Kits - UI8 - Eclipse - Vintage Store Web Ecommerce [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104474.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Ui Kits - UI8 - Financial Forecasting Mobile App UI Kit - Thriftly [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101703.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Ui Kits - UI8 -  WeCare - Medical Admin Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91194.jpg" />
 </div>
 
 
@@ -658,35 +684,6 @@ WeCare — это набор пользовательских интерфейс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2465B2DA36389E4FA0D08FAEF427CE290F1B1616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803818   (65789) от 25.06.2025
-
-Шаблон администратора - UI8 - MainStream - Live Streaming Game Premium UI KIts App [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65789.jpg" />
-</div>
-
-
-###  Подробнее
-
-MainStream - наборы пользовательского интерфейса с минималистичным дизайном для мобильной потоковой игры с более чем 50 экранами.
-
-Оснащен группировкой и наименованием для каждой группы, чтобы вам было легче ее редактировать и иметь легкую тему.
-(   Читать дальше...   )Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47BCF5FE46743C0E5D812D79D9B7FC0A41CEDC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

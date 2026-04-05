@@ -6,7 +6,7 @@ Crystal Lake - True North (2016) [MP3|320 Kbps] <Metalcore>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297805.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Younoumi - 15 альбомов (2008-2015) Touhou Vocal, KanColle /Doujin/ [FLAC
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296977.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cosmic Invention - Cosmorama (1981) Reissue CD, 1994, Victor [MP3|320 Kbps] <Ele
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296729.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ KAEDE - 9 альбомов (2008-2013) /Doujin/ [FLAC|tracks] <J-Pop>
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295058.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ programYMG - 2 альбома (2009-2010) /Doujin/ [FLAC|tracks] <J-Pop, Electro
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295027.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ALBATROSICKS - 9 альбомов (2007-2014) /Doujin/ [FLAC|tracks] <J-Pop, Ele
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294937.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ IOSYS - 105 альбомов (2004-2015) Anime, Game, Touhou Vocal, Vocaloid /Do
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294602.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ ARM's Armageddon Records - 2 альбома (2011-2012) Touhou Instrumental, Voc
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294366.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ TAMUSIC - 116 альбомов (2005-2015) Touhou Vocal, KanColle, Anime, Game A
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294288.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Ayako Ishikawa - SAKURA SYMPHONY (2016) [FLAC|Lossless|image+.cue+dvdiso] <J-Pop
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289960.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Houko Kuwashima — HouKo ChroniCle (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285215.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Ongaku Shoujo —  3STARS (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285214.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Chihiro Yonekura — BEST OF CHIHIROX II (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285210.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ YURiCa — Flower Drops (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285200.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Zhaoze 沼澤 | 沼泽乐队 Zhao Ze - Discography 11 Releases (2010-2018) [FLAC
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279233.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ LAREINE - 7 альбомов+3 сингла (1997-2006) [FLAC|Lossless]<JRock, V
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276176.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Far in the distance — Mingled Burst !!! (2010) /Doujin/ [FLAC|Lossless] <J-Pop
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275231.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ MiddleIsland - 17 альбомов (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock,
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275183.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Sojiro - Forest Of The Ocarina (2016) 2 CD [MP3|320 Kbps] <New Age, Ethnic Fusio
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272149.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Animelo Summer Live 2005 -THE BRIDGE- (2005) [MP3|112 Kbps] <JPop, JRock, A
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272054.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ DOLL$BOXX - Дискография (2012-2017) [MP3|320 Kbps] <Hard-rock, Kawaii
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271862.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Yoshida Brothers - Prism (2009) [FLAC|Lossless]<Японские национа�
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266485.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ John Chen - Songs From Within (1999) [MP3|320 кб/с]<Instrumental, Guitar>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259843.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ John Sposito St. James Music - Ouroboros (1999) [MP3|320 кб/с]<New age>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259592.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Desecravity - Implicit Obedience (2012) [FLAC|Lossless]<Technical Brutal Death M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256094.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Rainbow - Over The Rainbow (2012) [MP3|320 кб/с]<К-Pop, Dance>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254060.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1409917   (440582) от 19.09.2020
+
+Фёдор Чистяков - Последний из могикан (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russky Rock'n'roll (04:16)
+ 02.Trains Rolled Down The Street (04:44)
+ 03. Little Corey (03:29)
+ 04. Lenin Street (04:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FA79A35AFB2895A4A4C4F38AD7BE1F6B2B3876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944688   (440515) от 07.10.2015
 
 Raventale - Dark Substance Of Dharma (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
@@ -6,7 +35,7 @@ Raventale - Dark Substance Of Dharma (2015) [MP3|320 кб/с]<Atmospheric Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440515.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Collective Soul - See What You Started By Continuing (2015) 2CD Walmart Deluxe E
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440509.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Cold Chisel - The Perfect Crime (2015) Deluxe Edition [OGG| 456-523 кб/с]<Cla
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440506.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mithotyn - Carved in Stone - The Discography (2013) 3CD [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440494.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ The Last Reign - Evolution (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440445.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440378.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Hollywood Vampires - Hollywood Vampires (2015) [FLAC|image+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440370.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440355.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Marilyn Manson - We Are Chaos (2020) Japan [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440302.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440285.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ Blitzen Trapper - Furr (2008) 10th Anniversary Deluxe Edition, 2018, Sub Pop [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440176.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ Stigmata - Legion EP (2015) [MP3|~245 кб/с (V0)]<Melodic Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440081.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Andrew W.K. & B-Roc - DAMN! The Mixtape, Vol. 1 (2009) Limited Edition, Mixtape 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440028.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Hush - Aloud 'n' Live (1973) [MP3|320 Kbps] <Glam Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440025.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ Mizantropia - Out Of Mind (2018) [MP3|320 Kbps] <Dark Metal, Gothic Metal, Extre
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440006.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Trubetskoy - Трафик (2018) EP [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439833.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Gravy Train - 5 albums, 10 CD (1970-2006) [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439820.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ Machine Head - 9 Albums, 2 Lives (1994 - 2018) 24 CD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439638.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ VA - 101 Hits - No.1 Dad 5CD (2018) [MP3|320 Kbps] <Pop, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439478.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ VA - The Best Of 70's Vol.2 (unknown year) Unofficial Release [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439477.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Billy Gibbons (Zz Top) - The Big Bad Blues (2018) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439466.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Chris Norman - There And Back (2013) [FLAC|image +.cue]<Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439443.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Kings Of Leon - Walls (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439423.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Korn - The Nothing (2019) [MP3|320 Kbps] <Alternative Metal, Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439345.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Van Der Graaf Generator - Do Not Disturb (2016) [FLAC|Lossless|image + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439256.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Van Der Graaf Generator - Do Not Disturb (2016) [FLAC|Lossless|image + .cue] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FBB19FFB3C41667902D136C946CA57732197091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062755   (439255) от 14.10.2016
-
-Alter Bridge - The Last Hero (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me A Leader
-02. The Writing On The Wall
-03. The Other Side
-04. My Champion(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7141B3B8571D32FA4D31D6EF9595E85E539588
 ```
 
 https://mybot314.ru/tekegram_catalog/

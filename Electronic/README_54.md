@@ -1,3 +1,61 @@
+###  Публикация: 1488389   (1002048) от 11.08.2021
+
+Manual | Jonas Munk - Discography 29 Releases (2000-2021) Morr Music, Darla Records, Azure Vista [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Shoegaze, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asteroid 2467 (08:52)
+ 02. Return To Burlington (06:04)
+ 03. Solitary Falling (04:29)
+ 04. Perpetual Motion (10:51)(   Читать дальше...   )Тип издания: CD, WEBЖанр: IDM, Downtempo, Ambient, Shoegaze, Experimental •Продолжительность: 24:14:12 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2135D5660D4B31FA8E263335568350CA991116D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316795   (1001981) от 11.08.2021
+
+Anders Ilar - Discography 29 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Want To Sleep? (01:22)
+ 02. Can You Stop It From Bleeding? (02:41)
+ 03. Hurting Myself (05:13)
+ 04. Blackmail (02:51)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch •Продолжительность: 23:40:21 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BEE76FCB02612C8697FF2D21859A79A2184288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351800   (1001956) от 11.01.2020
 
 Andromeda - The Remixes (2005) Yellow Sunshine Explosion [FLAC|Lossless|tracks+.cue] <Psy-Trance, Progressive Trance>
@@ -6,7 +64,7 @@ Andromeda - The Remixes (2005) Yellow Sunshine Explosion [FLAC|Lossless|tracks+.
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001956.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Lane 8 - Brightest Lights (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001952.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ VA - Dream Dance Vol.88 (2020) [MP3|320 Kbps] <Trance, Progressive House, Vocal 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001885.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Joel Tammik (Rajaleidja) - Collection 15 Releases (2004-2019) [FLAC|Lossless|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001879.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ V.A. - Bossanova Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001743.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Ushuaia Ibiza The Album: 5th Anniversary (2015) 2CD [FLAC|Lossless|tracks +
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001684.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Bobina - 15 Years: The Best Of, Vol. 1 (2019) Compilation [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001599.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Dmitriy Redko (AstroPilot, Manifestor, Yoga Mantra) - Discography 85 Releases (2
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001526.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Dopefist - Nice Dreams (2019) Gated [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001456.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Lotus Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balear
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001455.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Aeon Cub - Vacant King (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glit
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001453.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001425.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Airplanemusic | Diego H. Nascimento - Discography 25 Releases (2011-2021) Midia8
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001406.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Clocolan - Discography 9 Releases (2016-2021) BauSatz [FLAC|Lossless|WEB-DL|trac
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001399.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ Nebulo - Discography 12 Releases (2006-2019) Hymen Records [FLAC|Lossless|tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001396.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Me
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001359.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech Ho
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001191.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Köhnen Pandi Duo (Kohnen Pandi Duo) - Darkness Comes In Two's (2017) Svart Lava
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001090.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001086.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ Love Theme - Love Theme (2017) Alter [FLAC|Lossless|Web-DL|tracks] <Dark Ambient
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001056.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Aidan Baker & Gareth Davis - Invisible Cities (2018) [FLAC|Lossless|Web-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001051.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ VA - Parquet Goodies (2019) - 2020 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000890.jpg" />
 </div>
 
 
@@ -635,7 +693,7 @@ Brooklyn Bounce - 9 Альбомов (1997 - 2004) [FLAC|Lossless]<Hard Trance, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000715.jpg" />
 </div>
 
 
@@ -661,7 +719,7 @@ VA - Dance Decades - A Compete History Of Dance 1989-2004 (2004) [FLAC|Lossless]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999964.jpg" />
 </div>
 
 
@@ -677,67 +735,6 @@ VA - Dance Decades - A Compete History Of Dance 1989-2004 (2004) [FLAC|Lossless]
 08. Bob Marley Vs Funkstar Deluxe - Sun Is Shining [03:53]
 09. The Cardigans - Love Fool (Tee's Club Radio Edit) [03:19]
 10. X-Press 2 Feat. David Byrne - Lazy [04:11](   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598597   (999702) от 05.01.2013
-
-PROMID - Sound Of Worship (2012) [MP3|320 кб/с]<Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caress
-02. Don't Forget Me
-03. Eternal Love
-04. Memory of Past Love
-05. Solitude
-06. Trailing Ancestors
-07. New Life
-08. Dependent Heart
-09. Sound of Worship
-10. Towards FreedomЖанр: Lounge, ChillOutПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBFA10D49CA66F6128059A8E07B4EF5B0DD2710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598662   (999668) от 05.01.2013
-
-VA - Zirkus Zirkus: Elektronische Tanzmusik Vol.1 (2013) [FLAC|Lossless]<Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:00:39
 
 ## Скачать торент
 ```bash

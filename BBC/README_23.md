@@ -6,7 +6,7 @@ BBC Horizon. Следи за собой / Monitor Me (2013) HDTVRip [H.264/720p-
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270452.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC Horizon. Сделало ли приготовление пищи нас лю
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270211.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Horizon: Чернобыль. Внутри саркофага / Inside Chern
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269782.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC: Мир природы. Китовая акула / Natural World. Whale Sha
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268728.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266480.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266357.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265582.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265580.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265574.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265572.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ BBC: Империя чужих. Насекомые / Alien Empire (2001) [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265529.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265498.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264798.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263224.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262050.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257948.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254430.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ BBC. Охота на Питера Тобина / The Hunt for Peter Tobin (2025)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249415.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244578.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ BBC: Любовница и жена / The Mistress and the Wife (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244286.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235045.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ BBC. Чувствуешь ли ты это - Как танцевальная м�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232056.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228583.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ BBC: Тигры в доме / Tigers About the House (2014) HDTVRip (Сезон�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224683.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ BBC: Горизонт. Как построить машину времени / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223497.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ BBC: Биологические часы - как они работают? / Bod
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222343.jpg" />
 </div>
 
 

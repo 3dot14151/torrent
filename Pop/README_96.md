@@ -1,177 +1,3 @@
-###  Публикация: 1012966   (777840) от 03.05.2016
-
-VA - NRJ Hit Music Only [3CD] (2016) [FLAC|Lossless|tracks] <Pop, RnB, Indie>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777840.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Пpодолжительность:01:10:34
-
-01. Twenty One Pilots - Stressed Out 03:22(   Читать дальше...   )Жанр: Pop, RnB, IndieПродолжительность: 03:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71052B455690C1BE07E2E6E2EF6C1B8C5BE7BBEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211316   (777824) от 06.03.2018
-
-The Flirts - Calling All Boys (1982) Unidisc, LP [MP3|320 Kbps] <Pop, Hi NRG, Synth-Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777824.jpg" />
-</div>
-
-
-###  Подробнее
-
-С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )01. Juke Box (Don't Put Another Dime) 3:44
-02. Boy Crazy 3:13
-03. On The Beach 3:03
-04. Passion 9:04(   Читать дальше...   )Жанр: Pop, Hi NRG, Synth-Pop, DiscoПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67149EDC443CD977E9A66830F78F817DF52AA567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211241   (777821) от 06.03.2018
-
-Plazma - Newer Again (2004) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Again (4:19)
-02. Power Of Your Spell (3:54)
-03. Boogie Red (3:16)
-04. You Know (My Recent Diserse) (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71597F02DCB9E88F908B5F2AD1D2991934B380EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211217   (777785) от 06.03.2018
-
-VA - Disco 80's: Special Edition (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddy Huntington - Physical Attraction (4:22)
-02. Eighth Wonder - I'm Not Scared (10'' Remix) (5:42)
-03. Fancy - Moscow Is Calling (5:13)
-04. Italian Boys - Forever Lovers (3:54)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275A496AAC431F084F775C93B817C97F7A709931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211203   (777779) от 06.03.2018
-
-Вячеслав Малежик - Альбом (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777779.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вчерашние дети
-2. Эхо любви
-3. Утки крякали
-4. Конотоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778CDECD1AF6723E31B4CC2F24BDDAB14E42FA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211213   (777728) от 06.03.2018
-
-Татьяна Буланова - Это Я (2017) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это я (4:00)
-02. В доме, где живёт моя печаль (3:22)
-03. Не бойтесь любви (3:36)
-04. Апрель (4:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2391A076E473C4D0EB82257CB71BFF521B3DD0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211220   (777725) от 06.03.2018
 
 VA - Disco 80's: Special Edition (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
@@ -180,7 +6,7 @@ VA - Disco 80's: Special Edition (2018) [FLAC|Lossless|image + .cue] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777725.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777631.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Kállay Saunders - Grind (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777565.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Girls Aloud - Sound Of The Underground (2003) Polydor [MP3|320 Kbps] <Pop, Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777270.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ VA - Hot Parade Dance Winter (2018) [MP3|320 Kbps] <Dance, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777268.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ VA - Mastermix Pro Disc 213 - March (2018) [MP3|320 Kbps] <Indie, Folk, Neo Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777244.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ Donna McGhee - Make It Last Forever (1978) Reissue CD, Big Break Records, 2012 [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777242.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ VA - NOW That's What I Call Remix (2018) [MP3|~281-292 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777239.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ VA - NOW That's What I Call Running (2018) [MP3|320 Kbps] <New Wave, Britpop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777238.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ Venus Rising - Live On Venus (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777235.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ VA - Disco: Classic Singles (2018) [MP3|320 Kbps] <Disco, RnB, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777207.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777205.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777153.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ Girls Aloud - What Will The Neighbours Say? (2004) Polydor [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776907.jpg" />
 </div>
 
 
@@ -588,7 +414,7 @@ Girls Aloud - Chemistry (2005) Polydor, Christmas Edition [MP3|320 Kbps] <Pop, E
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776902.jpg" />
 </div>
 
 
@@ -617,7 +443,7 @@ Girls Aloud - Tangled Up (2007) Fascination, Polydor [MP3|320 Kbps] <Pop, Drum n
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776901.jpg" />
 </div>
 
 
@@ -646,7 +472,7 @@ VA - Time For A Kiss (2CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Oldies>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776865.jpg" />
 </div>
 
 
@@ -675,7 +501,7 @@ Giorgio Moroder - Schlagermoroder, Vol. 1-2 (1965-1976) 4CD (2013) [MP3|320 кб
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776816.jpg" />
 </div>
 
 
@@ -704,7 +530,7 @@ Steve Bender - We've Gotta Get Out Of This Place (1978) [MP3|320 кб/с] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776490.jpg" />
 </div>
 
 
@@ -733,7 +559,7 @@ Nadia Cassini - 3 Studio Albums (1978-1985) LP Discography [MP3|320 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776472.jpg" />
 </div>
 
 
@@ -747,6 +573,179 @@ Nadia Cassini - 3 Studio Albums (1978-1985) LP Discography [MP3|320 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56A8315782A386797E585789CE37DFA13737061A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212152   (776468) от 10.03.2018
+
+Гоша Куценко - Ду это! (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Капли (feat. Ёлка)
+02. Солнце (feat. Анжелика Варум)
+03. Люди летят (feat. Полина Гагарина)
+04. ONE/TWO (feat. IOWA)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBAF7ECC60019E4C863747E46A7355FCFF4A9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014563   (776439) от 07.05.2016
+
+Trax - 2 Albums (1977, 1978) [MP3|320 кб/с] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_776439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совместная работа Keith Forsey (барабанщик, продюсер и композитор), Pete Bellotte (автор текстов  и продюсер, особенно для  Donna Summer ), известных своей работой при Giorgio Moroder на его студии Musicland в Мюнхене. Последний же, выступил в роли "серого кардинала", дав дорогу друзьям, скрыв свое участие в "исполнителях"  этих альбомов, но не скрыв (   Читать дальше...   )Список альбомов:
+01. 1977 - Watch Out!
+02. 1978 - Dancing In The StreetЖанр: Electronic, DiscoПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC163D19D6A80FFF32FB59A8D67A95EF8ED856EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014306   (776331) от 07.05.2016
+
+Любэ - Рассея (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. От Волги До Енисея
+02. Русские
+03. Батька Махно
+04. Ясный Сокол(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0079D15F42306778E2E3E4B501EAC96921E9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014757   (776147) от 08.05.2016
+
+VA - The World Of Italo Pop Platinum (Special Edition For San Remo-50th) (2002) 4CD [MP3|320 кб/с] <Italo-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Marco Silenzi - Donne Sante Donne Assassine (04:02)
+02 Gianni Nazzarro - A Questora (03:43)
+03 Drupi - Piccola E Fragile (04:28)
+04 Paolo Mengoli - A Chi (03:22)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 04:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A85DC9E4F1301564D8A493F93421D531797D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014773   (776144) от 08.05.2016
+
+Billy (Tokio Hotel) - I'm not Ok (2016) EP [MP3|320 кб/с] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Don't Break Me
+02. Not Over You
+03. Odds Are Against Us
+04. California High(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9B0951DC8F32CE8540E69F1BB75BAE100C9F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014750   (776100) от 08.05.2016
+
+Munich Machine - Body Shine (1979) Reissue, 2013, Repertoire Records [FLAC|Lossless|image + .cue] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Party Light (6:03)
+02. Fallen Angel (5:24)
+03. Space Warrior (4:17)
+04. Let Your Body Shine (4:35)(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67E63BFD7E697C8D0D4BE5AB0674ED54236A2B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

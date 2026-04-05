@@ -1,29 +1,3 @@
-###  Публикация: 1336131   (281779) от 05.11.2019
-
-Владилен Минин | React JS с Нуля до Профи. Полное руководство (2019) PCRec [H.264/720p-LQ]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281779.jpg" />
-</div>
-
-
-###  Подробнее
-
-При правильном использовании инструкций и приемов из курса, вы на наглядных примерах с полного нуля научитесь создавать динамические, реактивные, полностью адаптивные SPA-приложения и веб-сайты на библиотеке React.js.Производство: UdemyЖанр: Программирование, JavaScript, React.js, ReduxПродолжительность: 39:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C9E00807A4CE288F7600F65FF09659189A91A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223926   (281777) от 05.11.2019
 
 HTML Academy | Интенсивный онлайн‑курс  Профессиональный PHP, уровень 1 (2018) PCRec [H.264]
@@ -32,7 +6,7 @@ HTML Academy | Интенсивный онлайн‑курс  Професси�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281777.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Coursera | Машинное обучение и анализ данных (2018)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278789.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Udemy | Изучаем React.js 16.7 & Redux (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278455.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ jsexpert | Понятный JavaScript [Middle] (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278344.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ jsexpert | Понятный JavaScript [Beginner] (2017) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278342.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276849.jpg" />
 </div>
 
 
@@ -195,7 +169,7 @@ Udemy | Начальный курс SQL (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274295.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ Lynda.com | Creating Secure PHP Websites (2014) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274236.jpg" />
 </div>
 
 
@@ -252,7 +226,7 @@ Udemy | Основы Nginx / Nginx Fundamentals (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273901.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ Itproger | Курс по изучению PHP и MySQL до профи (2018) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273846.jpg" />
 </div>
 
 
@@ -305,7 +279,7 @@ ITVDN | Node.js (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272940.jpg" />
 </div>
 
 
@@ -331,7 +305,7 @@ jsexpert | Понятный JavaScript [Advanced] (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272199.jpg" />
 </div>
 
 
@@ -359,7 +333,7 @@ Udemy | Полный курс по кибербезопасности: Сете�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271876.jpg" />
 </div>
 
 
@@ -387,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271865.jpg" />
 </div>
 
 
@@ -413,7 +387,7 @@ Pluralsight | Linux Encryption Security / Безопасность и Шифро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270980.jpg" />
 </div>
 
 
@@ -439,7 +413,7 @@ Convert Monster | Google Adwords 3.0 (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270941.jpg" />
 </div>
 
 
@@ -465,7 +439,7 @@ JavaBegin | Веб разработка (2015-2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270781.jpg" />
 </div>
 
 
@@ -491,7 +465,7 @@ JavaBegin | Основы Java (2012-2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270601.jpg" />
 </div>
 
 
@@ -517,7 +491,7 @@ Java Course | Начальный курс Java (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270017.jpg" />
 </div>
 
 
@@ -544,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269213.jpg" />
 </div>
 
 
@@ -570,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268431.jpg" />
 </div>
 
 
@@ -596,7 +570,7 @@ ProfIT | XDebug или Давайте искать баги быстро! (2018)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268304.jpg" />
 </div>
 
 
@@ -622,7 +596,7 @@ doge.codes | Онлайн интенсив по React и Redux (2018) PCRec [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268300.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ Udemy | Symfony с нуля на реальном проекте (2018) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268263.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ javascript.ru | Продвинутый курс по Angular (2018) PCRec [H.264
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268262.jpg" />
 </div>
 
 
@@ -686,6 +660,32 @@ javascript.ru | Продвинутый курс по Angular (2018) PCRec [H.264
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B6F3957733B6176578F23673833E9A4B205EB47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266871   (268257) от 04.12.2018
+
+javascript.ru | Курс по React.JS (2018) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268257.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы с вами шаг за шагом пройдем от знакомства с основными идеями до использования самых новых инструментов и инфраструктуры React, на практике будем развивать одностраничное приложение. Начнем с построения простых компонентов, научимся тестировать компоненты, поговорим про системы сборки и особенности работы с ES2017 синтаксисом.Производство: javascript.ruЖанр: Программирование, JavaScriptПродолжительность: 13:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA994EC5463E71CB04276F69FA9558E7AB01AB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 377204   (509232) от 18.08.2011
+
+И.Н. Приходкин | Полицейские машины. Раскраска (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраска «Полицейские машины» - это раскраска для мальчиков. Каждого мальчишку завораживает и притягивает такая машина. Каждый играл хотя бы раз в жизни в полицейских и бандитов, представляя себя в роли отважных блюстителей порядка. Распечатайте раскраски «Полицейские машины». Пусть ваш малыш  их разукрасит по примеру машин страж порядка России,  США, Италии, Франции, (   Читать дальше...   )Жанр: РаскраскаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C23E6AD2EE7EF8399F52E7198E434C0BC361541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376886   (509228) от 18.08.2011
+
+«Росмэн-Пресс» | Раскраски-прописи (2006) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расрашивание картинок - любимое занятие вашего малыша? С книгами серии "Раскраски плюс!" ребенок не только почувствует себя настоящим художником, но и получит большое удовольствие от самостоятельной работы.
+Раскраски и узоры, загадки и кроссворды, прописи и игры - каждый малыш найдет для себя что-то интересное. С "Раскрасками плюс!" вашему малышу (   Читать дальше...   )Жанр: Раскраска, прописиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB30FE4E815851899EB9051A3B9D068903E78919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562556   (509221) от 09.07.2022
 
 Евгения Селезнёва | Как мы искали клад (1964) [PDF]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509221.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Japanese | Shimajiro japanese language material for toddlers (2008) DVDRip + 5CD
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509167.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509129.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509123.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509101.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509049.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508951.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508801.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508791.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508394.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508329.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508322.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508146.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508100.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508052.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508044.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508042.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507995.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507981.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507798.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507785.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507289.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507257.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507251.jpg" />
 </div>
 
 
@@ -630,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BE08D0346B9FEB02BC15A47684DA0BC2D77E61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933051   (507248) от 31.08.2015
-
-Кэтрин Сторр, Фелисити Тротман (перес.) | Герои средних веков (1994) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу входят рассказы о Ричарде Львиное Сердце,Жанне д Арк и Вильгельме Телле - легендарных людях, своими подвигами и беззаветной преданности отечеству снискавших славу и народную любовь.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C08E51AA225DF0E8B169E5D2932264D29ECD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933105   (507245) от 31.08.2015
-
-В. Белоусов | Кто зажигает «Радугу»? (1980) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы поклонники приключений, то эта книга вас наверняка заинтересует. В ней вы встретите неуловимого преступника, смелых и находчивых "пинкертонов", идущих по его следу. Вместе с героями книги вам предстоит пережить опасности, вкусить горечь поражения и радость победы. Словом, здесь вы найдете все, что делает приключенческую книгу приключенческой.
-Но (   Читать дальше...   )Жанр: Детская литература, познавательная, приключенияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9FA3D8C55FB2232BC6209047259D9E8F8861C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

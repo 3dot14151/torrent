@@ -1,3 +1,107 @@
+###  Публикация: 1506182   (800759) от 30.10.2021
+
+Mahoromatic: Tadaima Okaeri | Mahoromatic: I'm Home | Махороматик: С возвращением! [2009, Special, 2 из 2] BDRip 1078p 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800759.jpg" />
+</div>
+
+
+###  Подробнее
+
+До отключения Махоро осталось двести семьдесят дней... Три подруги детства прибывают к Сугуру в гости, но им нужна Махоро — для помощи в подготовке к фестивалю в честь ста двадцатилетия района. Ведь Махоро — универсал и умеет делать очень много разных вещей.Производство: Gainax / ガイナックスЖанр: приключения, комедия, эттиРежиссер: Саэки СёдзиПеревод: AleX_MytH, HollowЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 2 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCAD14B115FE83E40F93D072F50E146D56AD25D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506181   (800758) от 30.10.2021
+
+Mahoromatic Natsu no TV Special: Ecchi na no wa Ikenai to Omoimasu | Mahoromatic: Summer Special | Махороматик: Летний спецвыпуск [2003, Special, 1 из 1] BDRip 1070p 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это был самый обыкновенный денёк в резиденции Сугуру Мисато, когда Махоро находит очередной порнографический журнал в комнате Сугуру. Это событие побуждает её заключить договор с Чизуко, Рин, Миюки и мисс Шикиджо, чтобы обыскать дом и конфисковать всю найденную порнуху. Сугуру, Киёми и Тошия должны сделать всё, что в их силах, чтобы защитить свои сокровища от них!Производство: Gainax / ガイナックス, Shaft / シャフトЖанр: приключения, комедия, романтика, эттиРежиссер: Саэки СёдзиПеревод: someoneЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 1 эп. на 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0E58183FD19C2684392C742AFA4BC940531820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506174   (800757) от 30.10.2021
+
+Mahoromatic: Automatic Maiden | Махороматик: Автоматическая девушка [2001, TV, 12 из 12] BDRip 1070p 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800757.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе тайной войны с могущественным противником человечество бессчетное число раз спасала девушка - андроид Махоро. Но вот настал момент, когда ресурс Махоро уже почти исчерпан: при условии, что она не будет участвовать в боевых действиях, ей осталось функционировать всего 398 дней. Как она проживет этот год с небольшим? Махоро нанимается горничной в дом юного Сугуру: (   Читать дальше...   )Производство: Gainax / ガイナックス, Shaft / シャフトЖанр: повседневность, комедия, романтика, эттиРежиссер: Ямага ХироюкиПеревод: Сергей Рыгин, Baka Voice, Krol, Mats Graule-LadeЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980646BAFF00BC6142AB9123B4A5224564756326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506596   (799831) от 31.10.2021
+
+Kyou Kara Maou! R | Kyo Kara Maoh! R | God? Save Our King R | King From Now On! R | Отныне Мао, король демонов! R [2007, OVA, 5 из 5] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Син-Макоку возвращается в нормальное русло, и Юри Сибуя путешествует по миру, проверяя, как проходит восстановление страны. Навестив Колорию, он со своей неизменной свитой защитников отправляется на горячие источники, где получает приглашение в Малый Симэрон, которое оказывается не только дружеское. Помимо всего прочего, происходят разные события, а истинный (   Читать дальше...   )Производство: Studio Deen / スタジオディーンЖанр: приключения, фэнтези, комедияРежиссер: Нисимура ДзюндзиПеревод: Kitsune, YARilo, NGEЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 5 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFD28C7C5681DF123F15533635A35B4BC960018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506599   (799827) от 31.10.2021
 
 Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd Series | King From Now On! 3rd Series | Отныне Мао, король демонов! 3 [2008, TV, 39 из 39] BDRip 1080p raw+rus
@@ -6,7 +110,7 @@ Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799827.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kyou Kara Maou! | Kyo Kara Maoh! | God? Save Our King | King From Now On! | От
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799826.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Human Lost: Ningen Shikkaku | No Longer Human | Human Lost: Исповедь н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797677.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797262.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797167.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Goblin Slayer | Убийца Гоблинов [2018, TV, 12 ep] BDRip 1080p raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797061.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Sword Art Online II | Мастера Меча Онлайн II [ТВ-2] [2014, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796472.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note - Hakamori to Neko to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792708.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ Kimi no Na wa | Твоё Имя [2016, Movie] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792280.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Jashin-chan Dropkick [TV-1] | Dropkick on My Devil! | Пинок с наскок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791994.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791729.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ Fragtime | Осколки Времени [2019, Movie] BDRip 1080p 10-bit raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791727.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Tenki no Ko | Дитя Погоды [2019, Movie] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791100.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790571.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Эта глупая с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790570.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ Umi ga Kikoeru | Ocean Waves | Здесь слышен океан [1993, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789963.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Evangelion. 2.22 You Can [Not] Advance | Евангелион. 2.22 Ты (не) 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789960.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789613.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ Zero no Tsukaima F| Подручный Бездарной Луизы: Финал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786862.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ Zero no Tsukaima: Princess no Rondo | Подручный Бездарной Лу
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786854.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ True Tears | Настоящие Слезы [2008, TV, 13 ep + 8 Specials] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786617.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ Chuunibyou demo Koi ga Shitai! Movie: Take On Me | Чудачество Любв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786615.jpg" />
 </div>
 
 
@@ -574,111 +678,6 @@ Chuunibyou demo Koi ga Shitai! Movie: Take On Me | Чудачество Любв
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EBEFD8ABEF91F4478F700A5E66D5391951A823E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388539   (786614) от 06.06.2020
-
-Tokyo Magnitude 8.0 | Токийское Восьмибалльное [2009, TV, 11 ep] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786614.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе проекта лежит прогноз о 70% вероятности того, что в ближайшие тридцать лет в Токио произойдёт землетрясение силой 7.0 баллов. Данное аниме описывает, что же может случиться с Токио, если произойдёт землетрясение силой 8.0 баллов.
-Повествование ведётся от лица ученицы средних классов Мирай Онодзавы, на летних каникулах приехавшей со своим младшим братом Юки (   Читать дальше...   )Производство: Bones, ЯпонияЖанр: ДрамаРежиссер: Татибана МасакиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 11 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84ABAF0CAB1757817D38982CE267F27D62CED384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388441   (786613) от 06.06.2020
-
-No Guns Life | Жизнь без оружия [TV-1] [2019, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война закончилась, оставив после себя «Экстендов» — людей, части тел которых заменило оружие. Дзюдзо Инуи как раз из таких, — вместо головы у него револьвер, и он ничего не помнит о себе до преобразования. Дзюдзо желает лишь одного: найти того, кто сделал из него живое оружие, чтобы вернуть потерянные воспоминания. А пока Инуи зарабатывает на жизнь, расследуя дела, (   Читать дальше...   )Производство: Япония, студия Madhouse Studios / マッドハウスЖанр: приключенияРежиссер: Ито НаоюкиЯзык озвучки: Русский дублированный (Wakanim.tv), English дублированный (FUNimation)Субтитры: русские надписи, Русский, English, Français, PortuguêsПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C6E7C06C96ED9350BEB982830F3747A6496CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358851   (786612) от 06.06.2020
-
-Usagi Drop | Брошенный Кролик [2011, TV, 11 ep + 4 sp] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшегося домой на похороны деда, тридцатилетнего холостяка Дайкичи Кавачи просто сбивает с ног шокирующее открытие: у его покойного деда есть незаконнорождённая дочь, которую родила молодая любовница. Остальные члены семьи шокированы в равной степени и возмущены таким сюрпризом — никто не хочет брать на себя ответственность опеки над маленькой молчаливой девочкой (   Читать дальше...   )Производство: Production I.G, ЯпонияЖанр: Комедия, Драма, ПовседневностьРежиссер: Камэй КантаОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи/ПолныеПродолжительность: 11 Эпизодов по 25 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37ADD7B7B08378C8A23C9A7C32092D11CED87EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388540   (786611) от 06.06.2020
-
-Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмма, Норман и Рей — самые яркие дети в приюте «Благодатный дом». И под покровительством женщины, которую они называют «мамой», все дети наслаждаются комфортной жизнью. Хорошая еда, чистая одежда и прекрасная окружающая среда — что ещё может попросить сирота? Однако однажды Эмма и Норман раскрывают тёмную истину внешнего мира, которую доселе от них тщательно скрывали.Производство: CloverWorks, ЯпонияЖанр: Триллер, ДрамаРежиссер: Камбэ МаморуОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 12 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D32458CD06A059D3A0548FD1A34445F86732CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sakurako-san no Ashimoto ni wa Shitai ga Umatte Iru | Beautiful Bones: Sakurako`
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601028.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Natsuyuki Rendezvous / Рандеву под летним снегом (2012, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600528.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Etotama | Etotama: Eto Tamashii | Этотама [2015, TV, 12 + 6sp] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599177.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gyakuten Sekai no Denchi Shoujo | Rumble Garanndoll | Батарейка из о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597767.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Gun x Sword / Огнём и мечом [2005, TV, 26 эп.] BDRip 1080p Raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597675.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Blend S | Садистская смесь [2017, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596345.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Darker Than Black: Kuro no Keiyakusha / Darker Than Black / Темнее чер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592713.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Angel Beats! / Ангельские ритмы! [2010, TV, 13ep + 3sp] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590810.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Маг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590669.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 эп. + 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590285.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Gekijouban Fate/Kaleid Liner Prisma Illya Licht: Namae no Nai Shoujo | Судь�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588967.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Sword Art Online II| Мастера меча онлайн 2 [2014, TV, 25 эп. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588929.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu Omega | How Not to Summon a Demon
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588914.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Higurashi no Naku Koro ni: Sotsu | Higurashi: When They Cry - Sotsu | Когда
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588845.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588839.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi | Ателье Эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587722.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585097.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Saint Seiya: Legend of Sanctuary | Рыцари Зодиака (фильм ше�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584662.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NieA_7 | NieA Under 7 / Ния под_семёркой [2000, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584417.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Sarusuberi: Miss Hokusai / Дочь Хокусая [2015, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584329.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Appleseed XIII | Яблочное зернышко OVA-2 [2011, OVA, 13 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584302.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Selector Infected WIXOSS | Селектор: Заражение WIXOSS [ТВ-1][
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584210.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Kaginado | Key и всякое | Кагинадо [ТВ-1] [2021, TV, 12 из 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583758.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Mahouka Koukou no Rettousei / Mahouka / The Irregular at Magic High School / Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583627.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Tenkuu no Shiro Laputa / Laputa: The Castle in the Sky / Небесный зам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582520.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580266.jpg" />
 </div>
 
 

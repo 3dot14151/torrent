@@ -1,3 +1,29 @@
+###  Публикация: 950760   (367552) от 27.10.2015
+
+Алексей Кунгуров | В.В. Путин. Роль в истории (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Кунгуров, оппозиционный журналист и писатель, посвятил немало своих произведений исследованию деятельности В.В. Путина. «В 2015 году исполнилось 15 лет с того дня, когда Владимир Путин встал во главе совета директоров ЗАО «Российская Федерация», – пишет А. Кунгуров. – Есть повод подвести итоги его полуторадесятилетнего «пахания на галерах»… Давайте рассмотрим (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3571281D0319A5563A0A20D70DFFAA7F6266C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950741   (367550) от 27.10.2015
 
 Валентин Катасонов | Антикризис. Выжить и победить (2015) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367550.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367438.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367338.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366223.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366181.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365995.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365894.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365167.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363807.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363200.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363184.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363152.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361694.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361658.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361490.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361487.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361377.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361354.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361336.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361035.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360948.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360773.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360765.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360532.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360162.jpg" />
 </div>
 
 
@@ -661,34 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF9E215520F1632CE24A0281125D955DBF5849D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070992   (358981) от 10.11.2016
-
-У. Г. Флоуер | Мода на уродование (1883) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наклонность к уродованию или изменению естественной формы некоторых частей тела свойственна человеческой натуре на всех ее ступенях — как самой первобытной и варварской, так и наиболее цивилизованной и утонченной.
-
-Изменения или уродования, о которых мы намерены говорить в настоящем очерке, касаются не тех уродований, которые совершаются отдельными единицами или (   Читать дальше...   )Жанр: История, культурология, антропология, медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB54F34AD83AE7D1A288CA49F9824B880685100
 ```
 
 https://mybot314.ru/tekegram_catalog/

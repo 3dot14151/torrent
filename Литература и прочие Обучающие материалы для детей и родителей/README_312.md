@@ -1,3 +1,59 @@
+###  Публикация: 726168   (340012) от 24.11.2013
+
+Аванта+ | Биология [Том 2] (1996) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340012.jpg" />
+</div>
+
+
+###  Подробнее
+
+В томе «Биология» читатель найдёт подробные сведения о царствах живого мира, о разнообразии форм растений, животных, грибов и микроорганизмов. Более двухсот очерков книги рассказывают о конкретных видах и группах живых организмов, их происхождении, жизнедеятельности, поведении и т. д. Значительное внимание в этих очерках уделено истории взаимоотношений человека и живой природы, процессу её познания.
+В разделе «Жизнь», например, содержатся краткие сведения об основных биологических понятиях, законах и процессах (таких, как эволюция, клетка, питание, движение, размножение, законы генетики и др.). Раздел «Выдающиеся биологи» посвящён истории биологии и содержит биографии 19 учёных, сформировавших её как науку — от Гиппократа и Аристотеля до В. Вернадского и Н. Вавилова.
+Книга рассчитана на детей среднего и старшего школьного возраста, их преподавателей и родителей, а также всех тех, кто интересуется биологией. Все вышедшие тома «Энциклопедии для детей» рекомендованы Управлением развития общего среднего образования (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F2876F751A507CDF28E29643F2B02CF96631A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726226   (339999) от 24.11.2013
+
+Аванта+ | История России [Том 5] (1996-1997) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга первая "История России и её ближайших соседей" представляет отечественную историю со времён древних славян до XVIII века.
+Вторая книга тома "История России и её ближайших соседей" посвящена отечественной истории XVIII-XIX столетий.
+Третья книга "История России. XX век" рассказывает об отечественной истории XX столетия до начала 90-х гг. включительно.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8493CF1E0B6C9A2D32F2FDF31C84AF7382F55D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419543   (339983) от 28.10.2020
 
 Дарья Ермакович | Подарок лучшим детям. Подарок для почемучек (2017) [PDF]
@@ -6,7 +62,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339983.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339851.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339847.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338826.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338807.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338753.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338751.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338694.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338692.jpg" />
 </div>
 
 
@@ -245,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338670.jpg" />
 </div>
 
 
@@ -272,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338639.jpg" />
 </div>
 
 
@@ -298,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338299.jpg" />
 </div>
 
 
@@ -326,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337956.jpg" />
 </div>
 
 
@@ -355,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337954.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337912.jpg" />
 </div>
 
 
@@ -411,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337878.jpg" />
 </div>
 
 
@@ -438,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337847.jpg" />
 </div>
 
 
@@ -467,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337802.jpg" />
 </div>
 
 
@@ -493,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337731.jpg" />
 </div>
 
 
@@ -524,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337588.jpg" />
 </div>
 
 
@@ -550,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337581.jpg" />
 </div>
 
 
@@ -577,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337576.jpg" />
 </div>
 
 
@@ -603,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337503.jpg" />
 </div>
 
 
@@ -629,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337347.jpg" />
 </div>
 
 
@@ -640,59 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53828D13C5FAD817E8019C2A5E7A6C352C17BA05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180910   (337019) от 05.11.2017
-
-Е.А. Андреева | Русский язык. Суперрепетитор для подготовки  к ЕГЭ (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит основные правила русского языка, изучаемые в средней и старшей школе. Материал изложен в доступной форме и соответствует требованиям ФГОС.
-Более 150 упражнений по всем разделам орфографии, синтаксиса и пунктуации и задания для комплексного анализа текста дадут возможность повторить пройденный материал и подготовиться к любым экзаменам, в том числе (   Читать дальше...   )Жанр: ЕГЭ, русский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1C5EFF160322B6C82E5835F5DAE92E633AA4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180774   (337018) от 05.11.2017
-
-И.В. Ященко, С.А. Шестаков | Я сдам ЕГЭ! Математика. Модульный курс. Методика подготовки. Ключи и ответы (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модульный курс «Я сдам ЕГЭ!» создан авторским коллективом из числа членов Федеральной комиссии по разработке контрольных измерительных материалов и экспертов ЕГЭ. Учебное пособие «Типовые задания» предназначено для подготовки обучающихся 10—11 классов к государственной итоговой аттестации. Оно посвящено практической отработке навыков решения задач, выполнения типовых (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F772A41D8F75AD534A2A692C62FA6D152D04189
 ```
 
 https://mybot314.ru/tekegram_catalog/

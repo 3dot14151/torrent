@@ -1,3 +1,56 @@
+###  Публикация: 1048845   (545682) от 03.09.2016
+
+Евгений Новоселов, Юрий Мысин | Думалогия. Обучение через приключения в Египте (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545682.jpg" />
+</div>
+
+
+###  Подробнее
+
+История книги о двух любопытных подростках (Макс и Лиза) и их мудром дядюшке Карле, который скрывает много секретов от своих племянников. Время от времени он делится этими секретами и ребята в восторге от гениальности его идей. Но есть вещи, которые, по мнению, Карла, подросткам знать необязательно. В очередной раз Лиза и Макс спешат наведаться в гости к дядюшке, (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390DA98975032935AA14827D13E0DB8D1FF619CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048865   (545669) от 03.09.2016
+
+Галина Губанова (ред) | Русские сказки (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник самых известных и любимых юными читателями волшебных русских народных сказок, в том числе "Царевна-лягушка", Финист - ясный сокол", "Иван-царевич и серый волк" и др. Книга красочно иллюстрирована.
+ Для младшего и среднего школьного возраста.Жанр: СказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063E966562D3E28FF99F3D1F57551A61F068E985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048719   (545640) от 03.09.2016
 
 Саша Готти | Влада. Бал Темнейшего (2016) [FB2]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545640.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545603.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545561.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545511.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545438.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545338.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545302.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545288.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545286.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545256.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545255.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545254.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545248.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545243.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545233.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545206.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545204.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545187.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545182.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545180.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545168.jpg" />
 </div>
 
 
@@ -571,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545148.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545144.jpg" />
 </div>
 
 
@@ -624,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545134.jpg" />
 </div>
 
 
@@ -637,60 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40AF373CBE5D1E17970720D30188F153A809E4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309640   (545110) от 26.06.2019
-
-Яков Перельман | Занимательная физика и механика (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько сил действует на движущийся предмет? Ответить не сложно, если ты уже начал изучать физику и механику – один из ее разделов, посвященных изучению движения тел и их взаимодействия. Из этой книги ты узнаешь, что такое противодействие, как вычислить тягу, какой материал самый крепкий, что такое инерция, как измерить скорость дождя, почему деревья не растут до (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1A6513D7876F1AC3D1677A56407B968A17EF15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308122   (545103) от 26.06.2019
-
-Яков Перельман | Головоломки и весёлые задачи. Развиваем логику (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545103.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «Головоломки и весёлые задачи. Развиваем логику» юный читатель найдёт немало любопытных, оригинальных математических задач и занимательных логических головоломок, которые развивают сообразительность, интеллект, любознательность, умение логически рассуждать и нестандартно мыслить, а также тренируют память.
-
-Для среднего школьного возраста.Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46675C48053B4D21F852DBFB83C055EFBE12A223
 ```
 
 https://mybot314.ru/tekegram_catalog/

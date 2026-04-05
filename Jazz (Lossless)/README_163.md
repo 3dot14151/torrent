@@ -6,7 +6,7 @@ Miles Davis (1953 - 2006) 32 альбома [FLAC, APE, WV|tracks+.cue, image+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_510606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_510606.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Roland Kirk - Introducing (1960) /1990, Chess Records/ [FLAC|tracks+.cue]<Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510331.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Marc Ribot - Live At The Village Vanguard (2012) /2014, Pi Recordings/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510279.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Dirty Dozen Brass Band - The New Orleans Album (1990) /Columbia/[APE|tracks+
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510277.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bruno Angelini - Instant Sharings (2015) [FLAC|tracks+.cue]<Contemporary Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509554.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Lew Tabackin Quartet - Desert Lady (1990) /Concord Jazz/[FLAC|tracks+.cue]<H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509553.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Marie Seferian Quartett - Mille Nuits (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509551.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ted Curson - Quicksand (1974) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509549.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ John Coltrane - First Meditations (for quartet) (1965) /2015, Universal/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509545.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Clark Terry - Three Classic Albums (1958 - 1960) 2CD, 2011, Real Gone Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509289.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mound City Blue Blowers - 1935 - 1936 (1996) Classics [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508908.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Blue Mitchell - Out Of The Blue (1958) /1991, Riverside/[FLAC|tracks+.cue]<Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508398.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ John Patton - That Certain Feeling (1968) /2014, Universal/[FLAC|tracks+.cue]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508397.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Clark Terry with Thelonious Monk - In Orbit (1958) /1987, Riverside/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508396.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Akua Dixon - Akua Dixon (2014) [FLAC|Lossless|WEB-DL]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508393.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ E.J. Strickland Quintet - The Undying Spirit (2015) [FLAC|tracks|WEB-DL]<Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508390.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Anita Baker - The Song'stress (1983) /1991, Elektra/[FLAC|tracks+.cue]<Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508325.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sarah Maclaine - The Heart Of Me (2015) [FLAC| image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508318.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hugh Coltman - Shadows Songs Of Nat King Cole (2015) [FLAC|tracks|WEB-DL]<Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508315.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Halie Loren - Butterfly Blue (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508166.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Clark Terry & Max Roach - Friendship (2002) Village Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507803.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ John Coltrane - My Favourite Things (1991) /ORO/[FLAC|image+.cue]<Avant-Garde Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507260.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kenny Burrell - For Charlie Christian And Benny Goodman (1966/1967) /1991, Par M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507256.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Emily McEwan - In The Wee Small Hours (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507254.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ John Coltrane - The Golden Age Of Jazz: My Favorite Things in Concert & Other Ra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507250.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ June Bisantz - It's Always You June Bisantz Sings Chet Baker Vol. 2 (2015) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507242.jpg" />
 </div>
 
 

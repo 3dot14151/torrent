@@ -1,3 +1,31 @@
+###  Публикация: 952199   (353039) от 02.11.2015
+
+Анатолий Фоменко, Глеб Носовский | Бог войны (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353039.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей книге дается общее представление о реконструкции истории, предложенной авторами на основе Новой хронологии, а также обсуждается ряд новых важных вопросов, связанных с этой реконструкцией.
+В книге излагаются в основном новые результаты полученные авторами в последнее время.
+Много места отведено новому взгляду на «античного» бога войны Марса (Ареса). Оказывается, (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211E897ABDEC6C95D8973121F4EED48955505065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329430   (352372) от 05.10.2019
 
 Н. В. Васильев | 60 лет борьбы за 8-ми часовой рабочий день (1917) [PDF]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352372.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352255.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352130.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351667.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351481.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351475.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351288.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351112.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350961.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350492.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349617.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347848.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347773.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347770.jpg" />
 </div>
 
 
@@ -380,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347598.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346815.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345993.jpg" />
 </div>
 
 
@@ -460,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345918.jpg" />
 </div>
 
 
@@ -488,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345790.jpg" />
 </div>
 
 
@@ -514,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345651.jpg" />
 </div>
 
 
@@ -542,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345497.jpg" />
 </div>
 
 
@@ -570,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345354.jpg" />
 </div>
 
 
@@ -596,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344444.jpg" />
 </div>
 
 
@@ -623,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344397.jpg" />
 </div>
 
 
@@ -649,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342513.jpg" />
 </div>
 
 
@@ -661,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:347D00AD03439F5D1F44BB1D5B52A4B871EF9A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180046   (342348) от 03.11.2017
-
-Елена Семёнова | Добровольцы. Век XXI. Битва за Новороссию в портретах её героев (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военная слава часто бывает несправедлива. В народной памяти обычно остаются лишь имена вождей и командиров (даже тех, что бывали оной не очень-то и достойны), редко - отдельных рядовых бойцов, волею судьбы вырванных из многотысячного строя имяреков. А ведь среди тех воинов-имяреков куда как немало ещё героев, чьи подвиги нисколько не уступали известным. Но их имена (   Читать дальше...   )Жанр: История, ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B0BEDA40BEE20D3A757A3FEBA05446C0CB642A
 ```
 
 https://mybot314.ru/tekegram_catalog/

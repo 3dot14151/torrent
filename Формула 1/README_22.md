@@ -1,3 +1,119 @@
+###  Публикация: 1671263   (171377) от 24.10.2023
+
+Формула 1. Сезон 2023. Этап 19. Гран-при США. Квалификация к спринту. Спринт. Гонка (21-22.10.2023) UHDTV [H.265/2160p] [50fps] [10-bit] Sky Sports F1 UHD
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 19. Автодром Трасса Америк (Остин, США).
+Квалификация к спринту. 21 октября 2023, суббота.
+Спринт. 21 октября 2023, суббота.
+Гонка. 22 октября 2023, воскресенье.(   Читать дальше...   )Телекомпания: Sky Sports F1 UHDЖанр: АвтоспортЯзык озвучки: Русский, Английский.Продолжительность: Квалификация к спринту (SprintShootout) - 0:53:29
+Спринт - 0:51:02
+Гонка - 02:08:37Реклама: Присутствуют аудио и видео вставки рекламы транслятора.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086DEA7040C8A1B6DA243ADAE13B6E3D3014C47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515154   (169971) от 06.12.2021
+
+Формула 1. Сезон 2021. Этап 21. Гран-при Саудовской Аравии. Гонка (05.12.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Саудовской Аравии. Гонка
+Арена: Городская трасса Джидда (Джидда, Саудовская Аравия),
+05 декабря 2021, воскресенье. 20:30 МСКТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0873BDDF8C1ABCD22C5A44A3BF0E0B7F30FF1DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515158   (169966) от 06.12.2021
+
+Формула 1. Сезон 2021. Этап 21. Гран-при Саудовской Аравии. Гонка (05.12.2021) HDTVRip [H.264/1080p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 21. Арена: городская трасса Джидда (Джидда, Саудовская Аравия).
+Гонка. 5 декабря 2021, воскресенье.
+
+Картинка с F1 TV, без рекламы.Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Матч ТВ: Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский (SkySports F1HD).Субтитры: отсутствуютПродолжительность: 02:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0287F44A191E7F549DBD351C3E167E146ED88749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430935   (169397) от 11.12.2020
+
+Формула 1. Сезон 2020. Этап 17. Гран-при Абу Даби. Свободная практика 1 (11.12.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Абу-Даби . Свободная практика 1
+Арена: Автодром Яс Марина (Абу-Даби, ОАЭ)
+11 декабря 2020, пятница. 12:00 МСКТелекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB38898A23DAEE6669A857098FAE7BD3ED36BCEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430936   (169395) от 11.12.2020
 
 Формула 1. Сезон 2020. Этап 17. Гран-при Абу Даби. Свободная практика 2 (11.12.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +122,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169395.jpg" />
 </div>
 
 
@@ -34,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168983.jpg" />
 </div>
 
 
@@ -63,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168934.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168864.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168390.jpg" />
 </div>
 
 
@@ -147,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168373.jpg" />
 </div>
 
 
@@ -175,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167872.jpg" />
 </div>
 
 
@@ -201,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167302.jpg" />
 </div>
 
 
@@ -229,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167296.jpg" />
 </div>
 
 
@@ -257,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167002.jpg" />
 </div>
 
 
@@ -287,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166945.jpg" />
 </div>
 
 
@@ -313,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166931.jpg" />
 </div>
 
 
@@ -343,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165788.jpg" />
 </div>
 
 
@@ -371,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164231.jpg" />
 </div>
 
 
@@ -400,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164217.jpg" />
 </div>
 
 
@@ -429,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164166.jpg" />
 </div>
 
 
@@ -457,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162232.jpg" />
 </div>
 
 
@@ -483,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161971.jpg" />
 </div>
 
 
@@ -509,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161928.jpg" />
 </div>
 
 
@@ -535,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161240.jpg" />
 </div>
 
 
@@ -561,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161190.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160810.jpg" />
 </div>
 
 
@@ -598,110 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAFEA6FD9BF6D42AD479B8F708ECE07BC8F3B818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826173   (152353) от 18.10.2025
-
-Формула 1. Сезон 2025. Этап 19. Гран-при США. Спринт-квалификация (18.10.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152353.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 октября 2025 суббота 00:30 МСК этап 19, Остин. Гран-при США. Спринт-квалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C34D0497959F07574DE25AF9F218D1A4A1A0180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677676   (150393) от 18.11.2023
-
-Формула 1. Сезон 2023. Этап 22. Гран-при Лас-Вегаса. Квалификация (18.11.2023) WEBRip [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150393.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 ноября 2023, суббота 11:00 МСК. Этап 22, США. Гран-при Лас-Вегаса. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E13003655E2ADABC3438BB074EC5B41D4771D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678154   (146993) от 20.11.2023
-
-Формула 1. Сезон 2023. Этап 22. Гран-при Лас-Вегаса. Гонка (19.11.2023) WEBRip [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146993.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 ноября 2023, воскресенье 09:00 МСК. Этап 22, США. Гран-при Лас-Вегаса. Гонка (50 кругов)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBC58605A5E5F62F1C6D37E7C388CB58159B313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679628   (135182) от 26.11.2023
-
-Формула 1. Сезон 2023. Этап 23. Гран-при Абу-Даби. Квалификация (25.11.2023) WEBRip [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135182.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 ноября 2023, суббота 17:00 МСК. Этап 23, Абу-Даби, ОАЭ. Гран-при Абу-Даби. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6C8292807BA0601351A89EA2FB2941EBEB81D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

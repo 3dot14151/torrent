@@ -1,3 +1,133 @@
+###  Публикация: 387233   (130770) от 09.12.2023
+
+Про паучка, с которым никто не дружил (1975) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультик о некрасивом паучке, который стыдился своей внешности, но благодаря приветливому ослику заслуженно обрел сразу множество друзей!Производство: СССР, Волгоградское телевидениеЖанр: детский, кукольный, сказкаРежиссер: Григорий ВолковАктеры: Маргарита Корабельникова, Мария Виноградова, Г. Дмитриева, Т. Сапожникова, Михаил ЛобановСубтитры: ОтсутствуютПродолжительность: 00:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6DF94F29ADC92825656C4EEFCD37BD17278003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863775   (130764) от 09.12.2023
+
+Как лисы с курами подружились (1980) TVRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм по мотивам повести Яна Экхольма «Тутта Карлсон, первая и единственная, Людвиг Четырнадцатый и другие» и других скандинавских сказок.Производство: СССР, Свердловская студия телевиденияЖанр: Детский, КукольныйРежиссер: Михаил ШаровСубтитры: ОтсутствуютПродолжительность: 00:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBE66514C25FA1025639FBB8462A9605F741C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479425   (130760) от 09.12.2023
+
+Школа помощников (1986) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм по сценарию Григория Остера. Кукла-Директор и Микрофончик учат детей домашней работе.Производство: СССР, ТО «Экран»Жанр: детский, кукольный, приключения, музыкальныйРежиссер: Ольга Розовская, Юлиан КалишерАктеры: Игорь Ясулович, Александр ЛеньковПродолжительность: 00:15:41 / 00:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679AB5C0436C55404ABAFC32D21A3D24AF3A511F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356908   (130757) от 09.12.2023
+
+Почему заяц прячется (1982) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как заяц сторожил капусту.Производство: СССР, КуйбышевтелефильмЖанр: детский, кукольныйРежиссер: Александр ПолушкинСубтитры: ОтсутствуютПродолжительность: 00:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC59637DDD3C1368DFA917DF563FF62501AAEFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533872   (130755) от 09.12.2023
+
+Приключения поросенка Фунтика (1986-1988) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поросёнок Фунтик сбегает от своей хозяйки, госпожи Беладонны, злой и жадной владелицы универмага «Слеза ребёнка», потому что не хочет обманывать детей и ложью выманивать у них деньги для Беладонны. Хозяйка начинает безжалостно преследовать поросёнка, который приносил ей очень неплохой доход. Ей помогают тупой начальник полиции Фокстрот и суетливые сыщики Добер и (   Читать дальше...   )Производство: СССР / ТО «Экран»Жанр: Мультфильм, короткометражкаРежиссер: Анатолий СолинАктеры: Армен Джигарханян, Ирина Муравьёва, Ольга Аросева, Юрий Волынцев, Спартак Мишулин, Зоя Пыльнова, Анатолий Баранцев, Георгий Бурков, Борис Рунге, Андрей Колков, Раиса МухаметшинаПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: ~00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F60C1DC1ED485C4809CE147270E08715649132F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596819   (130748) от 31.12.2012
 
 Сборник из цикла Вертепъ (1990-1993 г.г.) DVDRip, TVRip
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130748.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130729.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130727.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130725.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130724.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130723.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130722.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130714.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130705.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130700.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130697.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130695.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130679.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130678.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130658.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130649.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130644.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130639.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130637.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130635.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130628.jpg" />
 </div>
 
 
@@ -542,138 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A407546B6ED5F61A23E8557AE9555C988C2BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207792   (130625) от 09.12.2023
-
-Приключения капитана Врунгеля (1976-1979) BDRemux [H.264/1080p] (серии 01-13 из 13)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселая повесть о невероятных приключениях капитана Врунгеля, его старшего помощника Лома и матроса Фукса, совершивших кругосветное путешествие на яхте «Беда».Производство: СССР, КиевнаучфильмЖанр: Детский, Приключения, Комедия, МузыкальныйРежиссер: Давид ЧеркасскийСубтитры: ОтсутствуютПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A3A2892D9C7FD2FF9F7159BBDAC06ABD6D51A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610965   (130623) от 09.12.2023
-
-Алиса в стране чудес / Alice in Wonderland (1951) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убежав из дома, Алиса увидела под старой яблоней большого белого кролика, одетого в куртку и жилет. Достав из кармана часы, кролик торопливо скрылся в подозрительно темной норе. Набравшись смелости, Алиса шагнула вслед за ним...и попала в чудесный сказочный мир, где сбываются самые несбыточные фантазии. Чтобы попасть обратно домой, Алисе придется совершить путешествие (   Читать дальше...   )Производство: США, Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, приключения, семейныйРежиссер: Клайд Джероними, Уилфред Джексон, Хэмильтон ЛаскиАктеры: Катрин Бомонт, Эд Винн, Ричард Хейдн, Стерлинг Холлоуэй, Джерри Колонна, Верна Фелтон и др.Перевод: Дублированный (вкл. песни), двухголосый, многоголосый, авторскийСубтитры: Русские, АнглийскиеПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5FA9752DB74DD1498A67EE2527395FE68F4A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 80364   (130618) от 09.12.2023
-
-Великолепный Гоша (1981-1985) DVDRip (10 серий)
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник комических фильмов о незадачливом Гоше, с которым вечно что-то случается...Производство: СССР, ТО «Экран»Жанр: ДетскийРежиссер: Анатолий СолинСубтитры: ОтсутствуютПродолжительность: 10 х ~ 00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E8B3BC046EB926EB3D06060EDCC29473B1C4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300463   (130604) от 09.12.2023
-
-Весь Незнайка (Приключения Незнайки и его друзей, Незнайка в Солнечном городе, Незнайка на Луне) (1971-1999) DVDRip [H.264] (32 серии)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130604.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Цветочном городе живут коротышки — маленькие человечки, малыши и малышки: Астроном Стекляшкин, поэт Цветик, ученый Знайка, доктор Пилюлькин, музыкант Гусля, художник Тюбик, механики Винтик и Шпунтик, Пончик, Сиропчик и многие-многие другие.
-Но самым известным среди коротышек был малыш по имени Незнайка, который прославился тем, что ничего не знал.Производство: СССР, ТО «Экран»Жанр: Кукольная анимация, Компьютерная анимация, Приключения, МинисериалРежиссер: Юрий Трофимов, В. Голиков, Александр Боголюбов и др.Субтитры: отсутствуютПродолжительность: ~ 00:12:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7F9D4B4D0ACB2D04761CC01ACC08A3BB898549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445027   (130600) от 09.12.2023
-
-Казаки. Сборник мультфильмов (1965-1995) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130600.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Казаки» - серия мультипликационных фильмов, снятых в СССР на украинской киностудии «Киевнаучфильм» режиссёром Владимиром Дахно.
-Главными героями серии являются три запорожских казака: верзила, коротышка и силач (по сценарию носят имена Грай, Око и Тур, соответственно, но в самом сериале всегда безымянны. Верзила хитёр и рассудителен, Коротышка - бодр и воинственен (   Читать дальше...   )Производство: СССР, КиевнаучфильмЖанр: Рисованная анимацияРежиссер: Владимир ДахноСубтитры: ОтсутствуютПродолжительность: 02:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C645788D2F26450F0BFFF3AD63E76C60D517151
 ```
 
 https://mybot314.ru/tekegram_catalog/

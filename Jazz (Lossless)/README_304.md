@@ -6,7 +6,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Remaster, 2023, MVKA/Grandmono R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122535.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Caro Emerald - Live In Glasgow (2015) Remaster, 2024, MVKA/Grandmono Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122505.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Nu Urban Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122503.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Deluxe Edition [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122501.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mildred Bailey - 1938 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122492.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ran Blake Trio - Sonic Temples (1998) 2CD, 2001, GM Recordings [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122346.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Freddie Hubbard - Music Is Here (1973) 2022, Wewantsounds [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122345.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mildred Bailey - 1932 - 1936 (1999) Classics [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122321.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Joe Taylor - Westside Chill - Joe Taylor - Westside Chill (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122153.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - The Quiet Storm Soothing Easy Listening Warm Tunes (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122151.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ruth Price - Sings With Johnny Smith (1956) 2002, Toshiba-EMI [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122000.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sonny Stitt - My Mother's Eyes (1963) 2011, EMI Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121993.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ruby Braff - And His New England Songhounds, Vol. 2 (1992) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121990.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ella Fitzgerald - Three Classic Albums Plus (1960, 1961) 2CD, 2014, Avid Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121860.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Howard Alden & Jack Lesberg - No Amps Allowed (1988) Chiaroscuro Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121817.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Aaron Diehl & The Knights - Zodiac Suite (2023) Mack Avenue [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121707.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ V.A. - Chillout Covers Collection Vol.6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121700.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Susannah McCorkle - How Do You Keep The Music Playing? (1985) 2000, The Jazz All
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121668.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Relaxing Carefree Romantic Smooth Jazz Ride (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121288.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Instrumental Wedding Music Zone, Relaxing Piano Music - Sexual Sounds (2019) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121278.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dave Brubeck Quartet - Debut in the Netherlands 1958 (1958) 2022, The Lost Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121276.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Beegie Adair & Monica Ramey - Some Enchanted Evening (2016) Green Hill [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121273.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Beegie Adair & Friends - Jazz Romance: 15 Sentimental Love Songs (2016) Green Hi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121266.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Maestros Del Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121263.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Misha Tsiganov - Playing With The Wind (2018) Criss Cross Jazz [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121246.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Erik Andresen's Quartet - GIP (1971) 2018, Jazzaggression Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121100.jpg" />
 </div>
 
 

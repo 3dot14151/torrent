@@ -1,55 +1,3 @@
-###  Публикация: 1274458   (792697) от 07.01.2019
-
-Помешанный на времени / Time Freak (2018) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бросила девушка? Неужели уже ничего нельзя изменить? Можно! Студент-физик изобретает машину времени и отправляется в недалекое прошлое, чтобы исправить ошибки. В результате фатального сбоя главным действующим лицом этой любовной истории становится его лучший друг. С кем же останется девушка?Производство: США | QC Entertainment,Rhodes Entertainment,Beach PicturesЖанр: Фантастика, Драма, Мелодрама, КомедияРежиссер: Эндрю БоулерАктеры: Эйса Баттерфилд, Софи Тернер, Скайлер Гизондо, Обри Рейнольдс, Джозеф Парк, Кэйден Дж. Грегор, Корал Чэмберс, Марк Блокович, Мэри Элизабет Бойлэн, Ками КристиансенПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E5F88C8B8B00F450A95253DD55D545985BE28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509731   (792616) от 14.11.2021
-
-Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) WEB-DLRip [H.264] [IMAX Edition]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия, Fox Studios Australia, Marvel Studios Inc., Walt Disney PicturesЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВаПеревод: Дублированный (Невафильм / КиноПоиск HD)Язык озвучки: Русский, АнглийскийСубтитры: русские (форсированные, полные), английские (форсированные, полные, SDH)Продолжительность: 02:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982867400F8D029A318139B027790EFBC587AB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509888   (792609) от 14.11.2021
 
 Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) WEBRip [H.264] [Локализованный видеоряд]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792609.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792545.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792509.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792436.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792367.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792355.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792344.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792302.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792171.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792158.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792096.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792068.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791998.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791905.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791898.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791870.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791863.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791749.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791618.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791564.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791394.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791373.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791369.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791323.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9CB9B1D8369AAE25EAE2920BFD1B0BA6B2649DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510411   (791241) от 16.11.2021
+
+Искушение / Blessed Virgin / Benedetta (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Италия, XVII век. Место, где великая красота хладела в руках инквизиторов. Терзаемая эротическими видениями монахиня Бенедетта Карлини влюбляется в новую послушницу, пылкую и безрассудную. Вскоре об их запретной страсти узнают за пределами монастыря.Производство: Франция, Бельгия, Нидерланды / Pathe, Netherland Filmfund, SBS Productions, Belga Productions, Topkapi FilmsЖанр: Драма, мелодрама, биография, историяРежиссер: Пол ВерховенАктеры: Виржини Эфира, Шарлотта Рэмплинг, Дафна Патакия, Ламбер Вильсон, Оливье Рабурден, Луиз Шевильот, Эрве Пьер, Клотильда Куро, Давид Клавель, Гилен ЛондезПеревод: Любительский многоголосый (MuzoboZ)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF1CDF72BA2348F972FB7B50996CCF1D2DF62E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510287   (791233) от 16.11.2021
+
+Ночные рейдеры / Night Raiders (2021) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалекое будущее. США находятся под оккупацией, а в государстве воцарился тоталитарный режим. Власти отбирают у родителей детей, считая их своей собственностью. Отчаявшаяся мать, у которой отняли дочь, вступает в подпольную банду, которая похищает детей из государственных приютов и возвращает родителям.Производство: Канада, Новая Зеландия / Alcina Pictures, Eagle Vision, Miss Conception FilmsЖанр: Криминал, драма, триллерРежиссер: Данис ГулеАктеры: Эль-Майя Тэйлфизерс, Brooklyn Letexier-Hart, Алекс Таррант, Аманда Пламмер, Шон Сайпос, Violet Nelson, Гэйл Морис, Сюзанн Кир, Памела Мэтьюз, Скотт БаркерПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B461D5259026BB1F8C5BB770AA48326055A7C4E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

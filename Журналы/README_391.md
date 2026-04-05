@@ -1,3 +1,133 @@
+###  Публикация: 949076   (377329) от 23.10.2015
+
+Журнал | Железный мир №10 (октябрь 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Железный мир» - ведущее профессиональное издание, посвященное силовым видам спорта. Он отражает события, происходящие в мире бодибилдинга, пауэрлифтинга, армрестлинга, серии «Стронгмен». Много материалов посвящено методикам построения тренировочного процесса и спортивного питания, советам профессиональных спортсменов. Представлены информация о соревнованиях (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194C964A319B1F7B75848AC2E85DE31A2A6586B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949394   (377239) от 23.10.2015
+
+Журнал | UPgrade №36 (741) (октябрь 2015) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377239.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPgrade – самый популярный еженедельный компьютерный журнал России. В нем рассматривается самые интересные новинки компьютерного железа, даются многочисленные полезные советы и рекомендации, как сделать работу на компьютере удобной и эффективной. Искрометный юмор авторов не даст вам заскучать, даже читая о сложных вещах!Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF80139A5FF1B751EB2D370A14EF1852B161BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720804   (377187) от 09.11.2013
+
+Журнал | Linux Format [UK] №178 (christmas 2013) [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Format (UK) легендарный, британский, ежемесячный журнал на английском языке, целиком посвящённый операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках, обучающих программах, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6944BDD2BDC4B5DE418CFBBACA8E3714B39DAB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575362   (377092) от 09.09.2022
+
+Журнал | Electronics For You Express №8 (август 2022) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электроника для Вас - это журнал для людей, увлеченных электроникой и технологиями. Начиная с первого выпуска в 1969 году, журнал EFY публикует лучшие обзоры продуктов, сравнения аппаратного и программного обеспечения, технические новости, анализ, новости электроники, о продуктах, компонентах, компьютерном оборудовании, источниках питания, автоматизации промышленности (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8AC9DE5DA789511EF8D663F25FF727EE35ACD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175615   (376777) от 19.10.2017
+
+Газета | 1000 секретов [Украина] №20 (октябрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376777.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8D760B779726B91D607BE662204E5278D1C74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175708   (376775) от 19.10.2017
 
 Журнал | The World of Interiors №11 (ноябрь 2017) [PDF] [En]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376775.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376768.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376629.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376627.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376551.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376426.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376277.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376273.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376197.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376128.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376123.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376119.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375982.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375926.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375856.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375708.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375685.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375275.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375236.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375132.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374754.jpg" />
 </div>
 
 
@@ -537,141 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2569360417C824AA026A95C233ACB3BC246E5A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176078   (374558) от 20.10.2017
-
-Журнал | Дарья. Биография №10 (октябрь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
-Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Жизнь знаменитых людейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2507BC10F488975F997ADBCEB40CC5E5194D6A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176099   (374446) от 20.10.2017
-
-Журнал | Дарья. Биография №11 (ноябрь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
-Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Жизнь знаменитых людейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7599F71A8FFFABA51F70E3A34CD309F28824119D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176103   (374445) от 20.10.2017
-
-Журнал | Люблю цветы! Спецвыпуск №1/С (2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374445.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Люблю цветы!» – это журнал о садовых и домашних цветах, декоративных растениях. Каждый номер содержит бесценный опыт выращивания, ухода за цветами, борьбы с вредителями. Множество практических советов посвящено роли цветов в интерьере дома и ландшафте дачного участка, целительным свойствам растений, «цветочной» кулинарии, искусству букета.Жанр: ЦветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3219A2E44C2CFEE0AAFA811946D762D574EDAD03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176059   (374444) от 20.10.2017
-
-Журнал | Кушать подано №7-8 (2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374444.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Кушать подано!" - полноцветный глянцевый кулинарный журнал для тех, кто любит готовить и делает это с удовольствием. В каждом номере - свыше пятидесяти рецептов простых и в то же время, изысканных блюд, советы по выбору бытовой техники, аксессуаровЖанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7266D3B58FB9251B88E0CF480C359D089D9F43B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327340   (374394) от 25.09.2019
-
-Журнал | Мир фантастики №7 (июль 2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгий путь русскоязычной индустрии настольных игр.
-Dungeons & Dragons не сразу стала великой.
-20 лет исполняется мультфильму " Стальной гигант" и 25 лет с премьеры "Маски".
-Захватывающий рассказ о том, как зарождалась киновселенная Marvel.(   Читать дальше...   )Жанр: Журнал фантастикиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C6FA93D877A08D3D93367B9C56ED658E960A4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

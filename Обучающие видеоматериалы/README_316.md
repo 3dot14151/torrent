@@ -1,3 +1,29 @@
+###  Публикация: 1801116   (15175) от 09.06.2025
+
+LiveClasses, Дмитрий Ларионов | Подготовка монтажа к отправке звукорежиссёру в Premiere Pro (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед тем как отправить монтаж на финальное озвучание, важно правильно подготовить проект — иначе звукорежиссёр получит хаос вместо стройной структуры. В этом мастер-классе вы шаг за шагом освоите процесс подготовки: от создания референс-видео с таймкодом и пипами до экспорта AAF с нужными настройками. Вы узнаете, какие параметры нужно заранее согласовать со студией, (   Читать дальше...   )Производство: LiveClassesЖанр: видеокурс, обучающий курс, видеомонтажЯзык озвучки: русскийПродолжительность: 00:41:34Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255CDE9000FF2C2D71D850F6C3B56E5CD93B4B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801173   (15156) от 09.06.2025
 
 НТВ | Дачный ответ (2025) SATRip [12 выпусков (08.06.2025)] [RU]
@@ -6,7 +32,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15156.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15011.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14986.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Gumroad, Dan Kenton | Magazine Texturing Tutorial (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14969.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14262.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ ArtStation, LaurentiuN | Ultimate 3D Weapon Tutorial for Portfolio (2025) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14021.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13839.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Stepik, Марина Эрштейн | ИИ-помощники в подгото�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13822.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Gumroad, Cane Townsend | Hard Surface in Blender [Part 1-2] (2025) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13820.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13794.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13789.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ Maxim School, Максим Куксов | Контргамбит Альбина 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13786.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) W
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13784.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13629.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13397.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ Chessable, Can Kabadayi | The Chess Elevator: Climb to 1200 and Beyond (2024) WE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13298.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12917.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ owlsova | Авитолог 2025 (2025) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12878.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12834.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ Skillfactory, Илья Ибрагимов, Валентин Матвейчик, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12833.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ FIN-RA, Дмитрий Толстяков | Инвест-зарплата (Та�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12596.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ dometrain, Nick Chapsas | From Zero to Hero: Dependency Injection in .NET (2024)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12579.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12485.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ Udemy, Yasar VURDEM | Digital Hair Painting Masterclass: Realistic Techniques (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11935.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ Udemy, Expert Azi, Md Azizul | Level Up Your UI/UX: Interactive Design & Prototy
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11857.jpg" />
 </div>
 
 
@@ -671,35 +697,6 @@ Udemy, Expert Azi, Md Azizul | Level Up Your UI/UX: Interactive Design & Prototy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E8BE4DEA12648BFEB5B0913DB1F48A83E743673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806249   (11834) от 11.07.2025
-
-Udemy, Marco Paoletta | Godot 4 Fast Lane: Game Development for Absolute Beginners (2025) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс «Кратчайший путь к мастерству Годо» , призванный помочь вам избежать путаницы, избежать бесконечной теории и начать создавать настоящие игры уже сегодня.
-
-Большинство людей пытаются изучить Годо следующим образом:
-- Просматривая случайные руководства, никогда не знаешь, улучшаются ли они.(   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 03:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A48B196619BB1690EE678A036E4D532AEA59565
 ```
 
 https://mybot314.ru/tekegram_catalog/

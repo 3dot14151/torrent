@@ -1,160 +1,3 @@
-###  Публикация: 1671862   (170793) от 26.10.2023
-
-Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это идеальное руководство, которое поможет вам освоить язык программирования Rust. Начиная с его эволюции и сравнения с C/C++, книга поможет вам узнать, как установить и использовать мощный менеджер пакетов Cargo. Затем в книге рассматриваются такие ключевые темы, как связывание и изменяемость, владение, условия, циклы, функции, структуры и перечисления и многое (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D31BD1354CA9BCAE97DA238E9F60C343BF98B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430551   (170352) от 10.12.2020
-
-А.О. Матюшин | Программирование микроконтроллеров: стратегия и тактика (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена программированию встраиваемых систем с применением микроконтроллеров. Материал книги сгруппирован в соответствии со стандартными этапами разработки любого программного обеспечения: анализом требований, проектированием, кодированием, отладкой и тестированием.
-Издание проиллюстрировано примерами на С и анализом получаемого в результате компиляции машинного (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5E6346BD02C3098DBF8B5B782A53F6919D0248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344368   (170178) от 10.12.2019
-
-Todd Lammle | Understanding Cisco Networking Technologies: Volume 1 Exam 200-301 / Сетевые технологии Cisco, том 1. Экзамен 200-301 (2020) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охватывает основные элементы сертификации CCNA: понимание основополагающих принципов компьютерных сетей. Узнайте о сетевых компонентах, услугах и инфраструктуре. Подготовьтесь к следующим шагам к сертификации Cisco. Сетевые технологии Cisco, том 1 - это ваш первый шаг на пути к подготовке к экзамену Cisco EXAM 200-301. Сертификация Cisco - это идеальный способ войти (   Читать дальше...   )Жанр: Компьютерная литература, Сетевые технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FC65795F7478D66971FD0874EFB2D71D3C8689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344366   (169901) от 10.12.2019
-
-Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 2 / Официальное руководство по сертификации CCNA 200-301, Том 2 (2019) [EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доверьтесь самой продаваемой серии официальных сертификатов Cisco Press, которая поможет вам учиться, готовиться и практиковаться для успешной сдачи экзаменов. Он составлен с целью предоставления оценки, обзора и практики, чтобы помочь вам полностью подготовиться к сертификационному экзамену. Эта книга в сочетании с Томом 1 Официального руководства по сертификации (   Читать дальше...   )Жанр: Компьютерная литература, Сетевые технологииФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C06914AEA589D912F34DA2C367415FB1950FF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344276   (169896) от 10.12.2019
-
-Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 1 / Официальное руководство по сертификации CCNA 200-301, Том 1 (2019) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доверьтесь самой продаваемой серии официальных сертификатов Cisco Press, которая поможет вам учиться, готовиться и практиковаться для успешной сдачи экзаменов. Они составлены с целью предоставления оценки, обзора и практики, чтобы помочь вам полностью подготовиться к сертификационному экзамену. Официальное руководство по сертификации CCNA 200-301, том 1, представляет (   Читать дальше...   )Жанр: Компьютерная литература, Сетевые технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E8E6F5BE6ECF3C2A63FEFDC647B970B6083E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509589   (169631) от 27.10.2023
-
-Серия | Мировой компьютерный бестселлер часть 1 [11 книг +11CD,DVD,code] (2010-2021) [PDF][Обновляемая]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название серии "Мировой компьютерный бестселлер" говорит само за себя — в нее входят издания, посвященные компьютерной тематике, ставшие бестселлерами за рубежом. Программирование, веб- и мобильная разработка, веб-дизайн, продвижение и управление сайтами — в этой серии вы найдете только лучшие книги по теме от самых уважаемых авторовЖанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3535270A014222F90D9109223347358EFBC9A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344635   (169539) от 11.12.2019
 
 Raymond Lacoste, Bradley Edgeworth | CCNP Enterprise Advanced Routing ENARSI 300-410 Official Cert Guide / Официальное руководство по сертификации CCNP ENARSI 300-410 (2020) [EPUB] [EN]
@@ -163,7 +6,7 @@ Raymond Lacoste, Bradley Edgeworth | CCNP Enterprise Advanced Routing ENARSI 300
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169539.jpg" />
 </div>
 
 
@@ -189,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169431.jpg" />
 </div>
 
 
@@ -215,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169428.jpg" />
 </div>
 
 
@@ -241,7 +84,7 @@ Dusan Petkovic | Microsoft SQL Server 2019: A Beginner's Guide, 7th Edition / Mi
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169331.jpg" />
 </div>
 
 
@@ -267,7 +110,7 @@ BK Sarthak Das, Virginia Chu | Security as Code (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169076.jpg" />
 </div>
 
 
@@ -295,7 +138,7 @@ Vaskaran Sarcar | Simple and Efficient Programming with C#, 2nd Edition (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169033.jpg" />
 </div>
 
 
@@ -323,7 +166,7 @@ Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (202
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168942.jpg" />
 </div>
 
 
@@ -349,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168817.jpg" />
 </div>
 
 
@@ -375,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168741.jpg" />
 </div>
 
 
@@ -401,7 +244,7 @@ Pablo David Garaguso | Vue.js 3 Design Patterns and Best Practices (2023) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168618.jpg" />
 </div>
 
 
@@ -429,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168525.jpg" />
 </div>
 
 
@@ -456,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168524.jpg" />
 </div>
 
 
@@ -482,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167632.jpg" />
 </div>
 
 
@@ -508,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167332.jpg" />
 </div>
 
 
@@ -534,7 +377,7 @@ Bradley Edgeworth и др. | CCNP and CCIE Enterprise Core ENCOR 350-401 Officia
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167053.jpg" />
 </div>
 
 
@@ -560,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167045.jpg" />
 </div>
 
 
@@ -586,7 +429,7 @@ Scott Empson | CCNA 200-301 Portable Command Guide Fifth Edition / Сокращ�
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167033.jpg" />
 </div>
 
 
@@ -612,7 +455,7 @@ Daniel Kusswurm | Modern X86 Assembly Language Programming, 3rd Edition (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166901.jpg" />
 </div>
 
 
@@ -638,7 +481,7 @@ Marco Secchi | Multiplayer Game Development with Unreal Engine 5 (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166819.jpg" />
 </div>
 
 
@@ -664,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166356.jpg" />
 </div>
 
 
@@ -677,6 +520,162 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8EF76E7AE98BFBD947B3EC02C64954F1AE74FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597468   (166343) от 14.12.2022
+
+Джош Фишер, Нин Ван | Грокаем стриминг (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стриминговые системы позволяют сократить до минимума время между событием и обработкой информации, чтобы вы получали результаты в реальном времени. В приложениях для финансовой сферы, в вопросах безопасности и IoT важна каждая миллисекунда, поэтому без стриминговых систем не обойтись. А еще — это модно и приносит деньги и IoT  Неслучайно специалисты в Spark, Heron (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62817E1A552838AC005C32B1265E7B15B8BD5067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516428   (165962) от 11.12.2021
+
+Марк Блау | Удивительный интернет (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет - одно из самых выдающихся достижений человеческой мысли, без которого невозможно представить современную цивилизацию. Миллионы людей сегодня пользуются им как в профессиональной деятельности, так и в повседневной жизни. Но большинство пользователей Всемирной сети имеет о ней очень поверхностное представление. Автор, специалист по информационным технологиям (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140835B434B410221A9D1BD51C14B767C9767A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431814   (165902) от 15.12.2020
+
+Л. Белл и др. | Безопасность разработки в Agile-проектах (2018) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибкая (agile) разработка по-прежнему остается самой распространенной методологией создания программного обеспечения в мире, но она, вообще говоря, не интегрирована с традиционными способами управления безопасностью. И большинство специалистов по безопасности не торопятся разобраться в гибкой разработке и применить ее на практике. Чтобы перебросить мост через пропасть, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E80AAAF31A9697E47DC7ACB807C0927521CA5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584066   (165648) от 31.10.2023
+
+А.Н. Васильев | Серия "Российский компьютерный бестселлер" [12 книг] (2017-2023) [PDF](Обновляемая)
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165648.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серию "Российский компьютерный бестселлер" вошли самоучители Алексея Васильева, доктора физико-математических наук и автора более пятнадцати книг по программированию. Все издания основаны на уникальной авторской методике обучения, которая помогла тысячам читателей освоить языки C, C++, Java, jаvascript и другие.Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D21D7026D62F2129DCA27529BDE20714FC0BFCB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597531   (165628) от 15.12.2022
+
+Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse / Python для детей: учитесь программировать без каких-либо предварительных знаний (2023) [EPUB] [Ger]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык программирования Python настолько популярен, потому что он четко структурирован, современен и мощен. В этой книге Ханс-Георг Шуман покажет вам, как легко с его помощью воплощать идеи в программы. Вы научитесь писать простые программы с помощью множества маленьких и двух больших игр и быстро поймете, что такое циклы, классы, ветви и функции. Объектно-ориентированное (   Читать дальше...   )Жанр: ПрограммированиеЯзык: НемецкийФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673398   (165061) от 01.11.2023
+
+Jeffrey L. Brewer, Kevin C. Dittman | Methods of IT Project Management, 4th Edition (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165061.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тексте читатели знакомятся со всеми концепциями, техниками, артефактами и методами, которые можно найти в ведущих справочниках по управлению проектами и современных методологиях разработки (agile, гибридной и традиционной), а также получают практические знания, которые могут быть немедленно применены в реальных условиях. В отличие от других книг в этой области, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Purdue University PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2744E0C690224BA290DF9723CFEF374469EF13D
 ```
 
 https://mybot314.ru/tekegram_catalog/

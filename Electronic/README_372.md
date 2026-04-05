@@ -1,3 +1,119 @@
+###  Публикация: 1080393   (286690) от 08.12.2016
+
+VA - Mountain Sound the Lounge of St. Anton (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bandora Tunes - Borghese Jazz 2:58
+02. Aida Moniz - Les Etoiles Au Dessus De La Tour Eiffel 3:48
+03. Amy More - Brighton Beach Dreams 5:07
+04. Carlos Bonito - Chango Tango 4:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D3E4270FE0A7C9BB24CAAFC1AC74DA2EAA8A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080864   (286642) от 08.12.2016
+
+VA - Deep House Ibiza Chart Best of 2016 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Colors - Drop (Mat.Joe Remix) 06:44
+02. Emil Croff - Jack 06:25
+03. Eriq Johnson - Pink Rhino 05:50
+04. Shawn Wilson - You Only Know 05:22(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0143BE768C62BF2FD77B8AF819F7F85822CE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080850   (286630) от 08.12.2016
+
+VA - A Guy In Buenos Aires (Mixed by Guy Mantzur) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khen - Authentica
+02. Chicola - The Night We Call It the Day
+03. Kastis Torrau - Chasing You
+04. Monkey Safari - Boris (Guy Mantzur Remix)(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415EF435B207A5C89773AA648685097430C5226C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263640   (286538) от 20.11.2018
+
+VA - 3xA Mixed Series VI (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Alfred - Cygnus (Th Moy Remix)                              [07:59]
+02. Experimental Feelings and Joy - Run (Christian Monique Remix)   [10:04]
+03. Dziathy - Festiv4l (Mendexx Remix)                              [07:36]
+04. Kade B - Shemyaza (PushnBall Remix)                             [07:40](   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E2E70F1714243635F3E957824BE89A97702553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263647   (286466) от 20.11.2018
 
 no.9 - Switch of LIFE (2018) Steve* Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Modern Classical>
@@ -6,7 +122,7 @@ no.9 - Switch of LIFE (2018) Steve* Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Mo
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286466.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Trance The Annual 2019 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286465.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - TranceMission Vol.4 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286463.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Alpine Grooves, Vol. 8 (Kristallhutte) (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286432.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Winter Wonder Lounge 2018 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286396.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ New Musik - 3 Studio Albums (1980-1982) Reissue CD, 2011, Lemon Recordings [MP3|
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286377.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Mario Lopez - Mother Earth (2000) [FLAC|Lossless|tracks + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286289.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Ferry Corsten presents Gouryella - From The Heavens (2016) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286261.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Cafe Del Mar Piano Works - Chapter II (2016) [MP3|320 Kbps] <Chillout, Inst
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286098.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ A Winged Victory for the Sullen - The Undivided Five (2019) Ninja Tune [FLAC|Los
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285986.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dj Mithril - Collection [set 001-033] (2015-2018) [MP3|320 Kbps] <Drum & Bass, P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285925.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - White Nights Grooves Vol 1-2 (2015) [MP3|320 кб/с]<House, Deep House, Ch
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285794.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Dieter Bohlen & VA - Greatest Hits (2002) [FLAC|tracks+.cue]<Europop, Synth-pop,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285481.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Pulsedriver - 7 Albums + 63 Singles/Remixes + 3 Compilations + DJ Mixes (1997-20
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285410.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Bad Boys Blue - You're A Woman (1994) [FLAC|tracks+.cue]<Synth-pop, Disco>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285323.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Modern Talking - The Collection (1991) [FLAC|tracks+.cue]<Synth-pop, Disco>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285217.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Best Of Vocal Trance 2016 (2015) [FLAC|tracks]<Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285206.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Early Sunrise (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284903.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - White Tropical Lounge Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284902.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Best Of Toolroom (2016) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284895.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - A 40 Track Compilation : Edinburgh (2016) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284889.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Steve Brian - Calera Remixed (2012) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284777.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Steve Brian - Calera Remixed (2012) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A07A88CFB9CA6335ABAF75EC5A83319AFB4FF3B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081131   (284775) от 09.12.2016
-
-Neorus - Remedy (2016) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Vishuddha [00:05:51]
-02 -  Rivers [00:03:55]
-03 -  Time Travel [00:04:26]
-04 -  Visuals [00:06:39](   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B08189018CBD161A344C671E5DF3FCE2CF4701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186748   (284740) от 26.11.2017
-
-VA - Lingerie Lounge 2 - 30 Top Chillout Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Emo  -  Relief For Free (Butti 49 Remix) 6:21
-02.  3-11 Porter  -  Surround Me With Your Love (Extended Mix) 5:50
-03.  Julia Messenger & PFL  -  Something To Say (Original Mix) 3:49
-04.  Minus 8  -  Soverato (Original Mix) 5:11(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 02:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD04A41BB13BB015F2A6A3F7E1686F8739B6345C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335594   (284728) от 04.11.2019
-
-DREDDD - Pain Deluxe (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone Else (3:23)
-02. 1989 (3:04)
-03. Frog (5:34)
-04. Dark City (3:57)(   Читать дальше...   )Жанр: Electro, MinimalПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F432A6705E5459EE81C846F0C59690238E38F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335787   (284727) от 04.11.2019
-
-Sebastian Mullaert - A place called • Inkonst (2019) Kontra Musik [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderphalt (05:59)
- 02. Attio (07:00)
- 03. Sonder at Mountain Street (06:59)
- 04. Embrace Space (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F6A3685A8B3E6A86544BB6D8E9BA90157BC211
 ```
 
 https://mybot314.ru/tekegram_catalog/

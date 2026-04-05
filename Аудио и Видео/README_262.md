@@ -6,7 +6,7 @@ VA - Chillout King Ibiza: Sunset Hours (2019) [AAC|~328 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164490.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bobby Lyle - Ivory Flow (2021) [AAC|~340 Kbps] <Smooth Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164470.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Strong Women of Country (2021) [AAC|~333 Kbps] <Country>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164459.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chicane - Everything We Had To Leave Behind (Back Pedal Brakes Remixes) (2021) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164441.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Chillout King Ibiza: Welcome 2 My Island (2014) [AAC|~343 Kbps] <Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164436.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164369.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164266.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164032.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Dreamer Chillout (2021) [AAC|~298 Kbps] <Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163762.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Chillout King Ibiza: The Chill Wave (2020) [AAC|~329 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163755.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ All India Radio, Josh Roydhouse - Lost Realm (2021) [AAC|~267 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163738.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VA - This is Ablazing 2021 (Mixed and Selected by Rene Ablaze) (2021) [AAC|~342 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163731.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163722.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Colours of Lounge, Vol. 1 (2021) [AAC|~327 Kbps] <Chill Out, Lounge, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163707.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163681.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Coffee & Jazz: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163656.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 3 (2020) [AAC|~326 Kbps] <Broken Be
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163652.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Chill Executive Officer (CEO), Christmas Edition (2021) [AAC|~320 Kbps] <Ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163634.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 2 (2019) [AAC|~330 Kbps] <Broken Be
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163623.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 4: The Cover Session (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163606.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 1 (2018) [AAC|~327 Kbps] <Broken Be
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163564.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163555.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163531.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163521.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163483.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163361.jpg" />
 </div>
 
 

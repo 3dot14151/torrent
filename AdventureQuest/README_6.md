@@ -1,3 +1,81 @@
+###  Публикация: 1458466   (1023712) от 29.03.2021
+
+Paradise Lost (2021) [Ru/Multi] (12490.1383cl.shipping) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте участником последней истории на Земле в Paradise Lost, эмоциональной игре о выживании после конца света. Узнайте, что случилось в подземном городе, спрятанном в заброшенном бункере нацистов. Славянская мифология здесь сталкивается с ретрофутуризмом.Тип издания: RepackРазработчик: PolyAmorousЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7230DFB0534494036F445465D7859021918CF52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459062   (1023355) от 31.03.2021
+
+From The Darkness (2021) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023355.jpg" />
+</div>
+
+
+###  Подробнее
+
+From the Darkness — это хоррор-игра от первого лица, в которой основное внимание уделяется созданию страха у игрока. Большую часть времени вам предстоит ходить и исследовать заброшенную квартиру умершего дедушки, в которую вы пришли за старым семейным альбомом, но в квартире начинают твориться странные вещи, тот кто живет во тьме не отпустит вас так легко. Ваша главная (   Читать дальше...   )Тип издания: RepackРазработчик: N4bAЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB99096D1C3FF5E4393EB002D7E2B8A57B60AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459969   (1022685) от 04.04.2021
+
+Raji: An Ancient Epic (2020) [Ru/Multi] (1.4.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Raji: An Ancient Epic — это action-adventure, которая отправит вас в путешествие по Древней Индии. Молодой девушке Раджи, ставшей по воле богов единственной защитницей человечества, предстоит уничтожить орды демонов во главе с их предводителем, чтобы спасти своего младшего брата.Тип издания: RepackРазработчик: Nodding Heads GamesЖанр: Adventure, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A4CEA75A32C41D9A13B6DE2D614EE5C71378EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414739   (1022658) от 04.04.2021
 
 The Uncertain: Light At The End (2020) [Ru/Multi] (1.3) Repack Other s
@@ -6,7 +84,7 @@ The Uncertain: Light At The End (2020) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022658.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ ENCODYA (2021) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022353.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Lost Words: Beyond the Page (2021) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022169.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Creaks (2020) [Ru/Multi] (1.0.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021982.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (2.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021978.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Scarlet Hood and the Wicked Wood (2021) [Ru/Multi] (1.0.0c) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021845.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Children of Morta (2019) [Ru/Multi] (1.2.55/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021838.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Cozy Grove (2021) [Ru/Multi] (1.5.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021655.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Lost Words: Beyond the Page (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021491.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ ADD (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021476.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Mundaun (2021) [Ru/Multi] (1.0.207) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021068.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Don't Be Afraid (2020) [Ru/Multi] (1.002) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020230.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Shattering (2020) [Ru/Multi] (1.1.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019726.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2/2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019358.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ S.W.A.N.: Chernobyl Unexplored (2021) [Ru/Multi] (1.0.1160.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018669.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Maid of Sker (2020) [Ru/Multi] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018662.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Falconeer (2020) [Ru/Multi] (1.4.0.1/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018480.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Beholder (2016) [Ru/Multi] (1.6.0.12741/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017969.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Signifier (2020) [Ru/Multi] (1.101) License GOG [Director's Cut Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017965.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016856.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016630.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Inherit the Earth: Quest for the Orb (1994) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016525.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.71/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016477.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Little Nightmares II (2021) [Ru/Multi] (5.71/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05595420863F87ABE518F50887A0FC26E57E792E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468605   (1016340) от 12.05.2021
-
-Papetura (2021) [Graphic] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Papetura — атмосферное приключение, полностью сделанное из бумаги. Это игра в таинственном и необыкновенном бумажном мире, окутанным тенью с проблесками света, музыку к которой написал Floex. Papetura рассказывает историю бумажного Пэйпа, заключенного в цветочную тюрьму. Однажды он сбегает оттуда и встречает малышку Туру, магическое создание, о котором он начинает (   Читать дальше...   )Тип издания: RepackРазработчик: PetumsЖанр: AdventureЯзык интерфейса: Графический
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D484BC29F4F8CD1DE8AB211435F9D3B7565B266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469998   (1016054) от 14.05.2021
-
-Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье поместья Блэкмур (2004) [En] (2.0.0.12) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нэнси Дрю отправляется на своё первое международное расследование. Ей необходимо навестить Линду Пенвеллин — дочь соседки и молодую жену британского дипломата. Таинственная болезнь заставляет Линду прятаться за плотным балдахином кровати. От кого или чего она скрывается? Или, возможно, ей угрожает нечто куда более опасное, чем простые недуги? Вычурные узоры, украшающие (   Читать дальше...   )Тип издания: LicenseРазработчик: Her InteractiveЖанр: Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F74EDC0AD3FCA46CB06580DAB4655F1768CFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472473   (1014305) от 25.05.2021
-
-Tohu (2021) [Ru/Multi] (1.02) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте совершенно новое приключение в мире удивительных и странных планет-рыбок. Исследуйте прекрасный мир и решайте замысловатые головоломки от лица маленькой девочки с механическим альтер эго - Кубиком. Вместе они смогут узнать правду о себе и о таинственном Священном двигателе, который поддерживает существование их мира.Тип издания: LicenseРазработчик: Fireart GamesЖанр: Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5EBB96A97C91C6A080A470DCFCC52084E8FA7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

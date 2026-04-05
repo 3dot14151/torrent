@@ -1,3 +1,29 @@
+###  Публикация: 1560210   (522043) от 28.06.2022
+
+Юрий Сотник | Маска (2022) [MP3, Елена Фортушнова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ребята решили отлить из гипса  маску для школьного музея. Для модели был выбран второклассни Гога Люкин, несомненно в будущем- великий композитор. Но что-то пошло не так....   Рассказ учит просчитывать последствия своих действий и не бояться ответственности.Жанр: Детская литератураПродолжительность: 00:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698051251386C99BEA9135096F415F614EDD05CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 228359   (521288) от 19.08.2010
 
 Гомер Эдвин Эванс - Счастливые произведения (2007) [MP3|320 kbps]<Колыбельная, антистресс, релакс>
@@ -6,7 +32,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521288.jpg" />
 </div>
 
 
@@ -36,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521081.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520677.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520653.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520607.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520401.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520246.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ VA - The Complete Halloween Party Album (2CD) (2009) [MP3|128 kbps]<Детски
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520174.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519740.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519730.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Nightingale Orchestra - Мир природы для малышей (2005) [MP3|
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518647.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ VA - Сlassics fur mein Bаby (4CD) (2008) [MP3|320 kbps]<Классическа
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518643.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518004.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ VA - XXXL детский. Маленькая страна (2000) [MP3|320 kbps]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517675.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517660.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517236.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ VA - Детское Ассорти (2010) [MP3|128 kbps]<Pop>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516214.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516063.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515076.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ VA - A la ferme De Mathurin (2007) [MP3|320 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514553.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Francis Bernier - Prince d'Azur (2007) [MP3|128 kbps]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514490.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514385.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514336.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514289.jpg" />
 </div>
 
 
@@ -671,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514194.jpg" />
 </div>
 
 
@@ -685,35 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94C3A0DBF8B4CABACA06ADF34405DD6C17D76E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376236   (512152) от 15.08.2011
-
-Детская эстрадная студия Дельфин - Праздник детства (2002) [MP3|320 kbps]<Детские песенки и музыка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лети лепесток
-02. Гномики
-03. Дождик
-04. Карабас(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CC52EF049CEE225E11B554752662841109AF8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

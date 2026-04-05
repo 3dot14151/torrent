@@ -1,3 +1,55 @@
+###  Публикация: 1759301   (37724) от 10.11.2024
+
+В Японии арестовали создателей сайта со спойлерами к фильмам и аниме
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полиция японской префектуры Мияги арестовала троих мужчин за создание так называемого сайта спойлеров, где публиковались пересказы новинок кино и аниме. Об этом сообщает Sendai Television Incorporated.Задержанных обвиняют в нарушении закона об авторском праве. По данным полиции, в прошлом году все трое сговорились создать сайт, на котором без разрешения правообладателей (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759758   (37607) от 11.11.2024
+
+Открытый разум: как бесконечная комбинация идей создала человеческую культуру
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учёные из Университета Аризоны предложили новое объяснение уникальности человеческой культуры, предполагая, что её особенность заключается в «открытости» — способности бесконечно комбинировать и интерпретировать новые идеи и действия. Исследование, опубликованное в *Nature Human Behaviour*, демонстрирует, что не только люди обладают культурой, но и многие виды животных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760007   (37565) от 12.11.2024
 
 Немцы первыми в мире испытали в полёте клиновоздушный ракетный двигатель
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37565.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37547.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37533.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2314 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37446.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37320.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ YTDisBystro (универсальная сборка на основе Zapret) 2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37149.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37135.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37128.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37039.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ JetBrains PhpStorm 2024.3 (x64-arm64) Repack by Sitego [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36944.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36934.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36840.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36725.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36639.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36631.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36513.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2137/1.0.0.2157) Repack Fit
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36430.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36427.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36329.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36326.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ SolidWorks 2024 SP5.0 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36325.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36316.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36307.jpg" />
 </div>
 
 
@@ -613,65 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36201.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Бизнесмены Илон Маск и Вивек Рамасвами, которых Дональд Трамп намерен поставить во главе Департамента эффективности правительства (DOGE), на этой неделе опубликовали статью в Wall Street Journal, где разъяснили свой план действий по борьбе с американской бюрократией и реструктуризации государственного аппарата США. Они предложили провести в нём массовые сокращения (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762055   (36115) от 26.11.2024
-
-Холоп из Парижа / Le larbin (2024) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что вы делаете, когда ваш противный сын-плейбой настолько вышел из-под контроля, что его чрезмерные вечеринки грозят разрушить вашу империю роскошных отелей? Очевидно, вы пытаетесь его перевоспитать. Поэтому вы нанимаете безумного режиссера, чтобы он построил настоящую деревню 18 века, заполняете ее актерами и камерами наблюдения, а затем усыпляете своего сына, похищаете (   Читать дальше...   )Производство: Франция / SND Films, M6 Films, Canal+Жанр: комедияРежиссер: Александр Шарло, Франк МаньеАктеры: Одран Каттен, Кад Мерад, Кловис Корнийяк, Изабель Карре, Джейд Педри, Марк Ризо, Клара Жоли, Симон Ларварон, Кристиан Эк, Стефан ВойтовичПеревод: дублированный (Марафон)Язык озвучки: русский, французскийСубтитры: русские, французскиеПродолжительность: 01:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC83D21B347214227BA489A16FB5C491E29E8A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762040   (36104) от 26.11.2024
-
-Комиссия Конгресса США сравнила развитие ИИ с созданием атомной бомбы
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двухпартийная комиссия Конгресса США призвала к созданию инициативы, подобной «Манхэттенскому проекту», для ускорения развития искусственного интеллекта (ИИ) в условиях растущей конкуренции со стороны Китая.Комисия в опубликованном во вторник рекомендации в 793-страничном отчете призывает Конгресс предоставить исполнительной власти широкие многолетние полномочия (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

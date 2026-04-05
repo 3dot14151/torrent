@@ -1,29 +1,3 @@
-###  Публикация: 967129   (215249) от 19.12.2015
-
-Роберт Кийосаки | 8 уроков лидерства. Чему военные могут научить бизнес-лидеров (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215249.jpg" />
-</div>
-
-
-###  Подробнее
-
-По статистике, девять из десяти предпринимателей разоряются в первые пять лет существования их бизнеса. Из каждых десятерых выживших девять становятся банкротами в следующие пять лет. Вопрос: в чем разница между тем единственным, кто добивается успеха, и теми девятерыми, кто терпит крах? Ответ: для успеха в бизнесе требуются те же самые ключевые навыки, ценности (   Читать дальше...   )Жанр: Психология, Деловая литература, Управление, подбор персоналаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC23E525FB1436967EC7B5998E0435C578936F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269994   (215011) от 17.12.2018
 
 Екатерина Уварова, Евгений Якимов | Instagram. Секрет успеха ZT PRO. От А до Я в продвижении (2018) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215011.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214472.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214410.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214332.jpg" />
 </div>
 
 
@@ -141,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214243.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214106.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211648.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211642.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ Harvard Business Review (HBR) | Платформы и экосистемы (2023
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211629.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211618.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ Harvard Business Review (HBR) | Управление рисками (2022) [EPUB
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211598.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211491.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211446.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211353.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210508.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209952.jpg" />
 </div>
 
 
@@ -461,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209838.jpg" />
 </div>
 
 
@@ -488,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209694.jpg" />
 </div>
 
 
@@ -516,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209064.jpg" />
 </div>
 
 
@@ -545,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207887.jpg" />
 </div>
 
 
@@ -571,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206390.jpg" />
 </div>
 
 
@@ -598,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205699.jpg" />
 </div>
 
 
@@ -625,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205642.jpg" />
 </div>
 
 
@@ -653,7 +627,7 @@ Harvard Business Review (HBR) | Управление и лидерство дл�
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204904.jpg" />
 </div>
 
 
@@ -680,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204708.jpg" />
 </div>
 
 
@@ -691,6 +665,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:523F765E8C82E1D945B240758CD2ECD9EA60EA95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605574   (203899) от 18.01.2023
+
+Рой В. Х. Поллок и др. | Шесть дисциплин прорывного обучения. Как превратить обучение и развитие в бизнес-результаты (2019) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассматривает обучение как бизнес-процесс, который начинается со строгого определения целей и продолжается через документирование результатов. Авторы показывают, почему обучение как одноразовое мероприятие неэффективно и что профессионалы этой области должны делать, чтобы перейти от просто «получателей разовых заказов» в статус стратегических бизнес-партнёров.Жанр: бизнес-процессы, зарубежная деловая литература, личная эффективностьПеревод: Анна ГорманФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EB24E435F29E84347E809254BDBE7121BE9240
 ```
 
 https://mybot314.ru/tekegram_catalog/

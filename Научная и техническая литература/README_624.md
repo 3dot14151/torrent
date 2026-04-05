@@ -1,134 +1,3 @@
-###  Публикация: 1754513   (40822) от 10.10.2024
-
-Н.В. Белов | Самоисцеление. Гимнастика для внутренних органов (2007) [EPUB, PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга адресуется широкому кругу читателей. В ней приведены комплексы физических упражнений для различных органов и систем, применение которых поможет людям, у которых появились проблемы со здоровьем, наладить работу организма. Кроме того, эти упражнения – мощное профилактическое средство, препятствующее возникновению во внутренних органах патологических процессов.Жанр: здоровье, физические упражненияИздательство: Минск: «Современный литератор»Формат: EPUB, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ABC96596897C3453B97FF09B5DD9A5E4EF48011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754443   (40821) от 10.10.2024
-
-Катя Янг | Рецепты столетия. Рацион для тех, кто хочет прожить 100 лет (2021) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбросить 10 лет за 12 дней? Забыть о фастфуде и вредных перекусах? Жить счастливо и чувствовать себя здоровой? Да, это возможно! Катя Янг – практикующий врач-эндокринолог, признанный эксперт в области гормонального здоровья и активного долголетия. Разработанная ею схема питания предусматривает плавное сокращение «лишних» продуктов, исключение нежелательной группы (   Читать дальше...   )Жанр: Все грани здоровьяИздательство: Москва: ИД «Комсомольская Правда»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6B9E1FE15D5FCFA8B0844B6B53296654F628ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754551   (40795) от 10.10.2024
-
-А.В. Кайнаран и др. | Киевский укрепленный район [2 книги] (2011 - 2017) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой самое полное описание КИУРа из всех ранее издававшихся произведений. В ней рассказывается о предыстории создания КИУРа, детально описывается проект в том виде, как он был построен между 1928 и 1932 годами, подробнейшим образом описаны сооружения укрепрайона, их оборудование и вооружение.
-Во втором томе описываются события, относящиеся к обороне (   Читать дальше...   )Жанр: Военная историяИздательство: ВолыньФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6CBE756B3150A6271A96EB40B7BD216A04511E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754707   (40741) от 11.10.2024
-
-Сергей Бубновский | Упражнения для дома и зала. Золотая книга. Более 100 практик при болях в спине и суставах (2023) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три этажа здоровья. Три ключевых зоны поражения органов и систем. Чтобы не стать жертвой "времени", чтобы не потерять имеющихся возможностей, чтобы всегда заниматься тем, что дорого и что нравится, надо правильно следить за своим телом. В этой книге собраны 100 идеальных упражнений, которые можно делать дома и в зале в любом возрасте. Результат: здоровое (   Читать дальше...   )Жанр: Массаж. ЛФКИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56476EB7E2BF6AC3A5435F91E1E11168C914B518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754713   (40722) от 11.10.2024
-
-Сергей Длин | Помоги своим суставам. Как в домашних условиях улучшить состояние при артрите и артрозе (2024) [PDF, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практически перед каждым в определённый момент жизни встает вопрос – как избавиться от боли и сохранить активность при заболеваниях суставов. На страницах этой книги вас ждут простые и легкие в применении способы профилактики, упражнения, правила жизни и питания, которые помогут восстановить здоровье, если у вас уже есть артрит или артроз. Врач с опытом работы 25 (   Читать дальше...   )Жанр: Медицина и здоровьеИздательство: БомбораФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366A5300E6C8E63B98F5C69863B04CC55669C9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754664   (40720) от 11.10.2024
 
 И. Пигулевская | Здоровые суставы. Гарантия подвижности и бодрости. Артрит. Артроз. Бурсит. Подагра (2023) [FB2, DOCX]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40720.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40715.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40713.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40706.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40638.jpg" />
 </div>
 
 
@@ -271,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40618.jpg" />
 </div>
 
 
@@ -298,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40617.jpg" />
 </div>
 
 
@@ -327,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40612.jpg" />
 </div>
 
 
@@ -354,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40611.jpg" />
 </div>
 
 
@@ -381,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40609.jpg" />
 </div>
 
 
@@ -408,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40606.jpg" />
 </div>
 
 
@@ -437,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40605.jpg" />
 </div>
 
 
@@ -465,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40566.jpg" />
 </div>
 
 
@@ -491,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40410.jpg" />
 </div>
 
 
@@ -517,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40375.jpg" />
 </div>
 
 
@@ -543,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40346.jpg" />
 </div>
 
 
@@ -570,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40289.jpg" />
 </div>
 
 
@@ -597,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40273.jpg" />
 </div>
 
 
@@ -623,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40215.jpg" />
 </div>
 
 
@@ -650,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40205.jpg" />
 </div>
 
 
@@ -676,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40203.jpg" />
 </div>
 
 
@@ -687,6 +556,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C8743B6145FD9B017AB2DF4572CD1A56BDD348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755770   (40132) от 17.10.2024
+
+Льюис Хобли | Самоучитель разведчика (2023) [DOCX, EPUB, FB2, MOBI]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор этой книги — в прошлом агент Ми-6 — раскрывает некоторые тайны своей профессии. Как правильно вести слежку? Как определить, что следят за вами? Как не оставлять опасных улик и как обнаружить то, что не замечает простой человеческий глаз. Ответы на эти и многие другие вопросы находятся в указанных здесь следующих частях издания:
+1. Способы получения и оценки (   Читать дальше...   )Жанр: военное дело, спецслужбы, зарубежная публицистика, самоучителиИздательство: Москва: ООО «Издательство Родина»Формат: DOCX, EPUB, FB2, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BCC545F5D498F8E4445576EEE09732C2FD554A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755753   (40076) от 17.10.2024
+
+М. Вострышев | 7 великих глав государства российского и еще 63 правителя от Рюрика до Путина (2022) [PDF, EPUB, FB2, MOBI]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40076.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказано обо всех государях России, правивших ею последние десять веков.
+Конечно, с течением времени форма правления трансформировалась, но одно оставалось неизменным – единоначалие высшей власти. Поэтому жизнеописания этих людей – это во многом и история нашей страны. Их волевыми решениями Россия или возвышалась, или катилась вниз. Читатель сам определит, (   Читать дальше...   )Жанр: история РоссииИздательство: Москва: "Родина"Формат: PDF, EPUB, FB2, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC1272ADF091E149AF286D8AE6C228133C22FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755917   (39982) от 18.10.2024
+
+А.С. Компанеец | Курс теоретической физики (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39982.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первом томе изложены три раздела теоретической физики: «Механика», «Электродинамика» и «Квантовая механика». В каждом из этих разделов автор формулирует наиболее общие принципы и законы, из которых как следствия получаются частные законы и уравнения.
+
+Во втором томе изложены четыре раздела теоретической физики: «Статистическая физика», «Гидродинамика и газовая (   Читать дальше...   )Жанр: ФизикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F478A7C58FA465730C0FC24B9F1433E955E8203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755981   (39981) от 18.10.2024
+
+В.Н. Юренев, П.Д. Лебедев | Теплотехнический справочник [2 книги] (1975 - 1976) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теплотехнический справочник представляет собой свод знаний по теоретической и прикладной теплотехнике.
+Справочник является практическим пособием для инженерно-технического персонала, работающего в области теплотехники, теплоэнергетики и теплофизики.Жанр: Технические наукиИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EFD0B19719651B978203B15DE9AB5D185AB224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755983   (39979) от 18.10.2024
+
+Н.И. Кошкин | Элементарная физика. Справочник (1991) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены основные понятия, определения и законы физики. Логика и структура изложения позволяют оперативно находить четкие и краткие ответы или справочные данные по различным вопросам элементарной физики. Наряду с простотой теоретический уровень изложения соответствует современному состоянию принятых в научных исследованиях понятий и формулировок основных законов (   Читать дальше...   )Жанр: ФизикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4329DEF21B3DAADCECC33345545F8A2B2F64B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

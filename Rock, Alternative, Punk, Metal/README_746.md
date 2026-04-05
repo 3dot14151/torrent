@@ -1,3 +1,32 @@
+###  Публикация: 1259988   (316786) от 05.11.2018
+
+Primus - Frizzle Fry (1990) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Defy The Laws Of Tradition (6:42)
+ 02. Ground Hog's Day (4:58)
+ 03. Too Many Puppies (3:58)
+ 04. Mr. Knowitall (3:51)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7275F89C0B819A409BFFA37BC4AE1B753FECA810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259862   (316784) от 05.11.2018
 
 Beer Bear - Мёд (Honey) (2010) [FLAC|Lossless|image + .cue] <Folk Metal>
@@ -6,7 +35,7 @@ Beer Bear - Мёд (Honey) (2010) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316784.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Annihilator - For The Demented (2017) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316775.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316766.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Presidents of the United States of America - These Are the Good Times People
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316680.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Presidents of the United States of America - Love Everybody (2004) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316679.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Presidents of the United States of America - The Presidents of the United St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316670.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Rise of Division - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316653.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316390.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316370.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Pete Yorn & Scarlett Johansson - Break Up (2009) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316118.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Bread - The Best Of Bread (1973) Remastered, 2015, Audio Fidelity [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316115.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Chris Rea - On The Beach (1986) 2CD Deluxe Edition, Remastered 2019 [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316039.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Chris Rea - One Fine Day (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316034.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316028.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Chris Rea - The Road To Hell (1989) 2CD Deluxe Edition, Remastered 2019 [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316026.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Brighton Rock - Love Machine (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315545.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Trivium - Ember To Inferno (2003) Reissue, 2004, CD-Maximum [FLAC|Lossless|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315538.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ White Magician - Dealers of Divinity (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315525.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Albert Bouchard - Re Imaginos (2020) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315522.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Lucid Dreaming - The Chronicles, Pt. III (2020) [MP3|320 Kbps] <Heavy Metal, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315519.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ H.E.A.T - Address The Nation (2012) [FLAC|Lossless]<Melodic Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315481.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ VA - Реальная музыка (3 CD от Real Records) (2002) [MP3|192 kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315470.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Astirium - Время Перемен (2020) [MP3|320 Kbps] <Heavy Metal,  Power 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315442.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315440.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Trivium - Shogun (2008) Reissue, 2012, Roadrunner Records [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315439.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Trivium - Shogun (2008) Reissue, 2012, Roadrunner Records [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250B947A1CFCF3EBB1B61A7A8FA6F9D0D13A1702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421983   (315435) от 06.11.2020
-
-Neil Young & Crazy Horse - Return To Greendale (2020) Live [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling from Above (07:41)
-02. Double E (05:32)
-03. Devil's Sidewalk (06:22)
-04. Leave The Driving (06:34)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AAED62528E247FBACA7B1EA6B4C0F0E6639DBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

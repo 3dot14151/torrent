@@ -1,3 +1,32 @@
+###  Публикация: 1261117   (306735) от 09.11.2018
+
+Muse - Simulation Theory (2018) Super Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Algorithm
+2. The Dark Side
+3. Pressure
+4. Propaganda(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2DE46C9CAD80F9A1BA323E972C8D60F4AD8193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077457   (306569) от 28.11.2016
 
 Vanilla Fudge - Out Through The In Door Tribute To Led Zeppelin (2016) [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +35,7 @@ Vanilla Fudge - Out Through The In Door Tribute To Led Zeppelin (2016) [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306569.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306532.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306432.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Bonded - Rest in Violence (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306406.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ After Forever - Emphasis - Who Wants To Live Forever (2002) Limited Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306305.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Temple of Switches - The Wings of Mind (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306302.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Don McLean - Starry Starry Night (Live in Austin) (2020) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306298.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ After Forever - Energize Me (2007) Single [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306297.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Trishula - Time Waits For No Man (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306296.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ After Forever - Follow In The Cry - Silence From Afar (2000) Limited Edition [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306295.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ After Forever - Monolith Of Doubt (2002) Limited Edition [FLAC|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306294.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ After Forever - Prison Of Desire (2000) Reissue, 2003, Transmission Records [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306287.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ After Forever - Decipher (2001) Reissue+EP, 2007, Avalon [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306286.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Roy Orbison - 19 альбомов (1961-1992) [FLAC|Lossless]<Rockabilly, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306269.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Accept - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306196.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ After Forever - Remagine (2005) [FLAC|Lossless|image + .cue] <Symphonic Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306166.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ After Forever - After Forever (2007) Japanese Edition [FLAC|Lossless|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306162.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Ad Infinitum - Chapter I: Monarchy (2020) Limited Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306150.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Metallica - The Best Ballads (2005) 2CD [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305982.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Drakkar - Diabolical Empathy (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305686.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Khorada - Salt (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305685.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Unholy - Rapture (1998) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305684.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Wild Turkey - 3 CD (1972 - 1973) [FLAC|Lossless]<Hard Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305670.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Svartby - Swamp, My Neighbour (2015) [FLAC|Lossless|image + .cue] <Folk Black Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305655.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Euringer (Jimmy Urine of Mindless Self Indulgence) - Euringer (2018) [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305586.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Euringer (Jimmy Urine of Mindless Self Indulgence) - Euringer (2018) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBAF9E8E3062A1AE188CA9B7092954969DC7DE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261205   (305582) от 10.11.2018
-
-Ace of Cups - Ace of Cups (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction: There's a Record Being Made
-02. Feel Good
-03. Pretty Boy
-04. Fantasy 1 & 4(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Psychedelic RockПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89BE27F5F6267F215C04BB2DA8CA4A965556C7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

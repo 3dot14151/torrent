@@ -1,3 +1,32 @@
+###  Публикация: 1536328   (672781) от 13.03.2022
+
+Voltrider - Weapon Of Choice (2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back in the Game (02:54)
+ 02. Right on Time (03:50)
+ 03. Ricochet (03:39)
+ 04. Under Black Skies (05:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD6E4762F5F5F64B8BFDEAAAA1BDFC1D5157AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224781   (663765) от 12.05.2018
 
 Tiger B. Smith - We're The Tiger Bunch (1974) Reissue, 1993, Bellaphon [MP3|320 Kbps] <Hard Rock, Krautrock, Prog-Rock>
@@ -6,7 +35,7 @@ Tiger B. Smith - We're The Tiger Bunch (1974) Reissue, 1993, Bellaphon [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663765.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ AC/DC - Californication (Live) (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662994.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lucky Bastardz - Alwayz on the Run (2015) [MP3|320 кб/с]<Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662361.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Angel - Helluva Band (1976) Reissue, 1992, Casablanca [MP3|320 Kbps] <Hard Rock,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661724.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lita Ford - Living Like A Runaway (Limited Edition) (2012) [MP3|320 кб/с]<Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661485.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Black Sabbath - Dehumanizer & Paranoid (Deluxe Expanded Edition) (1970&1992) [MP
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660386.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ Midriff - Doubts & Fears (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659304.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ VA - Classic Rock 211 Summer Daze  15 Hot Tracks To Welcome The New Summer Of Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659052.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ Kiss - Kissworld: The Best of Kiss (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658889.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ Vermillion Road - Palaces (2015) [MP3|320 кб/с]<Modern / Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658084.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ Luciferian Light Orchestra - Luciferian Light Orchestra (2015) Limited Edition [
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657980.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ Jorn - Life on Death Road (2017) [MP3|320 Kbps] <Hard'n'Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657917.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Shiraz Lane - Be The Slave Or Be The Change (2015) [MP3|320 кб/с]<Glam, Sleaz
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656984.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Kickin Valentina - Super Atomic (2015) [MP3|320 кб/с]<Sleaze, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656974.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Kabat - Do Pekla / Do Nebe (2015) [MP3|320 кб/с]<Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656791.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Scorpions - Wind Of Change: The Collection (2013) [MP3|320 кб/с]<Rock, Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655138.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Michael Schinkel's Eternal Flame - Smoke on the Mountain (2018) [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654697.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ The Dead Daisies - Revolucion (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654324.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Zodiac - A Bit of Devil (2012) [MP3|244-265 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653420.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Alice Cooper - Paranoiac Personality (2017) Single [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652138.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ S.A.Y - Orion (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651916.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Mojo Waves - All The Right Parts Fit The Wrong Way (2015) [MP3|320 кб/с]<Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651915.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Greg Golden Band - Greg Golden Band (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651735.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Trixter - Human Era (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651733.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ V8 Wankers - Harden The Fuck Up! (2015) [MP3|320 кб/с]<Hard Rock, Rock'n'Roll
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651731.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ V8 Wankers - Harden The Fuck Up! (2015) [MP3|320 кб/с]<Hard Rock, Rock'n'Roll
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6608C88692B81E2BDB903957437219630CE1AA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905051   (651608) от 05.06.2015
-
-House Of Lords - Indestructible (2015) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go To Hell
-02. Indestructible
-03. Pillar Of Salt
-04. 100 Mph(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376AF05AEA90397543472D36A999C56143449A71
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ A Better Finder Attributes 6 v6.06 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372295.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PullTube 0.10.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372292.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ MediaHuman YouTube Downloader 3.9.8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372175.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ AudioFinder 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372139.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Iridient Developer 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372034.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ MP3 Gain 4 v4.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372004.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Blocs 3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372003.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Airy 3.19.305 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372002.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Adobe Audition CC 2019 v12.1.4[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371983.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ iStat Menus 5.11 (636) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371979.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ SwitchGlass 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371933.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ MovieMator Video Editor Pro 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371925.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Notability 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371920.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ JixiPix Premium Pack 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371913.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Disk Doctor: System Cleaner 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371766.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371620.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ LilyView 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371536.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Divvy 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371396.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371356.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Parallels Desktop for Mac Business Edition 13.1.1 (43120) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371352.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ This Is the Police v.1.1.3.0 (2016) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371238.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Adobe Photoshop Lightroom Classic CC v7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371234.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Red Giant Magic Bullet Suite 13.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371232.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Tab Launcher 2.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371163.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Movist 2 v2.0.0 b21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370976.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ PDFelement Express 0.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370974.jpg" />
 </div>
 
 

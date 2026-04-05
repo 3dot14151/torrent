@@ -1,3 +1,56 @@
+###  Публикация: 1372538   (884949) от 03.04.2020
+
+CG Cookie | Создание мини-танка для мобильных игр в Blender 2.8 / Creating Mini Tanks for a Mobile Game with Blender 2.8 (2018) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы узнаете все о том, как создавать мини-танки для мобильной игры! Мы рассмотрим все аспекты моделирования и текстурирования, включая советы и рекомендации, такие как рисование слоями в Blender 2.8, как работать с файлами Photoshop, комбинирование процедурных текстур с текстурами нарисованными вручную в одном изображении и многое другое!Производство: CG CookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 04:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750BEE3E14D41619FE6098D12E1229D2992AA46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372539   (884800) от 03.04.2020
+
+CG Cookie | Создание анимации с ригом в Grease Pencil в Blender 2.8 / Create Rigged Grease Pencil Animations in Blender 2.8 (2018) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя мощный потенциал Grease Pencil в Blender 2.8 и рига для 2D-анимации. Рисованная анимация с использованием арматур и групп вершин, это подход позволяющий преодолеть разрыв между 2D и 3D анимацией.
+Часто 2D-анимация и 3D-анимация существуют как свои собственные уникальные формы искусства, эстетика, инструменты и приложения. Но Grease Pencil в Blender (   Читать дальше...   )Производство: CG CookieЖанр: 2D анимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48D9FD752B8BDB58594997184BE1CA5A623102E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372536   (884773) от 03.04.2020
 
 CG Cookie | Основы моделирования 3D-меша в Blender 2.8 / Fundamentals of 3D Mesh Modeling in Blender 2.8 (2020) PCRec [H.264/1080p-LQ] [EN]
@@ -6,7 +59,7 @@ CG Cookie | Основы моделирования 3D-меша в Blender 2.8 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884773.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ FXPHD, Jeronimo Maggi | Advanced VEX & Python for Houdini TDs (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880377.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Chris Orwig | [Lynda.com]Photoshop Blend Modes for Photography [H.264/720p] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878679.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ j-design.pro, Сергей Привалов | 3D моделирование в Z
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878611.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ kondratiki | Абсолютный ZBrush курс ZBrush-1 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878596.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Viscorbel, Austris | Classic Furniture VOL2 ORNAMENT (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877251.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Udemy, Steve Lord | Sculpting Animals (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877230.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Digital Tutors, Alex Jerjomin | Importing and Rendering a Stylized Environment i
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877120.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ Digital Tutors, Alex Jerjomin | Texturing a Stylized Game Environment in Photosh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877119.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ Digital Tutors, Justin Marshall | Cloth Workflows in ZBrush (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877112.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ Digital Tutors, Alex Jerjomin | Sculpting a Stylized Game Environment in ZBrush 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876981.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876961.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874675.jpg" />
 </div>
 
 
@@ -360,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874674.jpg" />
 </div>
 
 
@@ -386,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874387.jpg" />
 </div>
 
 
@@ -415,7 +468,7 @@ Rohan Dalvi | Making dessert in Houdini Part 2 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872851.jpg" />
 </div>
 
 
@@ -442,7 +495,7 @@ Uartsy, Marshall Vandruff | Animal Anatomy (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872597.jpg" />
 </div>
 
 
@@ -469,7 +522,7 @@ Digital Tutors, Joshua Kinney | Game Asset Production Pipeline for Unity (2015) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871049.jpg" />
 </div>
 
 
@@ -497,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870894.jpg" />
 </div>
 
 
@@ -525,7 +578,7 @@ Pixel, Сергей Галак | Анимация персонажа в After Ef
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870824.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870792.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870706.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869408.jpg" />
 </div>
 
 
@@ -634,7 +687,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 7-8 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864582.jpg" />
 </div>
 
 
@@ -645,58 +698,6 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 7-8 (2020) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B33AB84894B8E01A7AB6D9B01EE866A74CBFC60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497383   (864580) от 22.09.2021
-
-CGMA, Dmitrij Leppee | Character Facial Sculpting Week 5-6 (2020) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864580.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе студенты изучат то, благодаря чему лицо выглядит так, как оно выглядит — внутренние структуры черепа, мышцы, жировая ткань и другие структуры, такие как железы, которые создают и влияют на формы лица. Без базового меша, начиная с начала, чтобы лучше понять все слои, которые накладываются друг на друга. Когда это знание будет достигнуто, мы углубимся (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 04:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2010939A4C506483418BF302A4950A619B5E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497380   (864570) от 22.09.2021
-
-CGMA, Dmitrij Leppee | Character Facial Sculpting Week 3-4 (2020) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864570.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе студенты изучат то, благодаря чему лицо выглядит так, как оно выглядит — внутренние структуры черепа, мышцы, жировая ткань и другие структуры, такие как железы, которые создают и влияют на формы лица. Без базового меша, начиная с начала, чтобы лучше понять все слои, которые накладываются друг на друга. Когда это знание будет достигнуто, мы углубимся (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 04:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5521A7D33014A5DA3F6096C8048824E8CAFB01E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

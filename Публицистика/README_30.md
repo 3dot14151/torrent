@@ -1,3 +1,29 @@
+###  Публикация: 1285938   (716815) от 28.02.2019
+
+Андрей Колесников | Дом на Старой площади (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Колесников — эксперт Московского центра Карнеги, автор нескольких книг, среди которых «Спичрайтеры», «Семидесятые и ранее», «Холодная война на льду». Его отец — Владимир Колесников, работник аппарата ЦК КПСС — оставил короткие воспоминания. И сын «ответил за отца» — написал комментарии, личные и историко-социологические, к этим мемуарам. Довоенное детство, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4933B1FE187A4EBCCD67F020938F4031B8BBF2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130220   (716529) от 01.05.2017
 
 К. Н. Ковалев (сост.) | Историческое развитие быта женщины, брака и семьи (1931) [PDF]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716529.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716422.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716419.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715205.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714916.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714913.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714870.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713817.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713801.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713376.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712969.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711969.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711728.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710857.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710672.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709842.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ lee | Инструкция к телу (2016) [FB2, PDF, EPUB]
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709320.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709301.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709191.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709054.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709016.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709011.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708907.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707183.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707178.jpg" />
 </div>
 
 
@@ -658,34 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:592CBF0CF6B08D669F95E33EDCD3A2C4D2C5231F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131673   (707108) от 06.05.2017
-
-Р. М. Бравая | Охрана материнства и младенчества на Западе и в СССР (1929) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707108.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всякому особенному историческому способу производства свойственны в действительности свои особенные, имеющие историческое законы народонаселения»,—так формулировал Маркс свой закон народонаселения.
-
-Марксов закон народонаселения дает ключ к пониманию отношения общества к женщине и к ребенку в разные исторические эпохи. Их участь, как и вся область семейных отношений (   Читать дальше...   )Жанр: История, политология, экономика, культурологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77525EA0128DB5E0F1F2C6A8397506F93EC6C2D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

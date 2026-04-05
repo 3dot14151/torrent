@@ -1,3 +1,32 @@
+###  Публикация: 1024033   (720311) от 07.06.2016
+
+Сборная союза - Там,где ты... (2015) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Там,где ты... (3:54)
+02. Однажды в Сочи (3:39)
+03. Все повторится вновь (3:58)
+04. Изменюсь (2:48)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39DEC7C8855C87196DFB7A7AFF82549CC127215E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023859   (720209) от 07.06.2016
 
 Евгений Росс - Заплутали мишки (2011) [FLAC|Lossless|image + .cue] <Chanson>
@@ -6,7 +35,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720209.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718800.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Ништяк, браток! 14 Альбомов (1995 - 2003) [MP3|320 Kbps
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718462.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714760.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Застольные от Петровича 70% - 96% (2004) 2 Альбо�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712929.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712594.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710188.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710106.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708434.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707048.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705372.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705192.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705165.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704930.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704844.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ VA - Этот День победы (2010) [MP3|320 kbps]<Песни военн�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704379.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704249.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703535.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ VA - Наши песни - Песни Победы (2001) [MP3|320 kbps]<Вое�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703374.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702868.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ VA - Песни военного времени (2011) 3CD [MP3|320 Kbps] <Ре�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702497.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702173.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701433.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ VA - День победы (2010) [FLAC|Lossless] <Военные песни>
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_700344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700344.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700332.jpg" />
 </div>
 
 
@@ -707,35 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3426717F3CF915149E1B2E5CF20EE88FEBE05F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531640   (699418) от 27.02.2022
-
-Ольга Стельмах - Звезды безумной любви! (2022) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звезды безумной любви
-02. День без тебя
-03. Мелодия дождя
-04. Настоящего(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDBD20B8CCA01D8385D9D1C5CA80F0DA5BA3DE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

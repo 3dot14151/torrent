@@ -1,3 +1,29 @@
+###  Публикация: 1173214   (390573) от 11.10.2017
+
+Журнал | Наука и техника №1 (128) (январь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал, содержащий разнообразную информацию от ведущих ученых и специалистов в отраслях военной, технической, исторической и научной тематики.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16EDEFE80394B510C0C2532A8D8101180508396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173223   (390533) от 11.10.2017
 
 Журнал | Квант №8 (август 2017) [PDF]
@@ -6,7 +32,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390533.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389642.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381055.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376629.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373546.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373469.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373287.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372753.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372742.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372575.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371288.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371129.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370503.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370368.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370230.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368280.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366047.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366042.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365175.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364298.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364100.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362686.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360943.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360937.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360904.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1B14CCCD9D50DDE4AF9CB60DEA3373D886B0CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177630   (360755) от 26.10.2017
-
-Журнал | Вокруг света №10 (октябрь 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал публикует новые взгляды на известные исторические события, рассказы о знаменитых людях и их судьбах, информацию о новых научных открытиях и технических достижениях. Он был основан в Санкт-Петербурге в 1861 году и с того времени практически без перерывов издаётся на протяжении уже полутора веков. За это время журнал прошел несколько этапов от географического (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB03CBE22A67510492C122CE0F42918A2B0AFB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

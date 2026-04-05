@@ -1,29 +1,3 @@
-###  Публикация: 1440666   (1038387) от 18.01.2021
-
-Udemy, Леонид Тишкевич | Java курс c нуля и до первой работы. Полный стек технологий (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все необходимые навыки и технологии для работы Java разработчиком собраны в одном курсе. Много практики и теории. В данном курсе будут разобраны все технологии, необходимые для серверной разработки на Java, такие как Spring Framework, Spring Boot, Spring Data, Spring Cloud, Hibernate, протоколы REST & HTTP, базы данных, SQL, Docker и другие. Так же напишем несколько (   Читать дальше...   )Производство: JavaStartЖанр: ПрограммированиеПродолжительность: 32:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DF6F660936E62C1F4EE4A17FBD43341683A5D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440919   (1038203) от 19.01.2021
 
 Udemy, Ziyad Yehia | The Python Bible™ | Everything You Need to Program in Python (2020) PCRec [En / En Sub]
@@ -32,7 +6,7 @@ Udemy, Ziyad Yehia | The Python Bible™ | Everything You Need to Program in Pyt
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038203.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ Udemy, Jose Salvatierra | Web Developer Bootcamp with Flask and Python  (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038175.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Udemy, Anton Golosnichenko | Python для начинающих на практ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038137.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ Learn Python, Михаил Корнеев | Курс программирова�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038136.jpg" />
 </div>
 
 
@@ -145,7 +119,7 @@ Udemy, Apaar Kamal, Prateek Narang | Dynamic Programming Algorithms Master Cours
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038069.jpg" />
 </div>
 
 
@@ -171,7 +145,7 @@ Udemy, Lucas Bazilio | The Complete Haskell Course: From Zero to Expert! (2023) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038043.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ Udemy, Ali Alaa | Svelte & SvelteKit: The Complete Guide (2022) WEB-DL [EN / EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038037.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037968.jpg" />
 </div>
 
 
@@ -252,7 +226,7 @@ Udemy, Nikita Putintsev | Создание 3D игр на Unity. Shooter (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037965.jpg" />
 </div>
 
 
@@ -278,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037961.jpg" />
 </div>
 
 
@@ -304,7 +278,7 @@ Stepik, Сергей Балакирев | Добрый, добрый Python ОО
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037954.jpg" />
 </div>
 
 
@@ -330,7 +304,7 @@ Slurm (Слёрм), Linkmeup, Алексей Учакин и др. | Сети д
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037953.jpg" />
 </div>
 
 
@@ -358,7 +332,7 @@ Udemy, Dzianis Matveyenka | HTTP. Servlets  (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037952.jpg" />
 </div>
 
 
@@ -384,7 +358,7 @@ Udemy, Диас Муратбаев | Изучаем Python 3.10 с основ, �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037696.jpg" />
 </div>
 
 
@@ -410,7 +384,7 @@ Udemy, Sergei Semenov | Автоматизация API: REST Assured + Java, п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037692.jpg" />
 </div>
 
 
@@ -436,7 +410,7 @@ Udemy, Jose Portilla | The Complete SQL Bootcamp 2021: Go from Zero to Hero (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037656.jpg" />
 </div>
 
 
@@ -464,7 +438,7 @@ Usegolang, Jonathan Calhoun | Web Development with Go (2022-2023) WEB-DL [EN] [�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037417.jpg" />
 </div>
 
 
@@ -490,7 +464,7 @@ Udemy, Imtiaz Ahmad | The Complete Oracle SQL Certification Course (2020) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037102.jpg" />
 </div>
 
 
@@ -516,7 +490,7 @@ ihatetomatoes, Petr Tichy | GreenSock - Bella (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037100.jpg" />
 </div>
 
 
@@ -545,7 +519,7 @@ Udemy, Lazy Programmer Inc. | Deep Learning Prerequisites: The Numpy Stack in Py
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037099.jpg" />
 </div>
 
 
@@ -572,7 +546,7 @@ Udemy, Frank Kane | Taming Big Data with Apache Spark and Python - Hands On! (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037094.jpg" />
 </div>
 
 
@@ -599,7 +573,7 @@ Udemy, Kirill Eremenko | Python A-Z™: Python For Data Science With Real Exerci
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037083.jpg" />
 </div>
 
 
@@ -628,7 +602,7 @@ CodeWithMosh, Mosh Hamedani | The Ultimate C# Mastery Series (2020) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037081.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Udemy, Роман Сакутин | Создание игры 2D Minecraft на C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037044.jpg" />
 </div>
 
 
@@ -682,7 +656,7 @@ UltimateCourses, Todd Motto | Angular Pro (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036831.jpg" />
 </div>
 
 
@@ -696,6 +670,35 @@ UltimateCourses, Todd Motto | Angular Pro (2020) PCRec [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F23402367EF9C536AA776E1F8DA2CFFD38FC830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442059   (1036795) от 24.01.2021
+
+Udemy, Code Star Academy и др. | The Complete Oracle SQL Bootcamp (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте востребованным специалистом по SQL и с уверенностью сдайте сертификационный экзамен по Oracle SQL 1Z0-071 (OCA)!
+В этом курсе все предметы объясняются в профессиональном порядке.
+Если вы новичок в SQL, нет проблем! Вы можете легко изучить все детали SQL. Если вы уже знаете SQL и хотите улучшить его, этот курс объясняет все детали, включая все предметы.
+Пройдя (   Читать дальше...   )Производство: UdemyЖанр: Программирование, базы данныхЯзык озвучки: АнглйискийПродолжительность: 22:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837177275AD9E2E78FE6C2366221FCF42AB5B918
 ```
 
 https://mybot314.ru/tekegram_catalog/

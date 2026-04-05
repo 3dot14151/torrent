@@ -1,3 +1,55 @@
+###  Публикация: 908808   (632234) от 15.06.2015
+
+К. Петров-Водкин (худ.) | Снегурочка (1923) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка для детей младшего возраста.Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44537ABD5D8648B21A7DECFAA023B915303449E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294187   (631999) от 06.04.2019
+
+Эндрю Зерчер | Двенадцать ночей (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631999.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Рождество отец Кэй задержался на работе допоздна – как обычно. Устав от ожидания, мама Кэй сажает дочек в машину и едет за ним. Однако от привратника одного из колледжей старого университета, в котором отец занимается научными исследованиями, они узнают, что все давно разъехались. Да и вообще, по словам привратника, в колледже нет сотрудника с таким именем. Когда (   Читать дальше...   )Жанр: Городское фэнтези, Детективное фэнтези, Фантастика для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579A6252A9B876672B18653AEB94CB6BE288A9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543279   (631992) от 10.04.2022
 
 Ганс Христиан Андерсен | Дюймовочка. Гадкий утёнок (1971) [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631992.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631976.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631887.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631883.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631854.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631852.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631847.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631829.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631679.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631673.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631667.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631580.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631530.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631501.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631261.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631190.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631125.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630849.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630665.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630589.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630214.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630211.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630207.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630110.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A27D32D5FEFEE0D98491FF53A2652771E7641F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909106   (630108) от 16.06.2015
-
-Н. М. Верзилин | Учитель ботаники, или Разговор с растениями (1984) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга об учителе ботаники и его предмете. Он учит ребят понимать природу, воспитывает у школьников любовь к труду на благо народа.
-Для младшего школьного возраста.Жанр: Детская образовательная литература, Природа и ЖивотныеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303074650A5718254B2A978134333F823682656F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909114   (630022) от 16.06.2015
-
-Галина Шалаева, О. М. Журавлева, Ольга Сазонова | Как вести себя в детском саду (2009) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта прекрасно иллюстрированная книга познакомит вашего малыша с основами этикета. Весёлые стихи помогут ребёнку понять, как вести себя в детском саду. Издание послужит замечательным подарком любому ребёнку.Жанр: Детская образовательная литература, Детские стихиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D35DAC093ED9AF0FE95CE32E3980A45F424D5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

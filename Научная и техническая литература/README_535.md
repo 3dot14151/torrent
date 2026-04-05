@@ -1,136 +1,3 @@
-###  Публикация: 1827646   (193389) от 22.10.2025
-
-Кале-Жермен Бландин | Анатомия дыхания (2025) [PDF, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существует по меньшей мере сотня способов дыхания. А возможно, и больше. Почему мы относим одни виды дыхания к пассивным, а другие — к активным? Может ли быть задержка дыхания отдыхом от интенсивной дыхательной деятельности?
-Дыхательные движения чрезвычайно разнообразны. Чаще всего мы их не замечаем, поскольку они совершаются неосознанно и пересекаются с другими (   Читать дальше...   )Жанр: Популярная анатомия и физиологияИздательство: ПопурриФормат: PDF, EPUBКачество: Изначально электронное (ebook), Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4F770F52158C404E7BB064011B51BAA82956A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827826   (193292) от 23.10.2025
-
-В.Э. Милн | Численное решение дифференциальных уравнений (1955) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является естественным продолжением книги того же автора «Численный анализ» (М., 1951).
-Книга посвящена изложению основных приемов численного решения дифференциальных уравнений и вопросов, связанных с таким решением. В первой части рассматриваются методы численного решения обыкновенных дифференциальных уравнений. Наряду с описанием самих методов автор рассматривает (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CDC4D6322F8F3F8E6662B0F163DC5D2A5E561C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827805   (193290) от 23.10.2025
-
-В.Э. Милн | Численный анализ (1951) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая книга, основное содержание которой заключается в подробном изложении практических способов, применяющихся при численном решении математических задач (интерполяция, способ наименьших квадратов, гармонический анализ, численное дифференцирование и интегрирование, решение уравнений, простейшие приемы интегрирования дифференциальных уравнений). В каждой главе (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4F35A8A98E6DED0B1E6EC551A3BDAEEC08D06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827780   (193289) от 23.10.2025
-
-П.И. Монастырный (ред.) | Сборник задач по методам вычислений (2000) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены подробные решения большого количества задач и упражнений по вычислительной математике.
-Для студентов вузов, а также для широкого круга специалистов в области прикладной математики.Жанр: МатематикаИздательство: Минск "Университетское"Формат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD3E3BF5A38721CA33145CB0CC6E9AE54544836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587083   (193211) от 29.10.2022
-
-В.М. Перельмутер | Пакеты расширения MATLAB. Control System Toolbox и Robust Control Toolbox (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193211.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описаны пакеты расширения Control System Toolbox и Robust Control Toolbox системы MATLAB 7, предназначенные для анализа и синтеза систем управления. Коротко изложены основные теоретические положения, принятые при разработке указанных пакетов расширения. Приведены многочисленные примеры использования этих пакетов расширения для решения конкретных задач с подробным (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B6FD227D17E24F1852F981D1EF35599B8DB587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587207   (193150) от 29.10.2022
 
 Б.Л. ван дер Варден | Алгебра (1979) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193150.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193144.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193013.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192936.jpg" />
 </div>
 
 
@@ -244,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192859.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192833.jpg" />
 </div>
 
 
@@ -299,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192793.jpg" />
 </div>
 
 
@@ -325,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192792.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192587.jpg" />
 </div>
 
 
@@ -379,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192579.jpg" />
 </div>
 
 
@@ -405,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192565.jpg" />
 </div>
 
 
@@ -431,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192563.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192533.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192288.jpg" />
 </div>
 
 
@@ -509,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192098.jpg" />
 </div>
 
 
@@ -535,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192056.jpg" />
 </div>
 
 
@@ -563,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192030.jpg" />
 </div>
 
 
@@ -589,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192007.jpg" />
 </div>
 
 
@@ -615,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191984.jpg" />
 </div>
 
 
@@ -642,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191771.jpg" />
 </div>
 
 
@@ -668,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191758.jpg" />
 </div>
 
 
@@ -679,6 +546,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3351FC1DF7169377D158CE24CD64BFBE7AD82390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587879   (191754) от 03.11.2022
+
+Э.И.Крупицкий | Слесарное дело (1976) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие по специальной технологии для подготовки слесарей различных специальностей в профтехучилищах.  Учебный материал разбит на дозы информации, предусматривается система вопросов и заданий. Может быть использовано рабочими и мастерами металлообрабатывающих профессий.Жанр: учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E5999D803EECC4BC8E7CF3E1FBC810A338E05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587882   (191752) от 03.11.2022
+
+М.А.Сергеев | Справочник слесаря-сборщика (1967) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191752.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Справочник слесаря-сборщика» содержит все основные сведения, необходимые сборщику машин и приборов.
+Материалы справочника даны в виде таблиц с иллюстрациями, ука­зывающими наиболее рациональные методы и приемы выполнения сборочных, контрольных и других вспомогательных операций, к которым приходится прибегать при сборке. Справочник предназначен для слесарей-сборщиков, (   Читать дальше...   )Жанр: учебное пособие, справочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F8FB0BB07C16E6F7F0577C4372421483ECDF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658007   (191702) от 06.09.2023
+
+Меган Миллер | Minecraft от А до Я. Неофициальная иллюстрированная энциклопедия (2022) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрированная энциклопедия для игроков Minecraft, одной из самых популярных компьютерных игр последних лет. От Меган Миллер, автора бестселлера «Все секреты Minecraft». Это руководство станет отличным помощником в постижении тайн игры. С его помощью вы достигнете небывалых успехов! Информация внутри отсортирована по алфавиту, поэтому можно с легкостью отыскать (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: М.А. РайтманИздательство: Бомбора, ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4574CC468795F57D01EAEA56E2FB31DC7A04626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588401   (191595) от 04.11.2022
+
+Анастасия Архипова, Екатерина Неклюдова | Эпоха сериалов. Как шедевры малого экрана изменили наш мир (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культурологов Анастасию Архипову и Екатерину Неклюдову объединяют не только профессиональные интересы и давняя дружба, но и любовь к сериалам. Этот своеобразный маркер нашего времени невозможно обойти вниманием. Телевизионные саги не только развлекают зрителя. Они порождают любопытнейшее явление под названием фэндом. Группы людей, объединенные общими интересами, (   Читать дальше...   )Жанр: Культурология, кинематограф, театрФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:025311D30B153291C20263397C27C1CF17D8392F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658192   (191582) от 07.09.2023
+
+В. С. Пантюшин | Лабораторные работы по электротехнике (1977) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191582.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приведены общие рекомендации и программы подготовки и осуществления экспериментальных исследований электротехнических устройств, изучаемых студентами неэлектротехнических специальностей в курсе «Электротехника».Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9979E66D8D426FAEE262E7C21805C181C6E0C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

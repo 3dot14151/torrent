@@ -1,3 +1,111 @@
+###  Публикация: 1521299   (766007) от 01.01.2022
+
+Резьбы и калькуляторы v3.3.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое и быстрое приложение с помощью которого вы можете:
+- Производить расчеты в специальных калькуляторах
+- Узнавать параметры резьбы в дюймах или миллиметрах
+- Все резьбы и калькуляторы снабжены высококачественными графиками, которые можно увеличиватьТип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 27 октября 2021 г.Разработчик: Artem KhПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A64AC95053391CDC45587D969B691333B9A8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126411   (766003) от 17.04.2017
+
+Алкоголь Сканер v1.3.1 Ad-Free [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сканируйте акцизную марку или QR код из чека алкоголя и проверяйте соответствие бутылки и информации на марке. Приложение позволяет получить информацию зашифрованную в акцизной марке алкоголя. Определить алкоголь контрафактный или легальный можно по несоответствию информации в акцизной марке и содержанию бутылки.  Не требует регистрации, проверьте алкоголь в один (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 26.12.2016Разработчик: Леонид КирилловПоддерживаемая ОС: Android 3.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D27937483F75730E750F730FE6A46B9C074566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987982   (765996) от 17.04.2017
+
+myRouteMap 8.1.2 [En/Ru] - интерактивный планировщик маршрута
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой в использовании и действительно интерактивный планировщик маршрута, который обеспечивает функциональность для планирования поездки не только между двумя точками, но маршруты, которые могут состоять из большого количества точек маршрута. Это может быть полезно для планирования дальних поездок с велосипедом или мотоциклом, который требует высокого уровня детализации. (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 16.04.2017Разработчик: PVsolutionsПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Английский и Русский (частично)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837FEB79E949A8C3A197488E7FB26BF6B7BCBC77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767673   (765920) от 17.04.2017
+
+All-In-One Toolbox Pro 7.2.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа включает в себя целый комплекс методов, которые помогут вам добиться максимальной производительности.
+Простой и интерактивный пользовательский интерфейс.Тип издания: ПираткаРелиз состоялся: 17.04.17Разработчик: AIO Software Technology CO., Ltd.Поддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8823C1E5D0119EE5599D23282B985ABB639725CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521197   (765855) от 01.01.2022
 
 Assistant Pro for Android v24.14 [Ru/Multi]
@@ -6,7 +114,7 @@ Assistant Pro for Android v24.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765855.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Magisk Manager v23.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765796.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Vocalizzo - Vocal Warm-up v2.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765438.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ Google Play Market (Плей Маркет) v20.5.19-all [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765106.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765084.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765070.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ Root Cleaner 7.1.0 [Ru] - Чистилка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765030.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ BusyBox Pro 55 & BusyBox Free 50 [En-Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765029.jpg" />
 </div>
 
 
@@ -219,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764786.jpg" />
 </div>
 
 
@@ -248,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764219.jpg" />
 </div>
 
 
@@ -274,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764172.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763892.jpg" />
 </div>
 
 
@@ -326,7 +434,7 @@ Learn English 6000 Words / Учим Английский 6000 Слов v5.40 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763887.jpg" />
 </div>
 
 
@@ -352,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763719.jpg" />
 </div>
 
 
@@ -378,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763675.jpg" />
 </div>
 
 
@@ -404,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763504.jpg" />
 </div>
 
 
@@ -430,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763445.jpg" />
 </div>
 
 
@@ -458,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763443.jpg" />
 </div>
 
 
@@ -485,7 +593,7 @@ EZ Folder Player v1.3.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763435.jpg" />
 </div>
 
 
@@ -514,7 +622,7 @@ Ultimate Guitar Tuner v2.14.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763342.jpg" />
 </div>
 
 
@@ -540,7 +648,7 @@ SD Card Test Pro v1.9.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763341.jpg" />
 </div>
 
 
@@ -567,7 +675,7 @@ File Manager - Local and Cloud File Explorer v5.0.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763327.jpg" />
 </div>
 
 
@@ -578,115 +686,6 @@ Smart File Manager (File Explorer) - это самое простое, мощн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD3C8387592A6B9DF76C1A8CE8C153018A70E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521969   (761773) от 05.01.2022
-
-Headway: Краткие содержания из книг v1.6.2.0 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузись в саморазвитие с самыми важными идеями из лучших книг мира про продуктивность, бизнес, переговоры, деньги, здоровье, любовь, инвестиции и прочее.
-
-Не хватает времени? Здесь ты не найдешь сотен долгих страниц — только 15 минут чтения кратких содержаний и вдохновляющие виджеты для твоей бесконечной мотивации на пути к лучшей версии себя!Тип издания: Пиратка (Premium)Релиз состоялся: 24 декабря 2021 г.Разработчик: Books Made Easy CorpПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6CF08914EA49DD86973419EF4BB820127E55B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522048   (761650) от 05.01.2022
-
-Изучение языков LingQ v4.9.22 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учите языки, погрузившись в мир интересного и оригинального материала! Начните с уроков начального уровня, чтобы потом достичь быстрого роста, используя реальный, захватывающий материал. Тысячи часов уроков, подкастов, аудиокниг, интервью и тд, все с текстом. LingQ позволит вам загружать и учиться на любом материале, который вы найдете в интернете! Начните свое языковое (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 21 октября 2021 г.Разработчик: LingQ Languages LtdПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17AD12D8039104BB12D4D7A3B4FC8E9A189E9AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521926   (761521) от 05.01.2022
-
-Английский словарь - 90 000 слов с картинками v141.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761521.jpg" />
-</div>
-
-
-###  Подробнее
-
-💘💘💘Любят и доверяют во всем мире 🥇🥇🥇
-🏆 «Английский словарь - 90 000 слов с картинками» был назван приложением года по версии Facebook.
-😃 Начинающий или продвинутый ученик, путешественник или бизнесмен - это приложение для американского английского отлично работает и динамически подстраивается под ваши (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 23 декабря 2021 г.Разработчик: 90.000 Words & Pictures - © 2021 EducationПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6427B736FE5F11EBD58200A477D37040A05A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522311   (760060) от 06.01.2022
-
-Weather Live Wallpapers v1.74 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взгляни на погоду по-новому!
-Движение солнца, осадки и фаза луны – реалистичная анимация на экране, с великолепно проработанными деталями. Живописный пейзаж отражает погоду с потрясающей точностью. Наслаждайтесь восходом солнца, радугой, пением птиц и каждым солнечным бликом!Тип издания: Пиратка (Pro+Paid)Релиз состоялся: 2 декабря 2021 г.Разработчик: SkySkyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F5E9029C1B8A05EB1D9ABF9656CDE5A8ACEFD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

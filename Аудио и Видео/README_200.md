@@ -6,7 +6,7 @@ Róisín Murphy - Take Her Up to Monto (2016) [AAC|~286 Kbps] <Downtempo, Funk /
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365391.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365216.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365069.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365033.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364143.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364106.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363613.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Moloko - All Back to the Mine (2001) [AAC|~309 Kbps] <House, Dub, Electro>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363343.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363271.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Millennium Trilogy Project - Act 1: The Trial (2020) [AAC|~351 Kbps] <Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363210.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Moloko - Statues (2013) [AAC|~320 Kbps] <Electronic, Leftfield, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363205.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Róisín Murphy - Ruby Blue (2013) [AAC|~338 Kbps] <Electronic, Future Jazz, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363197.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363110.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Armin van Buuren - Embrace (2015) [AAC|256 кб/с]<Dance, Electronic, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363081.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363047.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363024.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362998.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362971.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362852.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362840.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362839.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362828.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362787.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Schiller - Colors (2020) [AAC|~322 Kbps] <Ambient, Chillout, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362735.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Verka Serduchka (Верка Сердючка) - Sexy (2020) [AAC|~323 Kbps] <Pop
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362732.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362692.jpg" />
 </div>
 
 

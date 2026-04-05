@@ -1,30 +1,3 @@
-###  Публикация: 965111   (222635) от 16.12.2015
-
-М. Горький, Е. Честняков: Сказка про Иванушку-Дурачка, Чудесное яблоко (1980) [FLAC 2.0 16/44,1|tracks (Vinyl-Rip)] <Сказка>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки М. Горького и Е. Честнякова исполняют: В. Тучинский, В. Невинный, Р. Филиппов, М. Калашников, С. Бубнов, О. Якунина, З. Нарышкина, А. Баранцев, в эпизодах артисты московских театров, режиссёры А. Крюков и В. Иванов, инсценировка В. Толмачёвой.01. Сказка про Иванушку-Дурачка (М. Горький)
-02. Чудесное яблоко (Е. Честняков)Жанр: СказкаПродолжительность: 00:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965437   (222548) от 16.12.2015
 
 B. B. King - Blues Masters (Compilation) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Blues>
@@ -33,7 +6,7 @@ B. B. King - Blues Masters (Compilation) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222548.jpg" />
 </div>
 
 
@@ -62,7 +35,7 @@ Secret Service - When The Night Closes In (1985) [FLAC 2.0 24/192|traks(Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221879.jpg" />
 </div>
 
 
@@ -91,7 +64,7 @@ Great White - Studio Albums (14 releases) (1991 - 2021) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221365.jpg" />
 </div>
 
 
@@ -120,7 +93,7 @@ Coffin Hag - Prairie Tyrant (2023) [FLAC|24/44.1|tracks|WEB-DL] <Psych Stoner Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219758.jpg" />
 </div>
 
 
@@ -149,7 +122,7 @@ GNOB - 2 Albums (2018-2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Psych, Fuzz, Stone
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219713.jpg" />
 </div>
 
 
@@ -177,7 +150,7 @@ VA - Syksyn Savelia (1982) [FLAC|96/24|image + .cue|Vinyl-Rip] <Electronic, Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219574.jpg" />
 </div>
 
 
@@ -206,7 +179,7 @@ Peter Matz - Quadraphonic Spectacular (1972) [FLAC|96/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219557.jpg" />
 </div>
 
 
@@ -235,7 +208,7 @@ VA - Disco Chelsea (1978) [FLAC|192/24|image + .cue|Vinyl-Rip] <Soul, Funk, Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219510.jpg" />
 </div>
 
 
@@ -264,7 +237,7 @@ Elvis Presley - Collection 11 Альбомов 13 LP (1956-2007) [FLAC/APE 2.0 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219366.jpg" />
 </div>
 
 
@@ -290,7 +263,7 @@ Alice Cooper – 20 Альбомов (1972-2011) [FLAC 2.0 24/96|tracks (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219328.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Rainbow - 7 альбомов (1975-1983) [FLAC 2.0 24/192|image + .cue (Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219319.jpg" />
 </div>
 
 
@@ -348,7 +321,7 @@ Slaughter - Studio Albums (7 releases) (1990 - 2017) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218906.jpg" />
 </div>
 
 
@@ -378,7 +351,7 @@ Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217951.jpg" />
 </div>
 
 
@@ -407,7 +380,7 @@ Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217915.jpg" />
 </div>
 
 
@@ -436,7 +409,7 @@ VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217891.jpg" />
 </div>
 
 
@@ -465,7 +438,7 @@ The Alan Parsons Project - Tales of Mystery and Imagination [40th Anniversary Ed
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217767.jpg" />
 </div>
 
 
@@ -494,7 +467,7 @@ VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217708.jpg" />
 </div>
 
 
@@ -523,7 +496,7 @@ Rock House - Rockin' With Rock House (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216910.jpg" />
 </div>
 
 
@@ -552,7 +525,7 @@ VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216793.jpg" />
 </div>
 
 
@@ -581,7 +554,7 @@ Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216114.jpg" />
 </div>
 
 
@@ -610,7 +583,7 @@ Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214753.jpg" />
 </div>
 
 
@@ -639,7 +612,7 @@ Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214672.jpg" />
 </div>
 
 
@@ -668,7 +641,7 @@ Bullet For My Valentine - Studio Albums (7 releases) (2006 - 2021) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214597.jpg" />
 </div>
 
 
@@ -697,7 +670,7 @@ Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphoni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214374.jpg" />
 </div>
 
 
@@ -726,7 +699,7 @@ Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214264.jpg" />
 </div>
 
 
@@ -740,6 +713,35 @@ A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653299   (214043) от 17.08.2023
+
+ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214043.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Shine A Little Love
+A2 Confusion
+A3 Need Her Love
+A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Rock, Prog Rock, Symphonic RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
 ```
 
 https://mybot314.ru/tekegram_catalog/

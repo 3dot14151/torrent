@@ -1,3 +1,55 @@
+###  Публикация: 1442210   (6058) от 25.08.2025
+
+Восхождение (1976) Blu-ray [H.264/1080p] [Criterion Collection]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оккупированная Белоруссия, зима 1942 года. Партизаны - солдат Рыбак и офицер Сотников отправляются на поиски продовольствия для партизанского отряда. После стычки с полицаями они скрываются в деревне, но спустя некоторое время их настигают каратели. Допросы, пытки, страх... Поиски выхода, компромисса, сделки с совестью приводят одного из героев фильма к предательству.Производство: СССР / МосфильмЖанр: Драма, военныйРежиссер: Лариса ШепитькоАктеры: Борис Плотников, Владимир Гостюхин, Анатолий Солоницын, Сергей Яковлев, Людмила Полякова, Виктория Гольдентул, Мария Виноградова, Николай Сектименко, Сергей Канищев, Владимир ЛаптевПеревод: Не требуется (русский)Субтитры: АнглийскиеПродолжительность: 01:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6E99F0FE60855D71A9F3B6D6A09C24E3C85C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535962   (4889) от 01.09.2025
+
+Приходите завтра... (1962) WEB-DLRip [H.264/720p] (Цветная версия)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прямая в общении, обаятельная и немного смешная девушка Фрося Бурлакова приезжает из далекой сибирской деревушки в столицу поступать в музыкальную консерваторию. У нее сильный и красивый голос, в деревне всем нравилось как она поет, и поэтому она решила, что она непременно должна стать артисткой.Производство: СССР / Одесская киностудияЖанр: Драма, мелодрама, комедия, музыкаРежиссер: Евгений ТашковАктеры: Екатерина Савинова, Анатолий Папанов, Борис Бибиков, Антонина Максимова, Юрий Горобец, Надежда Животова, Александр Ширвиндт, Юрий Белов, Александра Денисова, Борис КоковкинСубтитры: РусскиеПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E409EE8CFD58A01AC20BA4DBBB1D87926EB8AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576275   (4880) от 01.09.2025
 
 Ключ без права передачи (1976) WEBRip [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4880.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4740.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4738.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3927.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3528.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3061.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2019.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1900.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1896.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1864.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1860.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1856.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1831.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1826.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1522.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1513.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1491.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1328.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_786.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_652.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_338.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_331.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119.jpg" />
 </div>
 
 

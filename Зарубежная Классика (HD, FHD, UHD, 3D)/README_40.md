@@ -1,3 +1,107 @@
+###  Публикация: 804661   (608080) от 16.07.2014
+
+Возвращение высокого блондина / Le retour du grand blond / The Return of the Tall Blond Man with One Black Shoe (1974) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Комедия, ДетективРежиссер: Ив РоберАктеры: Пьер Ришар, Жан Карме, Жан Рошфор, Мирей Дарк, Жан Буиз, Поль Ле Персон, Колетт Кастель, Анри Гибе, Эрве Санд, Жан АмосПеревод: Дублированный, МногоголосыйЯзык субтитров: Английский, Французский (отдельным файлом)Продолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD6D954E4456376C81AF76DE0C89CC868FF73F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804662   (608066) от 16.07.2014
+
+Высокий блондин в черном ботинке / Le grand blond avec une chaussure noire / The Tall Blond Man with One Black Shoe (1972) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассеянного скрипача-виртуоза Франсуа Перрена принимают за секретного суперагента. Высокий блондин оказывается крепким орешком. Он с легкостью избегает всех опасностей, даже не подозревая о них.Жанр: Комедия, ДетективРежиссер: Ив РоберАктеры: Пьер Ришар, Бернар Блие, Жан Рошфор, Мирей Дарк, Колетт Кастель, Жан Об, Робер Кастель, Жан Содрэ, Роже Качча, Морис БарьеПеревод: Дублированный, МногоголосыйЯзык субтитров: Английский, Французский (отдельным файлом)Продолжительность: 01:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAC3330FB2315C88037ACBC21F9A871FAA3E4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 222166   (607696) от 28.07.2010
+
+Якудза / The Yakuza (1974) [H.264/720p-LQ] HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Якудза — это мафия, родившаяся 350 лет назад в Японии, стране, где восходит солнце. О якудзе известно только то, что проникший в ее тайны — обречен. На след якудза вышел американский сыщик, занимающийся делом о похищении дочери миллионера…Жанр: Боевик, Драма, ТриллерРежиссер: Сидни Поллак.Актеры: Роберт Митчум, Кэн Такакура, Брайан Кит, Херб Эдельман, Ричард Джордан, Кэйко Киси, Эйдзи Окада, Джеймс Шигета, Кёскэ Машида, Кристина Кокубо и др.Продолжительность: 01:52:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038424   (606054) от 28.07.2016
+
+Человек дождя / Rain Man (1988) BDRip [H.265/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606054.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Чарли, грубоватого и эгоистичного молодого повесы, в наследство от отца остались лишь розовые кусты да «Бьюик» 49-го года. Внезапным «сюрпризом» для него стало открытие того, что львиная доля наследства оставлена отцом его больному аутизмом брату Раймонду. Задавшись целью отобрать свою «справедливую долю» семейного достояния, Чарли похищает старшего брата и держит (   Читать дальше...   )Производство: США / Guber-Peters Company, United ArtistsЖанр: ДрамаРежиссер: Барри ЛевинсонАктеры: Дастин Хоффман, Том Круз, Валерия Голино, Джералд Р. Молен, Джек Мёрдок, Майкл Д. Робертс, Ральф Сеймур, Люсинда Дженни, Бонни Хант, Ким РобиллардПеревод: Многоголосый закадровый, профессиональный (Blu-ray CEE)Язык субтитров: Итальянский, английский, русскийПродолжительность: 02:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FD507C32ED924BA2D76741277196FB41B07292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908708   (604869) от 29.06.2015
 
 Африканская королева / The African Queen (1951) BDRip [H.264/720p]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604869.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604861.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604580.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604205.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604167.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603838.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603794.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603647.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603537.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603381.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603279.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602419.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602009.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601811.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600168.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599991.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598975.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598754.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598022.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598009.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597777.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597542.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BED1CE6A3EA8560D592BECCC7C79D55EE416AEF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039319   (597165) от 31.07.2016
-
-Жемчужина Нила / The Jewel of the Nile (1985) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои предыдущей части Джэк и Джоан живут спокойной, размеренной жизнью богатых бездельников. У них есть все, что могут позволить деньги: яхта, виллы, прислуга. Но им скучно. Скучно друг с другом, и этим обществом. Чтобы развлечь себя, Джоан принимает приглашение арабского шейха посетить его восточную резиденцию. Но сказка обернулась кошмаром: арабский красавец похищает (   Читать дальше...   )Производство: СШАЖанр: Боевик, Мелодрама, Комедия, ПриключенияРежиссер: Льюис ТигАктеры: Майкл Дуглас, Кэтлин Тёрнер, Дэнни ДеВито, Спирос Фокас, Эвнер Айзенберг, Пол Дэвид Магид, Ховард Джей Пэттерсон, Рэндал Эдвин Нельсон, Сэмюэл Росс Уильямс, Тимоти Дэниэл Фёрст, Холланд Тейлор, Гай Куэвас, Питер ДеПальма, Марк Дэйли Ричардс, Дэниэл Пикок, Алауи Хасен, Флора Альберти, Патриция Дэвидсон, Байи Абдельмаджид, Мохамед Аттифи, Хиляль АбделлатифПеревод: Многоголосый закадровый (Киномания)Продолжительность: 01:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32869A7B92728D8F0C7C704E125FDF6A44666A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526693   (596795) от 24.07.2012
-
-Эммануэль / Emmanuelle (1974) [H.264/720p-LQ] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый фильм о жрице любви Эммануэль. Сюжет служит канвой для описания сексуальных похождений героини в Юго-Восточной Азии.Муж Эммануэль, работающий в посольстве, поощряет в ней стремление к раскрепощенности в сексе, благо весь дипломатический корпус, особенно женщины, изнывают от скуки. За её воспитание берется уже пожилой специалист. Эммануэль делает большие успехи в искусстве любви.Жанр: Драма, ЭротикаРежиссер: Жюст ЖэкинАктеры: Ален Кюни, Сильвия Кристель, Марика Грин, Даниэль Сарки, Жанна Коллетен, Кристин Буассон, Саманта, Габриэль Бриан,ГрегориПеревод: ПрофессиональныйПродолжительность: 01:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7411720AB1E8CE31C1AF45B03F7B23442605A497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146440   (596536) от 13.07.2017
-
-Бегство к Афине / Escape to Athena (1978) BDRip [H.265/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит во время Второй мировой войны в 1944 году на одном из греческих островов, окупированном нацистами. Американские и английские военнопленные под руководством своего лидера Зено осуществляют побег. При этом они спасают не только свои жизни, но и древнегреческие предметы искусства.Производство: Великобритания / Incorporated Television Company (ITC), Pimlico FilmsЖанр: Боевик, Комедия, Приключения, ВоенныйРежиссер: Джордж П. КосматосАктеры: Роджер Мур, Телли Савалас, Дэвид Нивен, Стефани Пауэрс, Клаудия КардиналеПеревод: Двуголосый закадровый (АО "Консул")Субтитры: отсутствуютПродолжительность: 01:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9EEA5E4922E5B4145ECA1C268386911189FDADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546140   (596180) от 04.05.2022
-
-Рожденная свободной / Born Free (1965) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596180.jpg" />
-</div>
-
-
-###  Подробнее
-
-История львицы Эльсы, ещё детенышем попавшей к супругам Адамсон. Они не только спасают малышку от неминуемой гибели, но и, вырастив её, возвращают назад в дикую природу, потому что она была рождена свободной.Производство: Великобритания / Open Road Films, Atlas, HighroadЖанр: приключения, семейный, драмаРежиссер: Джеймс Хилл, Том МакГоунАктеры: Вирджиния МакКенна, Билл Треверс, Джеффри Кин, Питер Лукойе, Омар Чамбати, Билл Годден, Брайан Эпсом, Роберт Читэм, Роберт С. Янг, Джеффри БестПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C040FF634216345B4997DC095E1D929CA2FB0021
 ```
 
 https://mybot314.ru/tekegram_catalog/

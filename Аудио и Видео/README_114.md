@@ -6,7 +6,7 @@ Martin Hiska - Deep Blue Sunset Sessions (2020) [AAC|~343 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709097.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Chill Out Pearls, Vol. 3 (Lazy Chill Out Tunes) (2019) [AAC|~301 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709096.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Martin Hiska - Globalearic (2021) [AAC|~341 Kbps] <Lounge, Chill Out, Organic Ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709095.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Chill Out Pearls, Vol. 4 (Lazy Chill Out Tunes) (2020) [AAC|~299 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708998.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Music Is My First Love (Rare Electronic Pearls), Vol. 2 (2021) [AAC|~303 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708994.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Music Is My First Love (Rare Electronic Pearls), Vol. 3 (2021) [AAC|~303 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708992.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Music Is My First Love (Rare Electronic Pearls), Vol. 1 (2021) [AAC|~302 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708989.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708936.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708928.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708858.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708843.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708556.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708437.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708427.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708232.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707905.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707794.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Notes from the Depth, Vol. 17 (2021) [AAC|~324 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707442.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Notes from the Depth, Vol. 18 (2021) [AAC|~338 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707439.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Notes from the Depth, Vol. 19 (2021) [AAC|~343 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707394.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Evening Mood, Vol. 1 (2022) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707393.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Diamonds & Pearls Lounge, Vol. 4 (2010) [AAC|~336 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707390.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Diamonds & Pearls Lounge - 5th Anniversary (2013) [AAC|~336 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707388.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Diamonds & Pearls Lounge, Vol. 5 (2011) [AAC|~341 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707369.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Diamonds & Pearls Lounge, Vol. 6 (2014) [AAC|~337 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707364.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - I Need You Tonight, Vol. 2 (50 Deep-House Babies) (2016) [AAC|~324 Kbps] <D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707359.jpg" />
 </div>
 
 

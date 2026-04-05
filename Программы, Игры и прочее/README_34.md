@@ -1,3 +1,107 @@
+###  Публикация: 1477375   (1011050) от 14.06.2021
+
+Total Recall - Call Recorder v2.0.86 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total - Recall Call Recorder – отличная программа для записи звонков и в качестве диктофона для Android. В отличие от большинства приложений типа Запись Звонков, которые просто осуществляют звукозапись звонка с вашего Микрофона (при низком уровне звука), приложение Total Recall разработано с целью реальной записи звонка, которая подразумевает двухстороннюю запись (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.10.2020Разработчик: Killer MobileПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC75EB7AF557041BBAA7DC644CBAAACC0A1EA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477387   (1010911) от 15.06.2021
+
+Трекарта v2021.05 [Ru/En] - оффлайн топо карты для активного отдыха (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Трекарта предназначено для походов, геокешинга, бездорожья, велопрогулок и другой активности на свежем воздухе. Приложение использует офлайн карты, поэтому вам не потребуется интернет-подключение. Вы можете легко импортировать точки и треки из файлов в формате GPX и KML или создавать свои собственные точки и делиться ими с другими. Приложение позволяет (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 10.06.2021Разработчик: Andrey NovikovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51F5D9BFF6231704614DC16F3C05BCE74D6DD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381083   (1010719) от 16.06.2021
+
+Mubert v4.2.0 [Ru/Multi] - сервис фоновой музыки
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mubert — мобильное приложение, которое генерирует уникальную музыку, индивидуальную для каждого слушателя. Искусственный интеллект создает бесконечную музыку в разных настроениях и жанрах, используя базу сэмплов. Стань частью поколения слушателей музыки будущего. Оцени новый музыкальный формат. Музыка без плейлистов и чартов. Музыка, которая никогда не останавливается.Тип издания: Пиратка (открыт Premium) + ModРелиз состоялся: 15.06.2021Разработчик: MUBERT Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCD3A07DDF7519B3C7A25A0CB5870EB2C482883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478108   (1010640) от 17.06.2021
+
+AUG Launcher v3.7.7 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010640.jpg" />
+</div>
+
+
+###  Подробнее
+
+AUG Launcher - удобный, многофункциональным и быстрый лаунчер, со своими интересными фишками. Работаем довольно быстро даже на старых телефонах. Лаунчер поддерживает множество жестов которые пользователь может перенастроить под свои нужды.Тип издания: Pro (Mod)Релиз состоялся: 05.06.2021Разработчик: G K RПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619011FD593060253BC7DE825289E5B25A02ACAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470191   (1010604) от 17.06.2021
 
 Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
@@ -6,7 +110,7 @@ Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010604.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Dictionary - Merriam-Webster v5.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010136.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ POIbase speed camera warner V7.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010098.jpg" />
 </div>
 
 
@@ -90,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010093.jpg" />
 </div>
 
 
@@ -119,7 +223,7 @@ Text Scanner v4.1.7 [Ru/En] - извлечение текста из изобр�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010063.jpg" />
 </div>
 
 
@@ -148,7 +252,7 @@ magicplan v9.7.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009945.jpg" />
 </div>
 
 
@@ -174,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009741.jpg" />
 </div>
 
 
@@ -200,7 +304,7 @@ Dictionary.com Premium v9.7.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009666.jpg" />
 </div>
 
 
@@ -226,7 +330,7 @@ Artly v2.9.2 [Ru] - Learn Art History, Artworks & Paintings
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009560.jpg" />
 </div>
 
 
@@ -254,7 +358,7 @@ AVG AntiVirus 2021 v6.39.5 [Ru] - Free Mobile Security
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009256.jpg" />
 </div>
 
 
@@ -280,7 +384,7 @@ Avira Security 2021 v7.8.1 [Ru] - антивирус и VPN
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009213.jpg" />
 </div>
 
 
@@ -306,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009201.jpg" />
 </div>
 
 
@@ -332,7 +436,7 @@ Zemana Antivirus 2021: Anti-Malware & Web Security v2.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009114.jpg" />
 </div>
 
 
@@ -358,7 +462,7 @@ Umbrella - Adblock & Firewall v1.6.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009100.jpg" />
 </div>
 
 
@@ -384,7 +488,7 @@ n7player Music Player 3.1.2-287 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008684.jpg" />
 </div>
 
 
@@ -410,7 +514,7 @@ Body Language: Psychology behind everyday gestures v4.2.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008011.jpg" />
 </div>
 
 
@@ -437,7 +541,7 @@ Wannalisn v3.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008006.jpg" />
 </div>
 
 
@@ -464,7 +568,7 @@ GPS Camera with latitude and longitude v1.9.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007991.jpg" />
 </div>
 
 
@@ -490,7 +594,7 @@ Document Viewer v3.3 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007984.jpg" />
 </div>
 
 
@@ -516,7 +620,7 @@ KISS Launcher 3.16.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007846.jpg" />
 </div>
 
 
@@ -542,7 +646,7 @@ F-Stop Gallery Pro 5.3.24 Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007588.jpg" />
 </div>
 
 
@@ -568,7 +672,7 @@ Kuji Cam 2.21.29 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007576.jpg" />
 </div>
 
 
@@ -579,110 +683,6 @@ Kuji Cam - это необычная камера с винтажными эфф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B22AA4BB2533873F1423A9AE28D51A1BB46FA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482309   (1007572) от 08.07.2021
-
-Power Shade: Notification Panel & Quick Settings 18.1.0 Mod by Mixroot, mak7im01 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Power Shade: Notification Bar Changer Manager - ещё один из функциональных и продуктивных проектов для создания и настройки системы уведомлений, а так же последующей адаптации под свои требования и вкусовые предпочтения по внешнему виду. Смена цвета, вид рамок, фона и прочих визуальных аспектов сделает всё максимально красиво, а изменения скорости появления, разделения (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.07.2021Разработчик: ZipoAppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF78F9F079BE382A2763F30C42FABC625523272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482559   (1007363) от 09.07.2021
-
-TickTick: Менеджер задач, Органайзер и Календарь 6.0.2.4 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007363.jpg" />
-</div>
-
-
-###  Подробнее
-
-TickTick: Менеджер задач, Органайзер и Календарь - При использовании данного приложения у вас не возникнут трудности по составлению списка дел и быстрой их синхронизации между различными устройствами. На главном экране содержится список всех ваших заданий, с разделением на "Выполненные" и "Текущие". Сверху указывается имя папки, в которой находятся (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 08.07.2021Разработчик: Appest Inc.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A87BA992B5C623CE2BA77C2185A0800F81CA812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482874   (1007255) от 10.07.2021
-
-WeNote - Заметки, задачи, напоминания и календарь 3.59 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007255.jpg" />
-</div>
-
-
-###  Подробнее
-
-WeNote - Заметки, задачи, напоминания и календарь - это многофункциональное и крайне удобное приложение, что предлагает пользователям возможность составлением задач и заметок в одной оболочке. С простым и наглядным интерфейсом, оперативным вводом данных, созданием элементов и всего прочего, а так же напоминаний, интерактивных списков и многое другого. Так же можно (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.06.2021Разработчик: Yocto EnterpriseПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4A7E7DFB33FCE432447941C82DAC18821F4273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475177   (1007248) от 10.07.2021
-
-Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Велосипед Trекер - Велокомпьютер - это приложение для всех, кто любит кататься на велосипеде и заниматься другими видами спорта, такими как бег, треккинг, пеший туризм или велосипед. Не имеет значения, вам нравятся зимние или летние виды спорта, вы профессиональный велосипедист, фанат BMX, пользуетесь электрическим велосипедом или велосипедной трассой эндуро, это (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 22.06.2021Разработчик: Sport & TravelПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5531DE00CB3C181992BF144CF283E50519DCC1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

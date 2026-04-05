@@ -1,3 +1,501 @@
+###  Публикация: 1029708   (680070) от 27.06.2016
+
+Шаблоны - GraphicRiver - Artistic Photo Manipulation [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artistic Photo Manipulation -  шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3000×2000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857511F48BC5BDC86022B8B9958E9D754B1C7A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029717   (680067) от 27.06.2016
+
+Шаблоны - GraphicRiver - Geometric Photo Manipulation [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geometric Photo Manipulation - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 2000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03851B7EDE019A261D177E49C28C83A1BA385DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029741   (679995) от 27.06.2016
+
+Шаблоны - GraphicRiver - Art Stick Photo Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Stick - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 2000x3000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E93C3FDF0CDD8DCBE39402B58362A2D5B1BB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029694   (679905) от 27.06.2016
+
+Экшены - CreativeMarket - Qlilipn - Image to Parallax Video [ATN, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Qlilipn, самый первый Фотошоп экшен для Instagram видео. Создаёт видео с потрясающим эффектом параллакса из статического изображения с супер-простым шагом в фотошопе.Формат: ATN, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845826A3BF6D8F73047BE77E49944307702AD7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223182   (679286) от 02.05.2018
+
+Текстуры - Creative Market - Digital papers marble effect - 1868948 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные цифровые текстуры с официальной документацией.
+Автор: la petite pruneФормат: JPGРазрешение файлов: 3602 x 3602
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCC8DB8F98FEA76D44751BD42AC6C39A2ECB55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223032   (679273) от 02.05.2018
+
+Текстуры - Creative Market - Marble Paper Textures Vol.3 - 1487162 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры на бумаге.
+Автор: Create by Ari Bintara (bolpent).Формат: JPGРазрешение файлов: 4500 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805264A7B42CA533DE40AFC0748BA906DD702DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223057   (679184) от 02.05.2018
+
+Текстуры - Creative Market - Marble Paper Textures 3 - 2322123 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры с официальной документацией, выполненные с использованием древней техники суминагаши. Это означает "плавающие чернила", это японское искусство мраморной бумаги с водой и чернилами. Эти замысловатые узоры сначала содаются на поверхности воды чернилами и кистями, а затем переносятся на лист бумаги, поэтому они никогда не повторяются.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FDFD0A3660A9881B1E39BD19CD5950AF88D39EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223041   (679180) от 02.05.2018
+
+Текстуры - Creative Market - 85 Luxury Gold Marble Textures - 1540878 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры золотого мрамора с официальной документацией.Формат: JPGРазрешение файлов: 3000 X 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE20647C920226CF277A84ACFA3B860555A05B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223017   (679177) от 02.05.2018
+
+Текстуры - Creative Market - Red Glitter Texture Pack - 159213 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры с блёстками красного цвета.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E6314A019F24C471687821BA91490D1D7F7358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223081   (679167) от 02.05.2018
+
+Текстуры - Creative Market - 70 Marble Textures - 2271417 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры.Формат: JPGРазрешение файлов: 6000 x 6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E8EAC46AF7A0541C4AD94116F2BBAB658F759C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508575   (678942) от 10.06.2012
+
+Растровый клипарт - Миры Lemmy-X [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы финского фотохудожника Lemmy-XРазрешение файлов: 1024х819 - 2000х2000Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CC32CAD861B495810B4484AB481A015BF274E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508649   (678806) от 10.06.2012
+
+Растровый клипарт - Прекрасные женщины востока [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот они - покорительницы мужских сердец - женщины востока во всей своей красе.Формат: JPGРазрешение файлов: 2000x3008 - 3504x2336
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC73A0B9465E2F70392B83AB1166BF0852BC1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508650   (678501) от 10.06.2012
+
+Векторный клипарт - Векторные роботы [CDR,EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторные роботыРазрешение файлов: 373х566 - 1197x2031
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF128D213B66288B13A900D722CF56228D75BF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029752   (678078) от 28.06.2016
+
+Шаблоны - GraphicRiver - Animated Ink Portrait Template - 16658230 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Animated Ink Portrait - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 30002000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE82C19D08FC4B26FE683A0474138C696FD0722A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029956   (678068) от 28.06.2016
+
+Экшены - GraphicRiver - Wet Art Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите отобразить ваши фотографии в виде рисунка из жидкой акварели - дерзайте!Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24656F64EE40F7E7042D0BDFDEE16C00C02F62B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029820   (678011) от 28.06.2016
+
+Шаблоны - GraphicRiver - Photo Templates [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Templates - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000×3000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476D4AAA4ADF2CD1C190D3F94AA346C27EEB6DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223187   (677397) от 03.05.2018
+
+Текстуры - Creative Market - Marble Paper Textures - 2422489 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры.
+Автор: BonaDesignsФормат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD6D78172CF1013A617A4A5544D2309ABF87272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223190   (677391) от 03.05.2018
+
+Текстуры - Creative Market - Sumi Flow. 50 Marble Textures - 1234997 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры.
+Автор: DoozyDoФормат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BA5C75E4B4B36ECB10DAE312FD34E55C82E546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797352   (677118) от 18.06.2014
+
+Boom Library - MEDIEVAL WEAPONS [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boom Library - Medieval Weapons: Construction Kit - библиотека звуков средневекового боя - лязганье мечей, стали, бряцанье кольчуги. Medieval Weapons: Construction Kit заполнена огромным диапазоном высококачественных исходных записей кинжалов, стрел, арбалетов, мечей, молотков, катапульт, щитов и т.д. Мы путешествовали в исторический объект Всемирного наследия ЮНЕСКО (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86DCD3DE90BE4E46D867120E3FC205B3F3933929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 898136   (676881) от 17.05.2015
 
 Экшены - Particle Photoshop Action 11323703 [ATN, PAT]
@@ -6,7 +504,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676881.jpg" />
 </div>
 
 
@@ -33,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676260.jpg" />
 </div>
 
 
@@ -59,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676114.jpg" />
 </div>
 
 
@@ -85,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676103.jpg" />
 </div>
 
 
@@ -112,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_675991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_675991.jpg" />
 </div>
 
 
@@ -138,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675899.jpg" />
 </div>
 
 
@@ -164,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675111.jpg" />
 </div>
 
 
@@ -176,504 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2969B8D31F8F7AE5C1539B3A3FEEBA95AB97A843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223202   (675106) от 04.05.2018
-
-Текстуры - GraphicBurger - 6 Fine Wood Textures Vol.2 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры под дерево.Формат: JPGРазрешение файлов: 4441 x 3189 - 5075 x 3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7D8A7CF6965B6FB39ECF68673D729AEFEE107B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223201   (675103) от 04.05.2018
-
-Текстуры - GraphicBurger - 6 Fine Wood Textures Vol.1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры под дерево.Формат: JPGРазрешение файлов: 2000 x 1333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A456A2955845E7C7B273C8D53EF4BCC90A4ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223204   (675101) от 04.05.2018
-
-Текстуры - GraphicBurger - 6 Fine Wood Textures Vol.3 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры под дерево.Формат: JPGРазрешение файлов: 4500 x 3045 - 4508 x 3243
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571E9A7F605B06EF91FA1031FA98FE080CBFA984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536609   (674164) от 12.03.2022
-
-Кисти + Action - Envato Elements - Envato Brush Collection Jan 2021 [ABR, BRUSH, BRUSHSET, ATN, AI, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674164.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Envato Brush Collection Jan 2021» - стильный, элегантный просто огромный пакет кистей на все случаи жизни для Вашего творчества. Создайте уникальный дизайн и получайте удовольствие, рисуя.
-Вы можете использовать эти кисти для воплощения своих самых смелых идей в дизайне. Кисти идеально подходят для создания плакатов, брендинга и упаковки, визитных карточек, дизайна (   Читать дальше...   )Формат: ABR, BRUSH, BRUSHSET, ATN, AI, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2973B40B09BB5FECF98D8F79B961D7EE4BDCA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223416   (673420) от 05.05.2018
-
-Текстуры - Creative Market - 50% discount - 180 colorful Marbles! - 778176 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные фоны.
-Автор: Art of Sun.Формат: JPGРазрешение файлов: 3750x2734 - 4000x2916
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1710930624BED09D23FA504569A3FF1D82507154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223458   (673406) от 05.05.2018
-
-Текстуры - Creative Market - 15 Authentic Marbled Paper Textures - 1054025 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры.
-Автор: Black Label Supply Co.Формат: JPGРазрешение файлов: 5500 x 3800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A069557F4666D93023D5E409D421BA5CC715B92B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223373   (672947) от 05.05.2018
-
-3D материалы - The Pixel Lab - Redshift C4D Material Pack 1 [LIB4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая коллекция материалов для рендеринга Redshift, предназначенная для использования в составе пакета Cinema 4D. Это первая коллекция материалов Redshift, которая находится на рынке. В состав входят 135 готовых сложных шейдеров, которые предназначены для облегчения вашей работы и экономии времени.
-    Почти все материалы являются бесшовными. Продукт поставляется в (   Читать дальше...   )Формат: LIB4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541EBC978402743756CE0653BBDC8E8EEE345C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136615   (672429) от 23.05.2017
-
-Рамки - До свидания школа 2017 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многослойные PSD Шаблоны-рамки. До свидания школа 2017 для вашего творчества.Формат: PSDРазрешение файлов: 2480х3508-3508х2480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B60393255E1434D03EBCC064438BEBF0382C7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291178   (672214) от 23.03.2019
-
-3D модели - 3DExport - Audi A4 Allroad 2013 - 54484 [MAX, FBX, OBJ, 3DS]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672214.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки AudiФормат: MAX, FBX, OBJ, 3DS, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED2F00499E9074445F01A5898187C9EE4780CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509948   (672200) от 13.06.2012
-
-Растровый клипарт - Животные - лошади, кони, скакуны [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотосток: животные - лошади, кони, скакуныРазрешение файлов: 595 x 375 ~ 1820 x 1240Формат: jpg
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3025E46AC887C0B4A7B1217F9CF40468CF048932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030815   (672170) от 01.07.2016
-
-Экшены - GraphicRiver - Abstract Art [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abstract Art - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB12341908D950768373BDD5360BB61AC4DABA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030808   (672161) от 01.07.2016
-
-Экшены - GraphicRiver - Collage Mix [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Collage Mix - превосходный экшен для Вашего творчества. Идеально подойдёт для оформления журналов, фотоальбомов, листовок, плакатов и т. д. Вы можете менять и манипулировать слоями, изменять цвета, плотность,  прозрачность и режим наложения. Огромные возможности и простота в использовании.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0813C35EBF21BFCA5652CEBB3AC233CDE5A7BD18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291226   (672148) от 23.03.2019
-
-3D модели - Cubebrush - Cadillac ATSV 2016 [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672148.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки CadillacФормат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE5DAA2B4DD5887A0872FD8D6CA2A9B9231C071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291219   (672120) от 23.03.2019
-
-3D модели - Hum3D - Jeep Wrangler Unlimited Sahara 2018 [Mental Ray|V-Ray|*.max, 3DS, 3DM, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672120.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки JeepФормат: Mental Ray|V-Ray|*.max, 3DS, 3DM, C4D, FBX, LWO, OBJ, MB, MXS, STL, BIP, BLEND, DAE, DXF,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39674BE01722856652A7FEE9D76BB0DB34A2AC8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509953   (672075) от 13.06.2012
-
-Фоны - Коллекция креативных фонов в классическом стиле для дизайна [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция креативных фонов в классическом стиле для дизайнаРазрешение файлов: 1920 x 1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A5B9D7C32A667B8AA69C46AB1DB9A381A50EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030825   (672067) от 01.07.2016
-
-Экшены - GraphicRiver - 14 Curl Effect [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672067.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 Curl Effect - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330A578A6FF780A5FA89E99B5DB4497B741A4596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030819   (672064) от 01.07.2016
-
-Экшены - GraphicRiver - Caricature Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caricature - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63B385609AFAB466D32BC355F5DEB3A09B2613B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030794   (672060) от 01.07.2016
-
-Экшены - GraphicRiver - Rainy Day Photoshop Action [ATN, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rainy Day - экшен для Вашего творчества.Формат: ATN, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470C1F2CDD35F5F9B89878B3B7742DC55F5138EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291246   (672028) от 23.03.2019
-
-Шаблоны - Envato Elements - A4 Magazine Mock-up 4 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко редактируемый макет, содержит все необходимое для создания реалистичного вида вашего проекта. Гарантирует хороший внешний вид для ярких и темных дизайнов и идеальное прилегание к фигуре. Простая навигация, хорошо описанные слои, удобный файл справки.Формат: PSDРазрешение файлов: 4000×2670
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD8774F2A64CF79DBD8ADE2047F1F71C5A5C77A
 ```
 
 https://mybot314.ru/tekegram_catalog/

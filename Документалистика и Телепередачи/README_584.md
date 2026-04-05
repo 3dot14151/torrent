@@ -1,3 +1,161 @@
+###  Публикация: 1339458   (266110) от 19.11.2019
+
+История Венеции / Venice. The Whole Story (2015) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зеркальная венецианская лагуна с её игрой света привлекала путешественников в течении многих веков. Каменные дворцы каким-то чудом вздымаются будто из каналов, перемещаться по которым можно только в лодках. Поездка в Венецию - это исполнение мечты. Но завораживающий город на воде сегодня уязвим как никогда прежде.    Он рискует исчезнуть в волнах политических, финансовых (   Читать дальше...   )Производство: Италия, Великобритания, Германия, Millstream Films and Media, Autentic GmbHЖанр: Документальный, история, культура, архитектураРежиссер: Андреа Фогт, Пол РасселПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: серии x ~00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3146D0F3C9583181AC1273E7B621D99811AFF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339415   (266107) от 19.11.2019
+
+Королевство обезьян / Monkey Kingdom (2015) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о природе, который показывает, как новорождённая обезьянка и её мать пытаются выжить в раздираемой конкуренцией социальной иерархии Храма - действующей группировки обезьян, живущих в древних руинах в дебрях легендарных джунглей Южной Азии.Производство: США, Disney NatureЖанр: Документальный, природа, флора, фаунаРежиссер: Марк Линфилд, Аластер ФовергиллПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5535CBE71999C465AFA71126D6559C3EB3FFB185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339202   (266083) от 19.11.2019
+
+Дело Нерона. Тайна римского заговора / Die Akte Nero / The Nero Files: Uncovering an Ancient Conspiracy (2017) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Римского императора Нерона считают одним из величайших преступников в истории, безумным деспотом, который несёт ответственность за Великий пожар Рима. Имя Нерона - синоним порока. Он убил свою мать и жену, отравил сводного брата и мучил первых христиан. Он вёл развратную жизнь, утопая в роскоши. Таков приговор истории. Однако, новые открытия и памятники показывают (   Читать дальше...   )Производство: Австрия / Interspot Film ProduktionЖанр: Документально-постановочный, ИсторияРежиссер: Klaus SteindlАктеры: Leon Baumgartner, Jutta Fastian, Angelo Margiol, Valentin Postlmayr, Laura Antonella RauchПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDFD3FC076282F5D550BD3FEF103EBAFE8A4A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339321   (266078) от 19.11.2019
+
+Канарские острова / Die Kanarischen Inseln / The Canary Islands (2016) BDRip [H.264/1080p] (серии 2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Северо-Западная Африка, тысячи километров голой, выжженной пустыни. У этого побережья находится небольшой, удаленный архипелаг, окруженный Атлантическим океаном. Семь вулканических островов, и каждый из них – отдельный мир. Здесь теплые экваториальные течения смешиваются с холодными водами северной Атлантики. Планктон поднимается с глубины и собирается у поверхности (   Читать дальше...   )Производство: Австрия, Дания, Швеция, Danmarks Radio (DR), NDR Naturfilm, ORF EnterpriseЖанр: Документальный, природа, флора, фаунаРежиссер: Майкл ШламбергерПеревод: Дублированный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 2 х ~00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8474B35BE1D9B7AEEECB83EA327A6720682314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190818   (266031) от 11.12.2017
+
+Русский ответ. Наши атлеты под нейтральным флагом: предатели или жертвы? (06.12.2017) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежедневная аналитическая программа журналиста-международника Андрея Афанасьева. Область интересов: геополитика, этносоциология, теория многополярного мира, политика США и Западной Европы.
+
+Решение МОК отказать российской сборной в праве на участие в олимпийских играх 2018 года в Южной Корее вызвало шквал негодования в прессе и социальных сетях. Главный спор внутри (   Читать дальше...   )Телекомпания: Россия, ЦарьградЖанр: ПолитикаПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59D5300B1004F37D81340633853C3A7A9497EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191023   (265979) от 11.12.2017
+
+Где логика? (2017.12.11) SATRip (сезон 5, выпуск 18)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТ (РФ)Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:47:55Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE208BE8AFEC840D344B2AD58137CCAAEC739D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295419   (265888) от 19.11.2019
 
 Защищая небо Родины. История отечественной ПВО (2011) WEB-DL [H.264/720p-LQ] (1-4 серия из 4)
@@ -6,7 +164,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265888.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265850.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265771.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265767.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265757.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ Animal Planet: Царство гепардов / Cheetah Kingdom (2010) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265633.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265499.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265226.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ INTO_нация Большой Одессы (2018) WEB-DLRip
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265196.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265166.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265164.jpg" />
 </div>
 
 
@@ -292,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265163.jpg" />
 </div>
 
 
@@ -318,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265156.jpg" />
 </div>
 
 
@@ -344,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265152.jpg" />
 </div>
 
 
@@ -370,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265148.jpg" />
 </div>
 
 
@@ -396,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265088.jpg" />
 </div>
 
 
@@ -423,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265051.jpg" />
 </div>
 
 
@@ -449,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265019.jpg" />
 </div>
 
 
@@ -475,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264944.jpg" />
 </div>
 
 
@@ -501,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264890.jpg" />
 </div>
 
 
@@ -512,162 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5696941E4116525C1D9E820B62B434B534C9E315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267921   (264803) от 08.12.2018
-
-Битва экстрасенсов (2018.12.08) SATRip (сезон 19, выпуск 12)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый долгожданный сезон. Люди, которые называют себя ясновидящими, вновь будут доказывать зрителям ТНТ наличие у себя необычных способностей. Кто из них станет сильнейшим, покажет время.Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: 01:09:28Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAF18CA4ACA0D45001A895C64E9A6BE1CB1F7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339891   (264637) от 21.11.2019
-
-Кочевник (1984) VHSRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о чабане колхоза им. В.И. Ленина Таласского района Киргизской ССР  А. НазаралиевеТелекомпания: СССР, КиргизтелефильмЖанр: Документальный, ТелепередачаСубтитры: отсутствуютПродолжительность: 00:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D56E59585332828EF981CD0E0744AEDB8B8102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339872   (264507) от 21.11.2019
-
-Альпухары. Наследие мавров в Испании / Alpuxarras (2015) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земли Иберийского полуострова, просторные, плодородные, желанные земли. Многие стремились завладеть ими, не один воин погиб в битвах за них. С древних времен народы приходили и сражались за эту территорию. Древние иберы, финикийцы и греки, вестготы и римляне, мавры и французы – кто только не желал обладать этой землей, кто только не мечтал стать ее правителем навсегда! (   Читать дальше...   )Производство: Испания / Cooperativa de Cine y Documental S. Coop. GalegaЖанр: Документальный, ИсторияРежиссер: Rafael TobaПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0EEC1D04B68A012086102446D215A40C17883A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191406   (264468) от 13.12.2017
-
-Вечерний Ургант (2017.12.12) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый канал (РФ)Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:14Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA1588D016F3F24868032190D02167909C7D063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191308   (264425) от 13.12.2017
-
-Вечер с Владимиром Соловьевым (2017.12.12) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264425.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Украине прошла череда громких судебных заседаний. Саакашвили, которых теперь выступает в новом жанре "неуловимого Джо", потому что его с таким трудом сначала задерживают, а потом суд берет и освобождает, что не ясно почему с таким трудом ловили. Почему понять не возможно, но дело о подготовки госпереворота, похоже, разваливается. И уж точно не клеится (   Читать дальше...   )Телекомпания: Россия (РФ)Жанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 02:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A2C573C7033AD1C0989EDB6B2BAD140954B49E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969585   (264411) от 27.12.2015
-
-С миру по нитке. Уругвай (2015) HDTVRip [720p-LQ] [Серии: 1-2 из 2]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редко встретишь человека, который бы не хотел посмотреть мир. Но чаще встречают те, у кого есть огромное желание попутешествовать, но не хватает финансов на дорогостоящие туры, а обычные отели не по карману. Проект «С миру по нитке» поможет нам. Авторы и ведущие программы для путешественников расскажут и покажут, как отдохнуть в разных уголках планеты без больших (   Читать дальше...   )Телекомпания: МИР ТВЖанр: ТелепередачаПродолжительность: каждая серия ~ 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62FBD40623B712FD141A7FA92610D7285E9166EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

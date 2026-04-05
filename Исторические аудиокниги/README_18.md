@@ -1,57 +1,3 @@
-###  Публикация: 1029134   (681956) от 26.06.2016
-
-АиФ | Детская книга войны. Дневники 1941-1945 (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - документ истории. Впервые за 70 лет в одном томе собраны все дневники детей Великой Отечественной войны, которые удалось обнаружить журналистам «АиФ».
-Страшные и честные свидетельства того, через что пришлось пройти и что довелось испытать миллионам маленьких жителей великой страны. Ради памяти о них, ради сохранения этих рукописей и издана эта книга. (   Читать дальше...   )Жанр: История Великой Отечественной ВойныПродолжительность: 11:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C8658E46CDF879925693455C89DF91CA6BCEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135228   (681088) от 19.05.2017
-
-Всеволод Соловьёв | Юный император (2017) [MP3, Степан Старчиков]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман "Всеволода Соловьева" повествует о событиях российской истории, произошедших за два года царствования Петра II.
-В этом романе представляется малоизвестная страница русской истории - царствование внука Петра I, сына казненного царевича Алексея императора-отрока Петра II. Кратковременное и трагическое правление его изобиловало дворцовыми интригами наставников (   Читать дальше...   )Жанр: Исторический романИздательство: Нигде не купишьПродолжительность: 09:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF5E33BDB4DA3472A8415E75AFB83DEBBAFB3C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135337   (680814) от 19.05.2017
 
 Василий Гроссман | Жизнь и судьба (2012) [MP3]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680814.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680245.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679137.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678842.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678334.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678104.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677269.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676215.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676032.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675242.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674719.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667875.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667873.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667058.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666648.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665949.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665579.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665551.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661197.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661196.jpg" />
 </div>
 
 
@@ -582,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660874.jpg" />
 </div>
 
 
@@ -610,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660018.jpg" />
 </div>
 
 
@@ -636,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658117.jpg" />
 </div>
 
 
@@ -662,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655768.jpg" />
 </div>
 
 
@@ -674,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56A785AF94B08C5838A1DF5E63D7BDCB6A37B28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140574   (654690) от 07.06.2017
+
+Виктор Вальд | Проклятие палача (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654690.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Проклятие палача» является продолжением известного романа Виктора Вальда «Палач». Выжив, благодаря своим невероятным знаниям, великому умению лекаря и ответственности перед семьей, палач Гудо вновь оказывается в плену «проклятия палача», которое тяготеет над каждым, кто когда-либо согласился стать таковым. Дьявольское наследие мэтра Гальчини ни на миг не оставляет (   Читать дальше...   )Жанр: Исторический романПродолжительность: 20:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C7A81DA977E83B96B6A2099933D28B72F45A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140830   (654480) от 07.06.2017
+
+Борис Акунин | История Российского Государства (Том 4, художественное дополнение). Седмица Трехглазого (2017) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический детективный роман в лучших традициях классических книг о Фандорине! Невероятные приключения «старомосковского Шерлока Холмса»! «Он вдруг увидел перед собой всю свою длинную-предлинную жизнь как одну краткую седмицу: с трудоначальным понедельником, юновесенним вторником, мужественной середой, сильным четвертком, зрелой пятницей, грозовой субботой и тихим, (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 10:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C024631BC6170C45414FA6235034808DAF2225F
 ```
 
 https://mybot314.ru/tekegram_catalog/

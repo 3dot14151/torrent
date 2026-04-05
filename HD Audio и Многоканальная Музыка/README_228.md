@@ -1,32 +1,3 @@
-###  Публикация: 1754491   (40684) от 11.10.2024
-
-The Offspring - Supercharged (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking Out For #1 (3:17)
-02. Light It Up (2:53)
-03. The Fall Guy (2:35)
-04. Make It All Right (3:34)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F653A821D829308402A5726D6B7AAF6403F82E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754498   (40682) от 11.10.2024
 
 Duran Duran - Danse Macabre (2023) Deluxe Edition, 2024, BMG [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Pop Rock>
@@ -35,7 +6,7 @@ Duran Duran - Danse Macabre (2023) Deluxe Edition, 2024, BMG [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40682.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Ad Infinitum - Studio Albums (5 releases) (2020-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40673.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40392.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ October London - October Nights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40389.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Marina Viotti / Fred Chappuis / Vincent Flückiger - Melankhôlia: In Darkness T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40382.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40372.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Andrea Bignasca - Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40370.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Gonzalo Araya - Floripa´s Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40369.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Courtnay & The Unholy Reverie - Mercy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40368.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Ilario Ferrari Trio - Above the Clouds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40367.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40366.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ The Headhunters - The Stunt Man (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40365.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Samy Thiebault - In Waves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40364.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Blues Factory - III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40363.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Myles Kennedy - The Art Of Letting Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40362.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Robespierre - Rainy Wednesday (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40361.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Jeanette Berger - Do Your Thing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40358.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Cruachan - Studio Albums (9 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40357.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Jasmin Bayer - Poetic License (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40356.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Paul Heaton - The Mighty Several (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40350.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40286.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40284.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Dame Area - Toda la Verdad Sobre Dame Area (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40266.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Nocturna (Italy) - Studio Albums (2 releases) (2022-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40265.jpg" />
 </div>
 
 
@@ -726,7 +697,7 @@ La Femme - Rock Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40261.jpg" />
 </div>
 
 
@@ -740,6 +711,35 @@ La Femme - Rock Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB4AB0D2AA75FE3C112977B8036EA12898FF1A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755468   (40259) от 15.10.2024
+
+Cnvx (CoNVeX) - Unfolding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Rock, Electronic Rock, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panic Attacks (Album Edit) [00:03:51]
+02. Secret Signs [00:02:49]
+03. Eiskalt (Album Edit) [00:03:11]
+04. Shady Illusions [00:04:40](   Читать дальше...   )Жанр: Dark Rock, Electronic Rock, Female VocalПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6655C435ED4FC48E7051F294C53B5946D3FCD428
 ```
 
 https://mybot314.ru/tekegram_catalog/

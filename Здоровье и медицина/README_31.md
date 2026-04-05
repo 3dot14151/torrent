@@ -1,30 +1,3 @@
-###  Публикация: 1180094   (58278) от 28.04.2024
-
-Ю.В. Гольдблат | Точечный и линейный массаж в неврологии (1989) [PDF, DJVU, DOCX]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены методики точечного и линейного массажа при лечении больных с нервными и психоневрологическими заболеваниями. Описаны приемы поиска точек акупунктуры тела и ушной раковины. Даны рекомендации по сочетанию массажа с другими видами лечения.
-Для массажистов, инструкторов ЛФК и медсестер кабинетов рефлексотерапии.Жанр: МедицинаИздательство: МедицинаФормат: PDF, DJVU, DOCXКачество: Удовлетворительный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEAD05207888DC61D40F01D200F700C786FB8D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721142   (57421) от 06.05.2024
 
 К. Дедловская | Практикум для профилактики и коррекции когнитивных нарушений. Легкие и умеренные когнитивные расстройства (2024) [PDF (A4), PDF (А6), EPUB, FB2, RTF]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57421.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57005.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56917.jpg" />
 </div>
 
 
@@ -116,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56890.jpg" />
 </div>
 
 
@@ -142,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52746.jpg" />
 </div>
 
 
@@ -170,7 +143,7 @@ J.W. Rohen, C. Yokochi | Anatomy: A Photographic Atlas. Еighth edition (2016) [
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50689.jpg" />
 </div>
 
 
@@ -196,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50293.jpg" />
 </div>
 
 
@@ -224,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50245.jpg" />
 </div>
 
 
@@ -250,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50061.jpg" />
 </div>
 
 
@@ -276,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49589.jpg" />
 </div>
 
 
@@ -302,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49440.jpg" />
 </div>
 
 
@@ -329,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49345.jpg" />
 </div>
 
 
@@ -356,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49117.jpg" />
 </div>
 
 
@@ -382,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49078.jpg" />
 </div>
 
 
@@ -408,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49021.jpg" />
 </div>
 
 
@@ -437,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48918.jpg" />
 </div>
 
 
@@ -463,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48751.jpg" />
 </div>
 
 
@@ -489,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48730.jpg" />
 </div>
 
 
@@ -515,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48658.jpg" />
 </div>
 
 
@@ -541,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48642.jpg" />
 </div>
 
 
@@ -569,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48601.jpg" />
 </div>
 
 
@@ -598,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48542.jpg" />
 </div>
 
 
@@ -627,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48188.jpg" />
 </div>
 
 
@@ -655,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48111.jpg" />
 </div>
 
 
@@ -681,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47133.jpg" />
 </div>
 
 
@@ -692,6 +665,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8632CB1C58B2C7F9F66111E58D89663F85125F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744477   (46007) от 22.08.2024
+
+Александр Сушанский | Большая книга о еде, несущей здоровье. Теория системного питания (2024) [EPUB, PDF, RTF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 50 лет автор книги — Александр Сушанский, доктор медицинских наук, специалист по питанию — восстанавливает нормальные отношения своих пациентов с едой и пищеварением. В процессе работы автор создал уникальную систему — теорию системного питания. Она ответит на главнейший вопрос о еде, который мы задаем себе каждый день: как и что есть, чтобы быть здоровым. (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: АСТФормат: EPUB, PDF, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795DA06290ADAC0763C32C8BE5CD72F6C1789CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

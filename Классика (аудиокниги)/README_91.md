@@ -1,3 +1,31 @@
+###  Публикация: 368492   (39877) от 19.10.2024
+
+Гайто Газданов | Ночные дороги (2005) [MP3, Владимир Сушков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Гайто (Георгий) Иванович Газданов (1903–1971) – один из крупнейших мастеров прозы, вышедших из «первой волны» русской эмиграции.
+Роман «Ночные дороги», жестоко изображающий жизнь «парижского дна», увиденную глазами шофёра ночного такси, основан на автобиографическом материале.Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 10:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65320F438C39426EF263EE5C92D4FF7FBF16053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 364906   (39618) от 22.10.2024
 
 Кнут Гамсун | Виктория (2004) [MP3, Авангард Леонтьев]
@@ -6,7 +34,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39618.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39616.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39612.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39582.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39580.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39548.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39427.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39426.jpg" />
 </div>
 
 
@@ -229,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39272.jpg" />
 </div>
 
 
@@ -255,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39033.jpg" />
 </div>
 
 
@@ -283,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39024.jpg" />
 </div>
 
 
@@ -311,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39021.jpg" />
 </div>
 
 
@@ -338,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39020.jpg" />
 </div>
 
 
@@ -364,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38837.jpg" />
 </div>
 
 
@@ -392,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38628.jpg" />
 </div>
 
 
@@ -419,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38621.jpg" />
 </div>
 
 
@@ -446,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38008.jpg" />
 </div>
 
 
@@ -473,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37439.jpg" />
 </div>
 
 
@@ -500,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37438.jpg" />
 </div>
 
 
@@ -527,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37429.jpg" />
 </div>
 
 
@@ -554,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37372.jpg" />
 </div>
 
 
@@ -580,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36916.jpg" />
 </div>
 
 
@@ -607,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35897.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35840.jpg" />
 </div>
 
 
@@ -665,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35837.jpg" />
 </div>
 
 
@@ -678,33 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B797BC73E309E4F8913A853D86F72B1997F84AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311172   (35374) от 03.12.2024
-
-Сэмюэл Беккет | Мерфи (2004) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэмюэл Беккет (1906–1989) – ирландский писатель, один из самых известных представителей авангардной литературы двадцатого века, лауреат Нобелевской премии 1969 года. По насыщенности слова его сравнивают с Джойсом, а по умению показать тщету и безысходность человеческого существования – с Кафкой.
-Роман «Мерфи», написанный Беккетом в 1938 году, еще до окончательного (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 07:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1351AF42AEE436F8D8791FCB85A3BD61E62912C
 ```
 
 https://mybot314.ru/tekegram_catalog/

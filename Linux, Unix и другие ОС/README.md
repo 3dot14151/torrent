@@ -7,7 +7,7 @@ SystemRescue v13.00 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062962.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Parted Magic 2026.03.20 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061977.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DeaDBeeF for Linux 1.10.2 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061599.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DeaDBeeF for Linux 1.10.1 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061270.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Uncom 2.5 LTS [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060789.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Winux 11.26.03.1 [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060779.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ GreenLinux 22.3.0 Kursk [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060753.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ MiniOS (все редакции, вкл. Flux) 5.1.1 (Flux 5.1.2) [amd64, i386] 
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058122.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Kali Linux 2025.4 [amd64, arm64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058107.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ RAR for Linux 7.20 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056130.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ALT Linux 10.2.1 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055098.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Astra Linux Special Edition 1.6.16 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053828.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ openmediavault 8.0.4 [amd64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053458.jpg" />
 </div>
 
 
@@ -347,33 +347,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848812   (1053293) от 21.01.2026
-
-TrueNAS Community 25.10.1 - Goldeye [amd64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив TrueNAS Community от компании iXsystems, в котором используется ядро Linux и пакетная база Debian (ранее выпускаемые продукты данной компании, в том числе TrueOS, PC-BSD, TrueNAS и FreeNAS, основывались на FreeBSD).
-Как и TrueNAS CORE (FreeNAS), TrueNAS Community может быть загружен и использован бесплатно. Исходные тексты специфичных для TrueNAS SCALE (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E5A23F9FA44D4981D0B9B79D6D265A7B16AF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846053   (1051008) от 05.01.2026
 
 EN-OS 1.0 [x86_64] 1xDVD
@@ -382,7 +355,7 @@ EN-OS 1.0 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051008.jpg" />
 </div>
 
 
@@ -410,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049589.jpg" />
 </div>
 
 
@@ -436,7 +409,7 @@ Cisco Modelling Lab 2.9.1 [x86_64] 1xDVD+.OVA
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049113.jpg" />
 </div>
 
 
@@ -462,7 +435,7 @@ Mikrotik Router OS 7.20.6 [x86] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049082.jpg" />
 </div>
 
 
@@ -488,7 +461,7 @@ Debian GNU/Linux 10 (Buster) LXQt by Lazarus [x86, x86_64] (2xDVD) [Авторс
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040987.jpg" />
 </div>
 
 
@@ -514,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036928.jpg" />
 </div>
 
 
@@ -542,7 +515,7 @@ Ubuntu*Pack GNOME 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036272.jpg" />
 </div>
 
 
@@ -569,7 +542,7 @@ Ubuntu*Pack GNOME Classic 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036268.jpg" />
 </div>
 
 
@@ -596,7 +569,7 @@ Ubuntu*Pack GNOME Flashback 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036264.jpg" />
 </div>
 
 
@@ -623,7 +596,7 @@ Ubuntu*Pack 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036257.jpg" />
 </div>
 
 
@@ -650,7 +623,7 @@ Ubuntu*Pack Cinnamon 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036253.jpg" />
 </div>
 
 
@@ -677,7 +650,7 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036251.jpg" />
 </div>
 
 
@@ -689,6 +662,33 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E8E7514D7C1C5CC2A8B9082F3DA6BABCEE50D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442763   (1036242) от 26.01.2021
+
+Ubuntu*Pack Unity 18.04 (декабрь 2020) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99B30FB270A6815E7B4470854B8355DEEEFB6FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

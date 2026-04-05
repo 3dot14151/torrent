@@ -1,133 +1,3 @@
-###  Публикация: 1381437   (826151) от 07.05.2020
-
-Владимир Житомирский | Враг Геббельса № 3 (2020) [EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художник-график Александр Житомирский вошел в историю изобразительного искусства в первую очередь как автор политических фотомонтажей. В годы войны с фашизмом его работы печатались на листовках, адресованных солдатам врага и служивших для них своеобразным «пропуском в плен». Вражеский генералитет издал приказ, запрещавший «коллекционировать русские листовки», а после (   Читать дальше...   )Жанр: Биографии и мемуары, Книги о войнеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199C6ECAFFD6E700DC4019D56B9E38EBDD61AA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856736   (825957) от 18.03.2017
-
-Вячеслав Ликсо и др. | Полная энциклопедия вооружений и боевой техники 1914-1918 (2014) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание представляет собой полный систематизированный обзор вооружений войск всех стран, участвовавших в Первой мировой войне, - стрелкового оружия и артиллерийских орудий, бронетанковой, автомобильной и авиационной техники. По каждому образцу того или иного вида вооружения приведены история его создания и боевое применение, тактико -технические характеристики (   Читать дальше...   )Жанр: Военная техникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55397F4B2C8A1EA4A6214B7E8CEBF41355CB7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273041   (825734) от 07.05.2020
-
-Б.И. Гаврилов | "Долина смерти": Трагедия и подвиг 2-й ударной армии [2006] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена одной из малоизвестных трагедий Великой Отечественной войны - истории Любанской наступательно-оборонительной операции Волховского фронта в 1942 г. Она отмечена трагедией и подвигом 2-й ударной армии, связана с пленением и последующим предательством генерала А.А.Власова. На карте Новгородской области нет сегодня деревень Любино Поле, Концы, Крутик, (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E58378F4A87202A2E35D613DDA28DE48D9AA79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006850   (825408) от 13.04.2016
-
-Петр Асташенков | Советские Ракетные войска (1967) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор рассказывает о самом могучем виде Советских Вооруженных Сил — Ракетных войсках стратегического назначения. В книге показаны новые черты и возможности, обретенные всеми видами Вооруженных Сил после оснащения их ракетно-ядерным оружием. Подробно рассказывается об оперативно-тактическом ракетном оружии, зенитных ракетах, самолетах и кораблях-ракетоносцах. Приведены (   Читать дальше...   )Жанр: Военная история, Военная техника и вооружениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5ACE0A1040BDC98ADD3FC96F770B6E390DA93E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774806   (824388) от 08.05.2020
-
-Ицхак Арад | Они сражались за Родину. Евреи Советского Союза в Великой Отечественной войне (2011) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает об участии советских евреев в войне против фашистской Германии и их вкладе в Победу. Героями этой книги стали евреи - солдаты, командиры, борцы гетто, партизаны, труженики тыла. Автор в годы войны сражался в рядах советских партизан в белорусских и литовских лесах. Был награжден орденами и медалями. В 1948 г. участвовал в Войне за независимость (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EFC359A650807F1500C2B4444416F0DC9EAE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381850   (824384) от 08.05.2020
 
 Жан-Кристоф Бризар, Лана Паршина | Смерть Гитлера (2020) [FB2]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824384.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823480.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823473.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823391.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823386.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823235.jpg" />
 </div>
 
 
@@ -295,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822369.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820811.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820010.jpg" />
 </div>
 
 
@@ -373,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818945.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817252.jpg" />
 </div>
 
 
@@ -428,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817235.jpg" />
 </div>
 
 
@@ -454,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816944.jpg" />
 </div>
 
 
@@ -483,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816896.jpg" />
 </div>
 
 
@@ -509,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815532.jpg" />
 </div>
 
 
@@ -535,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815436.jpg" />
 </div>
 
 
@@ -561,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813415.jpg" />
 </div>
 
 
@@ -587,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813251.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810028.jpg" />
 </div>
 
 
@@ -639,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809010.jpg" />
 </div>
 
 
@@ -665,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807993.jpg" />
 </div>
 
 
@@ -676,6 +546,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7189ABE3EB30BBA90B3EA68DF586B5BC640C82C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383796   (807985) от 17.05.2020
+
+Олег Хлобустов | История службы государственной безопасности. От Хрущёва до Путина (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник КГБ Олег Хлобустов, основываясь на множестве архивных материалов, в увлекательной и доступной форме знакомит читателей с историей отечественных органов госбезопасности с 1954 года до наших дней.Жанр: Военное дело, Спецслужбы, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738125EC5B68D86001DFECBEB295613386E69689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198436   (807743) от 11.01.2018
+
+Е.Н. Понасенков | Первая научная история войны 1812 года (2017) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807743.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Перед вами — уникальная книга: подлинная история войны 1812 года! Крупнейший в России специалист по эпохе Наполеона, известный учёный-историк, Евгений Понасенков, изучил десятки тысяч документов, хранящихся в архивах России и Европы, а также дневники и мемуары участников событий — и сумел создать принципиально новое описание той грандиозной кампании. Безупречная (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BF94CFACECF49D8428CCF3675D396C8B8A9778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505332   (806305) от 26.10.2021
+
+Александр Дюков | Второстепенный враг: ОУН, УПА и решение «еврейского вопроса» [2 книги] (2008-2009) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга известного российского историка-антиревизиониста Александра Дюкова посвящена участию ОУН и УПА в уничтожении евреев.
+В книге на основе документов и воспоминаний ОУН, а также вышедших в последние годы исторических исследований, рассматриваются предвоенные планы ОУН по отношению к евреям, участие боевиков ОУН в уничтожении евреев летом 1941 года, изменение (   Читать дальше...   )Жанр: Военно-историческая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FBEEA3B8EB9FB58B61906B6FC723BA5F4018EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198792   (804328) от 13.01.2018
+
+Т.Н. Микушина и др. | Покаяние спасёт Россию. О царской семье (2015) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена Императору Николаю II Александровичу Романову и его семье и призвана изменить сложившееся в обществе отношение к событиям вековой давности.
+
+К сожалению, только теперь, столетие спустя, истинный облик Императора Николая II, равно как и Императрицы Александры Федоровны и их царских детей стал доступен взгляду жителей России и стран, когда-то входивших (   Читать дальше...   )Жанр: История, Биографии и мемуарыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014DA42BCAECF7B0EFF8594719793866753382BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010466   (803963) от 24.04.2016
+
+Кирилл Александров | Русские солдаты Вермахта. Герои или предатели (2005) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803963.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге опубликованы статьи, биографические очерки, документы и материалы из отечественных и зарубежных архивов, посвященные участию граждан СССР и представителей белой эмиграции в боевых действиях на стороне Финляндии и Германии в годы Второй мировой войны. Особое внимание автор — петербургский историк, кандидат исторических наук — уделяет истории казачьих формирований (   Читать дальше...   )Жанр: История войнФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0707F8F06303974429CA3D1931B960B17B8E669E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,24 +1,22 @@
-###  Публикация: 1237008   (552225) от 23.07.2018
+###  Публикация: 1237151   (553150) от 22.07.2018
 
-Ольга Копылова | Тело как игрушка. Книга, которая поможет справиться с симптомами ВСД, неврозом и укротить психосоматику (2018) [PDF]
+Machinarium / Машинариум (2009) [Ru/Multi] (Build 2975-A/dlc) License PLAZA [Definitive Version]
 
->>Научная и техническая литература
->>Здоровье и медицина
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все мы слышали термин психосоматика, но зачастую мы даже не подозреваем, насколько всемогущей она может быть. Что на самом деле кроется за диагнозом вегето-сосудистая дистония? Каким образом можно приручить психосоматику или хотя бы договориться с ней?
-
-Перед вами уникальная книга - исследование психосоматических заболеваний, исходя из реальных научных фактов. Вас (   Читать дальше...   )Жанр: Здоровье, НеврологияФормат: PDF
+Помоги роботу Йозефу спасти его подругу Берту, похищенную бандитами из Братства Черных Шляп. Теперь с полноэкранным режимом, достижениями, новыми языками и полной поддержкой контроллера. Machinarium — обладательница множества наград от критиков, приключенческая игра-головоломка, созданная разработчиками популярных игр Samorost и Botanicula. Маленького робота выбросили (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Adventure, LogicЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57782914AF862E1629EB916DCFFE6EDAC41DB926
+magnet:?xt=urn:btih:C80862ECD1572FD6D39F2B7A3B67532515B4B3A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,26 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237476   (552223) от 23.07.2018
+###  Публикация: 691925   (553149) от 22.08.2013
 
-Мэттью Скарпино | Двигатели для моделистов (2018) [DJVU]
+София Рукова | О таинствах Церкви в изложении для детей [2003] [DOC]
 
->>Научная и техническая литература
->>Техническая литература
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Моделирование немыслимо без электродвигателей! Они намного сложнее остальных компонентов, используемых в моделировании, но эта книга поможет вам разобраться в их устройстве и принципах функционирования. Научившись управлять электродвигателями, вы откроете для себя новые горизонты в конструировании электронных устройств.
-В отличие от остальных изданий, посвященных (   Читать дальше...   )Жанр: Моделизм, электротехникаФормат: DJVU
+Книга для детей и взрослых о таинствах Церкви - о том таинственном, превышающем наше разумение, когда в результате наших человеческих действий и слов, в нашу жизнь приходит что-то такое, что невозможно выразить словами, и мы становимся лучше, чище, сильнее…Жанр: Святоотеческое наследиеФормат: DOC
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DE0C1EFC49BC231054B34E1E4CF238501816024
+magnet:?xt=urn:btih:C920CBBDDE2BFFC784B69A805724EBBE6C43F59A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237291   (552222) от 23.07.2018
+###  Публикация: 691829   (553148) от 22.08.2013
 
-(Linux) RUINER (2017) [Ru/Multi] (1.05h) License GOG
+Антиллия - Последний звездопад (2013) EP [MP3|320 кб/с]<Symphonic Power Metal>
 
->>*Nix Игры
->>Native *Nix Games
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-RUINER — суровый и жестокий экшн, действие которого разворачивается в 2091 году в городе Ренгкок. Напичканный кибернетикой социопат объявляет войну прогнившей системе, пытаясь под руководством таинственного друга-хакера раскрыть страшную тайну и спасти похищенного брата. В вашем распоряжении нечеловеческие рефлексы, кибернетическое снаряжение и весь арсенал павших (   Читать дальше...   )Тип издания: LicenseРазработчик: Reikon GamesЖанр: Экшн, Сражения, ФантастикаЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+01. Последний звездопад
+02. Шаман
+03. La diosa fredda (Metal cover)Жанр: Symphonic Power Metal |Продолжительность: 00:15:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF3785EFE3FDD32353C5DA8F39E1FA886ADD2D22
+magnet:?xt=urn:btih:57F1DFC078A75381DB79986F89390EE04F45D95A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237373   (552221) от 23.07.2018
+###  Публикация: 1237026   (553147) от 22.07.2018
 
-Генезис 2.0 / Genesis 2.0 (2018) DVB [H.264/1080i-LQ]
+The Andersen Accounts: Chapter One / Досье Андерсена: Дело №1 (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На далеких островах северных широт, в условиях вечной мерзлоты охотники за трофеями заняты поисками бесценных сокровищ «черного» рынка — бивней доисторических мамонтов. Одна из таких экспедиций обнаруживает прекрасно сохранившиеся останки древнего зверя. Поразительная находка вызвала интерес в биотехнологическом мире. Фрагменты животного с живыми клетками доставляют (   Читать дальше...   )Телекомпания: Швейцария, Китай, Россия, Южная Корея, США / Christian Frei FilmproductionsЖанр: Документальный, История, ФаунаПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:52:57
+Встречайте первую часть в новой интригующей серии The Andersen Accounts. В городе Бей-Сити растет количество людей использующих магические чернила для получения невероятных сил. А тут еще и Вашу подругу Рейчел похищают прямо у Вас на глазах! Сможете ли Вы спасти её в этом опасном городе, наполненном легендарными противниками?! Есть ли у Вас всё необходимое для этого? (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F95CF9554DE4D9D5594478EDA28D51354CFE3228
+magnet:?xt=urn:btih:A94268485876E8927514FF392B6975ACF9F74909
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +104,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045391   (552212) от 27.08.2016
+###  Публикация: 1237159   (553145) от 22.07.2018
 
-Футбол. Чемпионат Испании 2016-2017. 1-й тур. Реал Сосьедад - Реал (21.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [ES]
+Счастливая жизнь Ксении (2017) WEB-DLRip (серии 1-2 из 2)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ксения, студентка первого курса, скромница и отличница, оказывается на перепутье. Она выбирает между двумя парнями. С одной стороны — скромный и стеснительный фотограф Миша, живущий, как и она, бедно. С другой Дима — богатый красавчик, мечта любой женщины, чьи ухаживания кружат голову. Ксения делает выбор — выходит замуж за Диму. И вскоре ее жизнь превращается в (   Читать дальше...   )Производство: Россия / Медиапрофсоюз, Тесей продакшнЖанр: мелодрамаРежиссер: Алексей БогдановАктеры: Анастасия Дергаус, Станислав Ткаченко, Павел Гончаров, Анна Лапина, Кристина Убелс, Евгений Зарубин, Дмитрий Ткаченко, Никита Чеканов и др.Продолжительность: ~01:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1036A8A506A863244C5381626210E0BCA4F0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237306   (553143) от 22.07.2018
+
+Оксана Путан | Энциклопедия современной русской кухни. Подробные пошаговые рецепты (2018) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оксана Путан – профессиональный повар, автор кулинарных книг и известный кулинарный блогер. Ее рецепты отличаются практичностью, доступностью и пользуются огромной популярностью в русскоязычном интернете. Они расписаны настолько подробно, что приготовить по ним способен даже человек, решившийся первый раз подойти к плите. Независимо от возраста, будь то 12-летняя (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAFA28424C20E44BB7B032F7D2BDEFABD569A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237240   (553141) от 22.07.2018
+
+Бокс. Всемирная Суперсерия 2018. Финал. Александр Усик (Украина) - Мурат Гассиев (Россия) (21.07.2018) HDTV [H.264/1080i-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 августа 2016, воскресенье. 21:15 МСК
-1-й тур
-
-Стадион: Аноэта (Сан-Себастьян, Испания) , 27 720 зрителей (86 % при вместимости 32 076)(   Читать дальше...   )Телекомпания: PartidazoЖанр: СпортЯзык озвучки: ИспанскийПродолжительность: 01:52:19
+21 июля 2018 года
+Главные бои боксёрского вечера.
+Центральным событием шоу стал финал WBSS (Всемирной боксёрской Суперсерии) в 1-м тяжёлом весе.
+Александр Усик (Украина) — Мурат Гассиев (Россия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:37:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8E7F9A3F619205289F315F073F577330B1011E8
+magnet:?xt=urn:btih:95EF020B608452C4EFFB426F5D2712C92065334B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,28 +185,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044856   (552211) от 27.08.2016
+###  Публикация: 1046133   (553135) от 26.08.2016
 
-Футбол. Чемпионат Испании 2016-2017. 1-й тур. Гранада - Вильярреал (20.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+Хоккей. КХЛ 2016-2017. Сибирь (Новосибирск) - Барыс (Астана) (25.08.2016) HDTV [H.264/1080i-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 августа 2016, суббота. 21:15 МСК
-1-й тур
+25 августа 2016, четверг. 15:30 МСК
+Матч № 13
+Стадион: ЛДС «Сибирь» (Новосибирск, Россия) , 7400 зрителей (100 % при вместимости 7400)
+(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Александр Неценко, Александр Бойков)Продолжительность: 02:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDD5F3DDF87CFC6D7387EAA23129E22495A4818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044579   (553134) от 26.08.2016
+
+Лёгкая атлетика. Олимпийские игры 2016. День 8. Утро (19.08.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553134.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 августа 2016 года, пятница.
+Лёгкая атлетика. День 8. Утро:
+14:00 МСК Мужчины. Ходьба 50 км
+20:30 МСК Женщины. Ходьба 20 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортПродолжительность: Мужчины 50 км-02:18:03, Женщины 20 км-01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42FF7AD32DC329419FECAAE03271B2DA02928F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046234   (553133) от 26.08.2016
+
+Футбол. Лига Чемпионов 2016-2017. Раунд плей-офф. 2-й матч. Виктория Пльзень (Чехия) - Лудогорец (Болгария) (23.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553133.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 августа 2016, вторник. 21:45 МСК
+Раунд плей-офф. 2-й матч
 
-Стадион: Лос-Карменес (Гранада, Испания) , 15 101 зритель (66 % при вместимости 23 014)(   Читать дальше...   )Телекомпания: Сетанта Спорт Евразия HDЖанр: СпортЯзык озвучки: Русский (Алексей Иванов)Продолжительность: 01:35:26
+Стадион: Дусан Арена - Места Плзне (Пльзень, Чехия) , 10 312 зрителей (82 % при вместимости 12 500)(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Владислав Батурин)Продолжительность: 01:52:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14A9327AC0DAB1B348A85E04BC23A468C1688789
+magnet:?xt=urn:btih:60E9EF1D6D0475DCF023CB2A2D695C920E9541D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,202 +272,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046400   (552210) от 27.08.2016
+###  Публикация: 1045970   (553132) от 26.08.2016
 
-VA - Epic Trance Weapons Vol. 6 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Epic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Carrier  -  Previous Architecture  3:50
-02. Dreamy  -  What Did I Do (Emotional Mix)  8:34
-03. Derek The Bandit  -  Joburg Sunrise  8:00
-04. Fryonic  -  Augenblick  4:35(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Epic TranceПродолжительность: 02:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB91FBFD74F4CA7E5275CBB267970A1FD243815A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046402   (552209) от 27.08.2016
-
-VA - Seven Sessions Vol 2 (mixed by Frank Lamboy) (2016) [MP3|320 Kbps] <Chill Out, Deep House, Tech House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Lamboy - Seven Sessions, Vol.2 (Continuous Dj Mix) 55:04
-02. Taladianos - Circus Of Life 05:06
-03. Grass Is Greener - Clase Azul 05:54
-04. Susy Seven - No Holding Back 07:24(   Читать дальше...   )Жанр: Chill Out, Deep House, Tech House, Nu Disco, Funky, ClubПродолжительность: 01:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AF2686A5D4CBA5AF46AC7097B29A0DE4A71C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046729   (552208) от 27.08.2016
-
-VA - Ibiza Lounge Classics: 25 All-Time Favorites (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Tort - Chase the Sun - Musica Feliz Ibiza Beat Remix
-02. John Dahlback - Everywhere - D.O.N.S. Vs Tranquillo Chill Mix
-03. Greg Knight - Circle of Clowns - Original Mix
-04. Steen Thottrup - Missing U (A Tribute to the Sun) - Original Mix(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399C98C6F6FF2A98F4AB07E4BEA6A6396649AB17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046277   (552207) от 27.08.2016
-
-VA - Sun Global Uplifting Trance Anthems (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Eray  -  Skyshock  7:53
-02. Kilu  -  Deep Ocean  8:41
-03. Marc Lener  -  Lunar (Adiano Remix)  5:40
-04. The North Works  -  It's Gonna Be Alright  4:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D04A48EE204BC3E8F3681BF5C9DF40588647919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046383   (552206) от 27.08.2016
-
-VA - Farewell Summer Tech House Tunes (2016) [MP3|320 Kbps] <Electronica, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronogramm - Snap 2 07:25
-02. Buer & Furfur - Mujeriego 06:46
-03. Tec77 - Perpetuum 07:26
-04. Rocketpunk - Outgoing Signal 07:45(   Читать дальше...   )Жанр: Electronica, HouseПродолжительность: 02:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6E4FA814FF539CC6F315C245C3EC7F3309301E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046305   (552205) от 27.08.2016
-
-VA - The Summer Is Magik (2016) [MP3|320 Kbps] <Trance, Progressive, Vocal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EC Twins  -  Compass  4:19
-02. Bobina & Kyle Richardson  -  Love is the Answer  3:10
-03. Bassanova  -  Lullaby  2:41
-04. Tiesto  -  Lethal Industry (KEVU Festival Remix)  4:23(   Читать дальше...   )Жанр: Trance, Progressive, VocalПродолжительность: 01:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC8CA0CC925CDC5F8D37FEAF14E2D57AF08EA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046529   (552204) от 27.08.2016
-
-Art Tatum - More Of The Greatest Piano Of Them All (1954, 1955) 2015, Poll Winners Records[FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
+David 'Fathead' Newman & Marchel Ivery - Blue Greens & Beans (1990) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Sweet Lorraine [04:24]
- 02.Crazy Rhythm [02:59]
- 03.Isn't It Romantic? [04:36]
- 04.Indiana [03:06](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 01:17:06
+01.Blue Greens & Beans [07:44]
+ 02.Montana Banana [08:30]
+ 03.I've Grown Accustomed To Her Face [05:02]
+ 04.Night In Tunisia [10:44](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:54:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D944486265C43A4C9E4FA855CBE129FE0926E5F
+magnet:?xt=urn:btih:E4E3BC861F25CE8DFD9C8A5E9649F39A174B8C8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +301,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046723   (552203) от 27.08.2016
+###  Публикация: 1046178   (553131) от 26.08.2016
 
-VA - Chillout Lounge Collection 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Cannonball Adderley Quintet - Music, You All (1972) 2016, Real Gone Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Brakes [11:59]
+ 02.Cannon Raps [02:24]
+ 03.Capricorn [05:26]
+ 04.Walk Tall [05:43](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16076F547D9B4DFC42897A2AB8F0CD9AB58A9070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046156   (553130) от 26.08.2016
+
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 4 (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Taylor Befun - Temptation Crises [03:33]
-02. Angel Armony - Relaxed Poems [04:55]
-03. Debris of Theia - Cycle of Life [04:40]
-04. Taylor Befun - Paula's Theme [04:24](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:10:59
+01. Chris LeBlanc - Beyond the Sunsets
+02. PNFA - Talk to Me
+03. Christos Fourkis - Feel Me - Chillout Version
+04. Vitali and his Lounge Orchestra - Dreaming(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2E4A2C42C880090D00783A4403047C49BC99AE7
+magnet:?xt=urn:btih:3A50A4FD7CA6EEACC167206A303C59AEC73A4F4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,54 +359,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046502   (552202) от 27.08.2016
+###  Публикация: 1046334   (553129) от 26.08.2016
 
-VA - Dream City Lounge, Vol. 3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Pearl - Indipendence Sound - Original Mix [04:20]
-02. Pianistico - Song Mama - Original Mix [05:05]
-03. Montecarlo Hotel - Immunion Day - Original Mix [04:09]
-04. Lido 3 - Pressione - Original Mix [05:26](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952314AAE92352F4F1FD914566A99349F45DEF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046746   (552201) от 27.08.2016
-
-Вести в 20-00. Большие Вести. Россия 1 (27.08.2016) HDTVRip
+Место встречи. Праздник или поминки?! (26.08.2016) SATRip
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире (   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: ТелепередачаПродолжительность: 00:32:00
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.В этом выпуске: На что Украина потратила 25 лет независимости? Кого винит в своих бедах и какое будущее себе готовит?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:58:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACD5D0D407B137319345AFC85A97CE91F6494F82
+magnet:?xt=urn:btih:5FE142B0B81AC2E9337E24217F22418D51A8F015
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +385,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046735   (552200) от 27.08.2016
+###  Публикация: 1045958   (553128) от 26.08.2016
 
-VA - When The Night Falls (25 Amazing Tunes) Vol. 3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Fattburger - Time Will Tell (1989) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Put The Meat In My Bed (4:02)
+02. Oh Girl (4:10)
+03. Amazon (5:44)
+04. For The Father (1:14)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065504C9C3BFD0929595A5749274AF50034230B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046259   (553127) от 26.08.2016
+
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 5 (2015) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. TLX 20 - Morder
-02. Key Of Dreams - You Don't Know
-03. Raffika Dionisio - Shell
-04. DJ Joseph B - Wanderin Star(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:52
+01. Ganga - Carry You Home
+02. Fobee - Samsara
+03. Chris LeBlanc - Left Without a Kiss
+04. Stepo Del Sol - Siesta(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 01:43:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2B7839F5EBA533A13B8689769D1F0ABAC745B10
+magnet:?xt=urn:btih:004CD34EEDD7ADB9FE0A86B64EBF916BB8480213
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,28 +443,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046734   (552198) от 27.08.2016
+###  Публикация: 1046177   (553125) от 26.08.2016
 
-VA - When The Night Falls (25 Amazing Tunes) Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Bobby Hutcherson - Un Poco Loco (1980) 1999, Koch Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
 
->>Electronic
->>Easy listening
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Formentera Quartett - Lover [03:46]
-02. Lounge Dreamers - Bora Bora [04:25]
-03. The X Lounge - Look [02:56]
-04. Square 22 - Pin [04:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:10
+01.The Sailor's Song [04:45]
+ 02.Silver Hollow [04:13]
+ 03.Un Poco Loco [08:22]
+ 04.Love Song [04:39](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:37:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA278BE5094CFAFD806F0C1C51CF1E2638FA2DB1
+magnet:?xt=urn:btih:B07B3418378EA3D9DD1FA4CDEE1D55A775C0304D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,28 +472,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046337   (552197) от 27.08.2016
+###  Публикация: 1046272   (553124) от 26.08.2016
 
-VA - It's Vocal House 2 (2016)[MP3|320 Kbps] <House, Electronica>
+VA - EDM Summer Closing (2016) [MP3|320 Kbps] <Progressive House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bass Boom Deejays - Faded (Jason Parker Remix) 05:09
-02. Moomicoo - Don't Look Any Further (Franco Maldini Remix Edit) 03:01
-03. Dj Ferre & Sammy Love - We Are Friends (Sammy Love Deephouse Mix) 04:45
-04. Tbo & Vega - Teardrops (Patricio Amc Remix) 03:09(   Читать дальше...   )Жанр: House, ElectronicaПродолжительность: 01:22:23
+01. Emmiel - Every Hour Of Every Day (Kooky Electro Funk Remix) 03:15
+02. Massimo Vanoni - I See You 08:30
+03. Jane Doe - Knight Rider (Ray Livingstone Rework) 04:26
+04. Luke Meyers - Play House (Vocal Edit) 05:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:01:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84D902206180B5B4F1199A74A4DC53FB6A176DE5
+magnet:?xt=urn:btih:BEED170FC1CBD4115404D8D2DEB43484209DE3F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +501,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046297   (552196) от 27.08.2016
+###  Публикация: 1046004   (553123) от 26.08.2016
 
-VA - Global DJ Broadcast - Top 20 August (2016) [MP3|320 Kbps] <Trance, House, Progressive>
+Christopher Hollyday - And I'll Sing Once More (1992) [FLAC|Lossless|image + .cue] <Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artisan  -  Love Is Divine (Original Mix)  7:08
-02. Nifra  -  Rebel (Original Mix)  6:02
-03. Lace Up  -  Caliber (Original Mix)  4:08
-04. Maor Levi & Ilan Bluestone  -  Dynamic  5:56(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 02:18:42
+01. Heroes
+02. Hate The Roomate
+03. The Sound Of Music
+04. Storm(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F958B3B9DA7B9980556139CA7675B95C8C7BF3B
+magnet:?xt=urn:btih:EA425A0F2E53D8FDAC298795D9550E16C8FD8769
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,54 +530,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046504   (552195) от 27.08.2016
+###  Публикация: 1046369   (553122) от 26.08.2016
 
-VA - Dream City Lounge, Vol. 5 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Z Man - Loto (Original Mix) 03:02
-02. Man Drake - Trinity Soft (Original Mix) 05:33
-03. Midtempo Lovers - Neutral Wonder (Original Mix) 03:09
-04. Sand Rhythm - Lonely Moon Walk (Original Mix) 04:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A1E52B1BFC0A1917524DFC6387EA1C565B175E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046639   (552194) от 27.08.2016
-
-Секретные материалы 17. Думский пролог  (2016) SATRip
+Большинство. РИО-2016; Победа или поражение? (26.08.2016) SATRip
 
 >>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто входил в масонскую ложу первой царской Думы? Николай II был испуган революцией и решил, что модель абсолютной монархии не сможет долго продержаться в империи. Были ли подорваны основы самодержавия с появлением российского парламента и почему театрального деятеля Сергея Дягилева называют «чиновником по особым поручениям»?Телекомпания: Россия, МирЖанр: Документальный, ТелепередачаРежиссер: Алла ДерюгинаПродолжительность: 00:24:55
+В каждом выпуске – обсуждение актуальной темы недели с участием политиков, чиновников, представителей бизнеса и экспертов, а также тех, кто представляет «большинство» – жителей страны, неравнодушных к тому, что происходит, и готовых задавать неудобные и острые вопросы.В этом выпуске: Едва мы успели порадоваться успехам наших олимпийцев в Рио, как стало окончательно ясно, что российская сборная в полном составе пропустит паралимпийские игры. Наша надежда на здравый смысл и спортивную солидарность не оправдались. Что ждать дальше? Как мы будем отстаивать репутацию российского спорта?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:59:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:404A39C0C59C2C78C1EB4E2C26D0C33635559FFB
+magnet:?xt=urn:btih:3D3CC695F9889B14F068A1E5D43E5E73EA3EB87C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,26 +556,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046653   (552193) от 27.08.2016
+###  Публикация: 1046112   (553121) от 26.08.2016
 
-Permute 2.2.3 [Multi/Ru]
+Футбол. Чемпионат Англии 2016-2017 / 2-й тур / Match Of The Day HDTVRip [H.264/720p-LQ] [EN]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 августа 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+Выпуск "Match of the Day", посвященный прошедшим матчам 2-го тура АПЛ.Телекомпания: BBCЖанр: ТелепередачаЯзык озвучки: АнглийскийПродолжительность: 02:23:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F19A31CC7FA7AAAA0DCC5E3FAE0BF898EC74391
+magnet:?xt=urn:btih:0F2A3BCD0B24BB9FDF3757A1027E8A90C163572A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +582,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 692295   (552171) от 23.08.2013
+###  Публикация: 1046326   (553120) от 26.08.2016
 
-Пиратская бухта: В удалении от клавиатуры / TPB AFK: The Pirate Bay Away from Keyboard (2013) WEB-DL [H.264/720p]
+Denise Donatelli - Find A Heart (2015) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Noise, New York
+02. Love And Paris Rain
+03. Spaced Out (En Babia)
+04. Practical Arrangement(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FA6E0AE2A4BC74F7842F4DB9FEF417B9956973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046349   (553119) от 26.08.2016
+
+Человек и закон (26.08.2016) SATRip
 
 >>Документалистика и Телепередачи
->>
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документальный фильм о The Pirate Bay (аббревиатура - TPB) - крупнейшем в мире торрент-трекере и его основателях. Сайт ThePirateBay находился на 75 месте по количеству посещений (по состоянию на 5 февраля 2012) в рейтинге Alexa. The Pirate Bay был запущен по инициативе шведской организации Piratbyrn (шведский «Пиратское бюро») в ноябре 2003 года, но с начала октября (   Читать дальше...   )Производство: SVT, Film i Skne, DR, NRK, BBC, VPRO, ZDF, Arte, Anagram Produktion, Final Cut for Real, Piraya Film A/SЖанр: ДокументальныйРежиссер: Саймон КлозеПеревод: Одноголосый закадровый, любительскийСубтитры: НетПродолжительность: 01:22:07
+Крым, лето, диверсанты. Кто организовал, чего добились и каким был сценарий терактов. Сценарий несбывшихся трагедий. Хотя жертвы все равно были. Медали вопреки. Больше, чем могли. Победители, проигравшие, отсутствующие. Сложная Олимпиада, сложные судьбы. Герои не в отпуске. Те, кто не прошел мимо. В обычной жизни побил все рекорды: добежал, доплыл, поймал. Вторая (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:49:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64613AE20BBB95ACF3AF57CC1F06609285914F0F
+magnet:?xt=urn:btih:E484CD9303DD14A2AC5F70BEE6849E34D723A8BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,25 +637,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 692227   (552168) от 23.08.2013
+###  Публикация: 1046182   (553118) от 26.08.2016
 
-Каталог | Quelle - Модная коллекция (осень-зима 2013) [PDF]
+VA - Лето в кайф. Версия 7 (2016) [MP3|256 Kbps] <Pop>
 
->>Журналы
->>Женские журналы
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В каталоге представлены модели женской одежды (осенне-зимний модельный ряд), белье и обувь, а также мужские и детские модели, товары для дома. Каталог действителен до 31 января 2014 года.Формат: PDF
+001. Zhu - Hometown Girl
+002. Stereo Isterika - Кит
+003. Delyno & Remakeit - Passion
+004. Медойти - Поймав Мелодию(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FECE2744240188AE993311BC7B4BF6D02C475B5
+magnet:?xt=urn:btih:B8C1D4EC3C4FED92A7821F0940790A403D0BB450
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,25 +666,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309351   (552152) от 18.06.2019
+###  Публикация: 1046127   (553117) от 26.08.2016
 
-Журнал | Архивы ХХ века №3 (2019) [PDF]
+Nanna Baudelaire - Wild Ones (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bauer Media Group — одна из самых успешных и передовых медиа-компаний в мире. Имея около 570 журналов, более 300 интернет-проектов и около 50 телевизионных и радиоканалов, она является значимым игроком в стремительно развивающейся и постоянно совершенствующейся индустрии. Стабильное развитие и успех компании под руководством издателя Ивонн Бауэр (Yvonne Bauer) являются (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+1. Wild Ones (4:02)
+2. Fever (3:24)
+3. I Will Pretend (3:57)
+4. Sinner (3:56)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:31:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83BAC19B52DB45994F833AE554EBF1D94D756CE2
+magnet:?xt=urn:btih:AD7328F769A7A9BD1AD5273A4EA0A978CA854306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046173   (553116) от 26.08.2016
+
+Станислав Романовский | Гусиный остров (2013) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станислав Тимофеевич Романовский с огромной любовью и нежностью писал потрясающие произведения о неповторимой, бесконечно разнообразной русской природе, о животных и птицах – ничто не ускользало от его чуткого и внимательного взгляда.
+
+В книгу вошли рассказы, герои которых обыкновенные деревенские ребята, любящие и бережно от-носящиеся к своей природе, к этому удивительному (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB658104382CDF49ED54EC6693875B68D44616AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

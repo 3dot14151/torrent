@@ -1,3 +1,137 @@
+###  Публикация: 1666324   (126845) от 21.12.2023
+
+Мужчина средних лет и его похождения в VRMMO | Toaru Ossan no VRMMO Katsudouki | A Playthrough of a Certain Dude's VRMMO Life [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё одна история про простого офисного работника, любящего в свободное время позалипать в видеоигры. А начинается она с того, как 38-летний Таичи Танака решает зайти в совершенно новую виртуальную ММОРПГ под названием "Ещё одна вольная жизнь Онлайн". Особенность этой игры заключается в том, что в ней нет никаких ограничений и игроки могут делать всё, что (   Читать дальше...   )Производство: Япония / Студия Maho FilmЖанр: Приключения, фэнтезиРежиссер: Накадзава ЮйтиЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Cleo-chan, Lobanov, WhiteCrow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D640D4E3F51601C79B171141F1F4368F5A482D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666800   (126828) от 21.12.2023
+
+Я прибрал к рукам девушку | Konyakuhaki Sareta Reijou o Hirotta Ore ga, Ikenai Koto o Oshiekomu [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аллен — могущественный волшебник, и все в городе боятся его, называя "Королём демонов". Но, на самом деле, он вполне мирный, и единственное, чего он хочет — спокойно жить в глубине леса и наслаждаться своим одиноким существованием. Но однажды он у себя в лесу находит девушку, лежащую без сознания, и спасает её от нападения рыцарей. Вскоре он узнает, что (   Читать дальше...   )Производство: Япония / Студия Zero-G, Digital Network AnimationЖанр: Комедия, романтикаРежиссер: Асами ТакасиЯзык озвучки: Русский двухголосый, закадровый; Японский
+- Crowley, Frederica Izzard (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83890E2C1DA17A7BC98B8785B928639B7D390CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617019   (126806) от 21.12.2023
+
+Arknights: Reimei Zensou | Arknights: Prelude to Dawn | Аркнайтс: Прелюдия рассвета [2022, TV, 8 из 8] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор пробуждается во время глобальной катастрофы. Кругом него - война всех против всех: зараженных с не зараженными, и различных группировок зараженных между собой. Доктор ничего не помнит о себе, не понимает, кто прав, а кто виноват. Но девочка-зайчик помогает ему найти свой путь в этом жестоком мире.Производство: Япония / Студия Yostar Pictures, IKIF+Жанр: приключения, фэнтезиРежиссер: Ватанабэ ЮкиЯзык озвучки: Японский, русский (AniLibria, Shiza)Субтитры: Японские, английские, русские (nnm-club^anime, AniLibria, Crunchyroll)Продолжительность: 8 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F9E4B85853E9C48BD0ADF80A62F7444E099CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666553   (126800) от 21.12.2023
+
+Сила святых вокруг нас [ТВ-2] | Seijo no Maryoku wa Bannou Desu (2023) | The Saint's Magic Power Is Omnipotent (2023) [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что финал первого сезона не оставляет никаких сомнений, кто же здесь настоящая Святая, история ещё далека от своего завершения. В конце концов, источники Скверны ещё не очищены, диковинные чудовища не уничтожены, дворцовые интриги не распутаны, свадьбы с красавчиками не сыграны, а героини не возвращены туда, откуда появились. Конечно, не всему из (   Читать дальше...   )Производство: Япония / Студия DiomedeaЖанр: Приключения, романтика, фэнтезиРежиссер: Ибата СётаЯзык озвучки: Русский двухголосый, закадровый; Японский
+- HectoR, Hoopoe (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3FACFB069DE3011D5AA2147F9782C944B565F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624789   (126713) от 22.12.2023
+
+Невеста чародея [ТВ-2] | Mahou Tsukai no Yome Season 2 | The Ancient Magus Bride Season 2 [2023, TV, 24 из 24] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слэй Бегги — люди, которым под силу создавать и поглощать магию в настолько невероятных объёмах, что не выдерживают даже их собственные тела. Они - дарования, обречённые на скорую смерть. Однако одной из них, Чисэ удаётся избежать этой участи, когда глаз Картафила становится источником её бессмертия. Заполучив шанс на новую жизнь, она отправляется в колледж, где (   Читать дальше...   )Производство: Япония / Студия Studio KafkaЖанр: Фэнтези, повседневностьРежиссер: Тэрасава КадзуакиЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Ados, Amikiri, Anzen, Itashi (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 24 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD93DE917609FB212D93A5A28499619339289D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624767   (126711) от 22.12.2023
 
 Доктор Стоун [ТВ-3] | Доктор Стоун: Новый Мир | Доктор Стоун: Новый Свет | Dr. Stone: New World [2023, TV, 22 из 22] WEBRip 1080p Raw+Rus
@@ -6,7 +140,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126711.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126490.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126387.jpg" />
 </div>
 
 
@@ -87,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126366.jpg" />
 </div>
 
 
@@ -114,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126295.jpg" />
 </div>
 
 
@@ -141,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126253.jpg" />
 </div>
 
 
@@ -168,7 +302,7 @@ Kekkon Yubiwa Monogatari II | Легенда свадебных колец 2 | �
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125794.jpg" />
 </div>
 
 
@@ -194,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125721.jpg" />
 </div>
 
 
@@ -221,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125613.jpg" />
 </div>
 
 
@@ -248,7 +382,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125547.jpg" />
 </div>
 
 
@@ -274,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125476.jpg" />
 </div>
 
 
@@ -301,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125446.jpg" />
 </div>
 
 
@@ -328,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125373.jpg" />
 </div>
 
 
@@ -355,7 +489,7 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Сил
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125344.jpg" />
 </div>
 
 
@@ -381,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125342.jpg" />
 </div>
 
 
@@ -408,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125278.jpg" />
 </div>
 
 
@@ -435,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125224.jpg" />
 </div>
 
 
@@ -464,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125206.jpg" />
 </div>
 
 
@@ -491,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125082.jpg" />
 </div>
 
 
@@ -518,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125052.jpg" />
 </div>
 
 
@@ -545,7 +679,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124931.jpg" />
 </div>
 
 
@@ -557,138 +691,6 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3D5415D5749575F40BFC287EBF613A7C0AAC445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626370   (124598) от 03.01.2024
-
-Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau | Beast Tamer | Укротитель зверей [2022, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рейн — укротитель зверей, он умеет заключать контракты с животными при помощи магии и использовать их силу. До недавнего времени он состоял в отряде героя. А потом его выгнали по причине бесполезности. Теперь он обычный авантюрист, но всё меняется после встречи с девушкой из кошачьего племени, входящего в «высшую расу». А в отряде героя и не подозревают, что все (   Читать дальше...   )Производство: студия EMT Squared / EMTスクエアードЖанр: приключения, фэнтезиРежиссер: Нигорикава АцусиЯзык озвучки: Японский, русский (AniLibria, AniDub, DreamCast)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014E78C24DEDF7ABDE6B78F4E2AE47610104CD03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689393   (124566) от 03.01.2024
-
-TenPuru | Temple: No One Can Live on Loneliness | Храм: Никто не может жить в одиночестве [2023, TV, 12 из 12 + 2 SP] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акэмацу тяжело жилось из-за печальной славы отца - мошенника и любимца женщин. Сын зарёкся искать с ними близости, но сорвался после одного происшествия. Решив усмирить свою душу, он подался в монахи в женский монастырь.
-© crunchyrollПроизводство: студия Gekkou / 月虹Жанр: комедия, романтика, повседневность, эттиРежиссер: Кога КадзуомиЯзык озвучки: Японский, русский (AniDUB)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин., 2 sp по 12 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF37032BF0E5E14DA7DC9E35AEC1290145D51E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823355   (124444) от 11.10.2025
-
-Повар небесной гостиницы [ТВ-1] | Kakuriyo no Yadomeshi | Kakuriyo: Bed and Breakfast for Spirits [2018, TV, 26 из 26] HDTVRip 720p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124444.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре истории студентка по имени Аой. Она унаследовала от своего деда способность видеть духов. Аой гордится своим умением готовить. Однажды, когда девушка приносила дары духу-покровителю сельского хозяйства, её забрало к себе Божество, которое владеет Небесной Гостиницей. Этот Бог заявил, что Аой должна стать его невестой из-за долгов её дедушки. Девушку не устроил (   Читать дальше...   )Производство: Япония / Студия GonzoЖанр: Драма, романтика, фэнтезиРежиссер: Окуда ЁсикоЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) - не во всех серияхПродолжительность: 26 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7F5C991F6284E7DCAD3C566427BCD29F7691EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687784   (124275) от 05.01.2024
-
-Безумные расследования Рона Камонохаси [ТВ-1] | Kamonohashi Ron no Kindan Suiri | Ron Kamonohashi's Forbidden Deductions [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть детективом не простая работа, в чём начинающий следователь Тотомару Ишики уже не раз убеждался. Пока что из необходимых для этого дела качеств у него есть лишь наивная мечта помогать людям и огромное трудолюбие. Вот только, чтобы ловить преступников, этого явно недостаточно. Но всё резко меняется, когда он встречает Рона Камонохаси — легендарного детектива, (   Читать дальше...   )Производство: Япония / Студия DiomedeaЖанр: Детектив, комедияРежиссер: Ибата СётаЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Buzya, Ditaro, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A664C3D3579D42035CBFC654A6580F5AF8673DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681541   (124261) от 05.01.2024
-
-Scott Pilgrim Takes Off | Скотт Пилигрим жмёт на газ [2023, TV, 8 эп.] WEB-DL 1080p raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала происходит в Торонто, Канада, и представляет собой альтернативный пересказ оригинальной серии графических романов Скотта Пилигрима. Как и в оригинальном сериале, Скотт Пилигрим, басист инди-группы, влюбляется в Рамону Флауэрс, загадочную доставщицу, привлекая внимание семи злых бывших Рамоны. Однако все принимает неожиданный поворот, когда Скотт (   Читать дальше...   )Производство: США, Япония, Канада, Science SaruЖанр: фэнтези, комедия, минисериалРежиссер: Абель ГонгораАктеры: Майкл Сера, Мэри Элизабет Уинстэд, Киран Калкин, Эллен Вонг, Джонни Симмонс, Марк Веббер, Сатья Баба, Калеб Йен, Денин Мелоди, Стефан Джонсон, Бри Ларсон, Анна Кендрик, Крис Эванс, Брэндон Рут, Джейсон Шварцман, Шеннон Вудворд, Кевин МакДональд, Саймон ПеггПеревод: Многоголосый профессиональный (TVShows), любительский дубляж (APhoenixVoice), многоголосый любительский (Anilibria, AniBaza)Язык озвучки: РусскийСубтитры: Русские (полные), русские (Anilibria на надписи, внешние), английские, немецкие, французские, японские и пр.Продолжительность: 8 серий по ~00:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631FC97FD472DAD0046C7EC943E2C03071D2CFC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 964588   (396351) от 04.10.2017
+
+Sound & Voice Recorder - ASR Premium v83 [Ru/Multi] - Мультиформатный диктофон
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396351.jpg" />
+</div>
+
+
+###  Подробнее
+
+ASR - это одно из лучших приложений-диктофонов на Play Маркет. Бесплатный и без каких-либо ограничений на время записи!Тип издания: Пиратка (PREMIUM features Unlocked | Drive works)Релиз состоялся: 01.10.2017Разработчик: NLLПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2263B8595B44B0D0F06E410072CF0DE6F3F4670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171828   (393761) от 07.10.2017
+
+Facetune 1.1.4 [RU]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое фото можно улучшить. Поэтому глянцевые журналы используют дорогие инструменты типа Фотошопа, чтобы селебрити выглядели идеально. Но теперь появился FaceTune! Facetune обладает простыми в работе и мощными инструментами (ранее доступными только профессионалам) ретуширования и улучшения каждого фото или селфи, которые получат качество глянцевых журналов. Теперь (   Читать дальше...   )Релиз состоялся: 28/03/2017Разработчик: LightricksПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA179300017AC9377CE97E1F4E8603F1F924823D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410486   (387042) от 04.09.2022
+
+Прогноз клева v7.32 [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387042.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прогноз клева» — это программа, которая будет держать Вас в курсе прогноза погоды и оптимальных погодных условий для рыбной ловли.Тип издания: AdFree + ModРелиз состоялся: 17.07.2022Разработчик: ddi.devПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD83C69CC11B6BF5C65108761FC241D12C8234D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928858   (386810) от 07.10.2020
+
+Diabetes:M v8.0.8 Premium [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработанное для телефонов и планшетов это приложение создано для того чтобы помочь диабетикам лучше управлять своим диабетом и держать его под контролем. Пользователи могут регулярно записывать свои показатели в дневник. Приложение отслеживает практически все аспекты лечения диабета, предоставляет подробные отчеты, графики и статистику которые можно отправить лечащему (   Читать дальше...   )Тип издания: Пиратка (открыт Премиум) + ModРелиз состоялся: 06.10.2020Разработчик: Rossen VarbanovПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07C17CADFAF6A1CAE94B418E336D791BDEF010D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574629   (385478) от 05.09.2022
 
 Абсолютный Слух v3.9.34 [Ru/Multi]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385478.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Ebook Reader 5.1.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383537.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NetGuard Pro - no-root firewall v2.302 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383142.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ Volume Styles 4.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381310.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ No Smoking 2.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381300.jpg" />
 </div>
 
 
@@ -144,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380960.jpg" />
 </div>
 
 
@@ -170,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380925.jpg" />
 </div>
 
 
@@ -196,7 +300,7 @@ GPS HUD Speedometer Plus v3.27 [En/Rus] - спидометр с навигаци
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379716.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ Tides app & widget - eTide HDF 1.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379339.jpg" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378574.jpg" />
 </div>
 
 
@@ -276,7 +380,7 @@ Quick Video Recorder - Background Video Recorder v1.3.3.9 Mod by Balatan, >root<
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378129.jpg" />
 </div>
 
 
@@ -302,7 +406,7 @@ Music Writer - Music Composer 1.2.275 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377089.jpg" />
 </div>
 
 
@@ -328,7 +432,7 @@ Universal AC Air conditioner Remote Control 8.8.7.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376995.jpg" />
 </div>
 
 
@@ -355,7 +459,7 @@ Guitar Effects, Amps, Deplike 5.9.3.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376991.jpg" />
 </div>
 
 
@@ -383,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375902.jpg" />
 </div>
 
 
@@ -409,7 +513,7 @@ Boom v2.7.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374683.jpg" />
 </div>
 
 
@@ -438,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373899.jpg" />
 </div>
 
 
@@ -464,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372111.jpg" />
 </div>
 
 
@@ -490,7 +594,7 @@ EveryCircuit v2.19 [En/Rus] - Проектирование и моделиров
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372107.jpg" />
 </div>
 
 
@@ -519,7 +623,7 @@ Helium 1.1.4.1 [Ru] - Альтернатива Titanium Backup
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371965.jpg" />
 </div>
 
 
@@ -545,7 +649,7 @@ Full Scientific Calculator v1.76 Pro [En] - мощный многофункци�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370877.jpg" />
 </div>
 
 
@@ -571,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370874.jpg" />
 </div>
 
 
@@ -582,110 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5DBFE5061755E0133F6F0BDFB3F737071B97B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886138   (370035) от 12.09.2022
-
-Periodic Table / Таблица Менделеева HD 7.7.0 [Ru/En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая таблица Менделеева на Google Play. Узнай химию по-новому. Химия — это наука о веществах, их свойствах, строении и превращениях, происходящих в результате химических реакций, а также о законах, которым эти превращения подчиняются. Все вещества состоят из атомов, которые, благодаря химическим связям, способны формировать молекулы. Химия, прежде всего, занимается (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.10.2021Разработчик: JQ SoftПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E2D73F50B4FC29B5F10B47568E379BA8DD61E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102191   (367590) от 16.10.2018
-
-Terrarium TV-Premium v1.9.10 Mod v8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terrarium TV это Android-приложение, которое позволяет просматривать поток и скачать бесплатно HD ТВ-шоу и фильмы на ваше Android устройство. Она обеспечивает практически любые телепередачи и фильмы. Абсолютно бесплатно. Вы можете загрузить их на вашем Android устройстве или смотреть онлайн. Фильмы и ТВ-шоу на оригинальном языке. К некоторым есть субтитры на русском (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked | Analytics disabled) + ModРелиз состоялся: 16.10.2018Разработчик: Terrarium TVПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395C1F161975F58BF1194FDD4BAA92B6AE5242F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091730   (365625) от 14.09.2022
-
-Таблица Менделеева 2022 PRO v0.2.120 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Химия - самая ценная наука, наука о веществах, их составе и строении, она является одним из главных школьных предметов. Знакомство с Химией начинается с Периодической Системы химических элементов – Таблицы Менделеева. Современный доступ к учебному материалу имеет лучший результат в сравнении с обычным. Потому как в нем применяются технологии, которые стали родными (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 18 февр. 2022 г.Разработчик: www.chernykh.techПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571253D4A320F0582F450A364762056499DB2D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223867   (362904) от 18.10.2018
-
-ElLi (free) - Расчет проводки v1.3.35 AdFree [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение ElLi ("Электра Лайт"), поможет Вам, произвести расчет электропроводки дома, офиса, малого предприятия, и другие расчеты по электрике.  Расчеты сечения кабеля и провода, для электропроводки основаны на актуальных данных из ПУЭ издания 6 и 7.Тип издания: Пиратка (удалена реклама с Free версии)Релиз состоялся: 16.10.2018Разработчик: Vladimirus - teamПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF4F78B00A24916C961B5A6676BAD19C3866CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

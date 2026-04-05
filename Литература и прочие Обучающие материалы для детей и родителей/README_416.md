@@ -1,3 +1,58 @@
+###  Публикация: 472002   (122697) от 16.01.2024
+
+И.Я.Билибин | Сказки. Василиса Прекрасная (1902) [Раритет] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122697.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге содержится сказка "Василиса Прекрасная". Книга иллюстрирована цветными рисунками И. Я. Билибина.
+Иван Яковлевич Билибин (4 (16) августа 1876 — 7 февраля 1942) — русский художник, книжный иллюстратор и театральный оформитель, участник объединения «Мир искусства».Жанр: Детская литература, сказкиИздательство: «Экспедиция заготовления гос. бумаг» Санкт ПетербургФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19EF0C8CEF3916F660E56FFE58C3B06567DD90A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469696   (122696) от 16.01.2024
+
+М. Л. Закожурникова и др. | Русский язык. Учебник для 1-го класса (1965) [Раритет] [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Составили:
+М.Л. Закожурникова, Ф.Д. Костенко, Н.С. Рождественский
+Предлагаемое раритетное издание является пособием по обучению чтению и письму детей 6-7 летнего возраста, слегка пожелтевшие страницы.Жанр: УчебникИздательство: «Просвещение» МоскваФормат: PDF, DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6F3AB144DBB96F36790FE90694A1884BCF66BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470831   (122679) от 16.01.2024
 
 Д.Д. Минаев| Дедушкины вечера. Русские сказки для детей в стихах (1880) [Раритет] [PDF]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122679.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122675.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122673.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122667.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122663.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122657.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122628.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122627.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122622.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122621.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122620.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122464.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122461.jpg" />
 </div>
 
 
@@ -355,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122458.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122457.jpg" />
 </div>
 
 
@@ -407,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122456.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122453.jpg" />
 </div>
 
 
@@ -461,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122447.jpg" />
 </div>
 
 
@@ -487,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122442.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122441.jpg" />
 </div>
 
 
@@ -539,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122440.jpg" />
 </div>
 
 
@@ -565,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122437.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122430.jpg" />
 </div>
 
 
@@ -618,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122380.jpg" />
 </div>
 
 
@@ -629,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CD43DBCFD3382AB901DCEEB0CF58FEDFE4743A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692582   (122367) от 17.01.2024
-
-А.Иванов | Гришка-шахтёр (1928) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гришка мечтает работать в шахте, как его отец и брат. На настойчивые просьбы взять его в шахту, отец соглашается и отправляет его с братом на смену. На их беду в этот же день случается обвал и группа шахтёров на много дней остаётся замурованной в штольнях...
-Для детей среднего школьного возраста. Иллюстрации А. Баранского.Жанр: РассказИздательство: Государственное ИздательствоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B063BEACA1E72578BD719FF8D645AED5B419DC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917580   (122319) от 18.01.2024
-
-Д.В. Голиков, А.Д. Голиков | Программирование на Scratch 2 [в 2 частях] (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целью книги является пропедевтика программирования, математики, естественных наук среди школьников младших классов. Книга написана на основе опыта обучения программированию на Scratch в кружке юных программистов.
-Материал рассчитан на самостоятельное изучение школьниками 3-5 классов, имеющими базовые навыки управления компьютером. Дети должны уметь пользоваться «мышью», (   Читать дальше...   )Жанр: Обучающие книги, программированиеИздательство: Интернет изданиеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213C53217EB3ECBDDC3FE2468AB846763D9E7301
 ```
 
 https://mybot314.ru/tekegram_catalog/

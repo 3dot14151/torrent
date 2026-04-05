@@ -1,3 +1,107 @@
+###  Публикация: 1690548   (121027) от 25.01.2024
+
+Сто тысяч долларов на солнце / Cent mille dollars au soleil (1964) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой городок в Северной Африке. В компанию по грузоперевозкам, где работает Рокко, прибывает новый трейлер с таинственным грузом, который должен уйти в Нигерию. Для этой миссии хозяин фирмы «Папаша Кастальяно» по прозвищу «Свекла» нанимает человека с фальшивым паспортом и подозрительной репутацией - Джона Штайнера. Вечером, накануне дня выезда, во время дружеской (   Читать дальше...   )Производство: Франция, Италия / Gaumont Distribution, Gaumont International, Trianon Films, Ultra FilmЖанр: боевик, комедия, приключенияРежиссер: Анри ВернёйАктеры: Жан-Поль Бельмондо, Лино Вентура, Реджинальд Кернан, Бернар Блие, Анн-Мари Коффине, Дуду Бабет, Пьер Колле, Кристиан Брокар, Поль Бонифас, Джеки БланшоПеревод: многоголосый профессиональный, авторскийЯзык озвучки: русский, французскийСубтитры: английские, французские (SDH)Продолжительность: 02:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771CF3360E5F86F70F6F192693C9F0D647A6D4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488813   (120917) от 26.01.2024
+
+Лицо со шрамом / Scarface (1983) BDRip [720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем - «Лицо со шрамом»...Производство: США / Universal PicturesЖанр: Драма, КриминалРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель СаласарПеревод: Многоголосый закадровый, Двухголосый закадровый, Авторский одноголосыйСубтитры: Английские, РусскиеПродолжительность: 02:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51BED5340D0C2BAC26E517AD075093200565EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690629   (120854) от 26.01.2024
+
+Убийцы во имя порядка / Les assassins de l'ordre / Law Breakers (1971) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следователь префектуры Бернар Левель пытается привлечь к ответу полицейских, забивших до смерти арестованного ими (по подозрению в ограблении) невинного человека. При этом ему приходится выступить против всей пораженной коррупцией судебной системы. Он проигрывает процесс: убийцы оправданы. Но все-таки его усилия не пропадают даром: многие местные жители осознают (   Читать дальше...   )Производство: Франция, Италия / Compagnie Franco Coloniale Cinématographique (CFCC), Les Productions Belles Rives, West FilmЖанр: драмаРежиссер: Марсель КарнеАктеры: Жак Брель, Катрин Рувель, Паола Питагора, Ролан Лезафр, Боби Лапуант, Жан-Роже Коссимон, Анри Нассье, Гарри-Макс, Пьер Магелон, Люк ПонеттПеревод: Многоголосый профессиональныйЯзык озвучки: русский, французскийСубтитры: английские, французскиеПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8720CD60E71B2CA0E86E1E3CEC180CAAFFD5D4C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691923   (120190) от 30.01.2024
+
+На несколько долларов больше / Per qualche dollaro in piu / For a Few Dollars More (1965) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [MVO] [Uncut version]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заработать несколько лишних долларов честным путем на диком Западе не проблема, если у тебя есть проверенный кольт и разрешение властей на отстрел бандитов. Этим путем и идут бок о бок профессиональные охотники за головами негодяев «Человек без имени» и полковник Мортимер, общая цель которых — преступная банда мексиканца Индио.Производство: Италия, Испания, Германия (ФРГ) / Produzioni Europee Associate (PEA), Arturo González Producciones Cinematográficas, Constantin FilmЖанр: вестерн, драма, боевикРежиссер: Серджио ЛеонеАктеры: Клинт Иствуд, Ли Ван Клиф, Джан Мария Волонте, Мара Крупп, Луиджи Пистилли, Клаус Кински, Luis Rodríguez, Бенито Стефанелли, Панос Пападопулос, Альдо СамбрельПеревод: Профессиональный многоголосый (Лицензия Blu-Ray CEE)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 02:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99826CBCD2BF0A4628FA60BE711641C221813CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692553   (119869) от 01.02.2024
 
 Мужчина и женщина / Un homme et une femme (1966) BDRip [H.264/720p]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119869.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119721.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119719.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119676.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119044.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119040.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119034.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118850.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118648.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118487.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118474.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118468.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118000.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117856.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117814.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117080.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117073.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116764.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116405.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116132.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116126.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115543.jpg" />
 </div>
 
 
@@ -567,112 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE49378E3EBB6C06182867BFDEE8534F81F1E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703040   (115256) от 28.02.2024
-
-Лицо со шрамом / Scarface (1983) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем — Лицо со шрамом.Производство: США / Universal PicturesЖанр: драма, криминал, боевикРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель СаласарПеревод: Дублированный, профессиональный (многоголосый, двухголосый закадровый), авторский (одноголосый, закадровый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (full x2), украинские, английскиеПродолжительность: 02:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685BE2E2D57A703265DE2E5FB052F64D66B9DD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699910   (115051) от 29.02.2024
-
-Взрыв тишины / Blast of Silence (1961) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это низкобюджетный фильм, в котором вы увидите мастерски проработанный портрет наемного убийцы, выполняющего задание в Манхэттене во время Рождественских праздников.Производство: США / Magla ProductionsЖанр: триллер, драма, криминалРежиссер: Аллен БаронАктеры: Аллен Барон, Молли МакКарти, Ларри Таккер, Питер Эйч. Клуне, Дэнни Миэн, Ховард Манн, Чарльз Крисап, Билл ДеПрато, Мильда Меменас, Джо БуссикоПеревод: Одноголосый любительский (Александр Воронов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C0FB81208CAA81D8469071D1C437F7B4FB2669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703483   (115007) от 29.02.2024
-
-Последний человек / Der letzte Mann (1924) BDRip [H.264/720p] [DE / RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115007.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета престарелый портье высококлассного отеля. В его обязанности входит встречать клиентов, открывать им двери, относить и выгружать багаж. Большой, высокий и крепкий мужчина, он очень гордится своей должностью; красивая, тщательно вычищенная и выглаженная форма с блестящими медными пуговицами внушает его соседям почтение и уважение... Но всё меняется, (   Читать дальше...   )Производство: Германия, Universum Film (UFA)Жанр: драмаРежиссер: Фридрих Вильгельм МурнауАктеры: Эмиль Яннингс, Мали Дельшафт, Макс Хиллер, Эмили Курц, Ханс Унтеркирхер, Олаф Шторм, Херманн Валлентин, Георг ДжонПеревод: нетЯзык озвучки: немецкийСубтитры: русские (imvolk-13), английскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45D7EF40CB9DD356B98893AF4EF96CC2D0598AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700032   (114730) от 02.03.2024
-
-Али Баба и 40 разбойников / Ali Baba et les 40 voleurs (1954) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Али-Баба —- добрый, веселый и немного чудаковатый слуга богатого господина Кассима. Он немолод, беден и некрасив. Но зато как обаятелен!
-Али-Бабу полюбила красавица Моржана – наложница, которую он сам выбирал на невольничьем рынке для Кассима.
-Что же делать? Нужно найти способ разбогатеть. Но, как бывает в сказке, богатство само находит доброго человека. Надо лишь (   Читать дальше...   )Производство: Франция / Les Films du CyclopeЖанр: фэнтези, мелодрама, комедияРежиссер: Жак БеккерАктеры: Фернандель, Самия Джамал, Дитер Борше, Анри Вильбер, Эдуард Дельмон, Эдмон Ардиссон, Мануэль Гари, Жюльен Мафр, Леопольдо Францес, Гастон ОрбальПеревод: Двуголосый профессиональныйЯзык озвучки: русский, украинскийСубтитры: отсутствуютПродолжительность: 01:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C202D63FE0D4B15BA4396A94A2CBE1D37EAF7F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

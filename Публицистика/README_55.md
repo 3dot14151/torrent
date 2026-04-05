@@ -1,3 +1,29 @@
+###  Публикация: 1166920   (419717) от 19.09.2017
+
+Р. де Жувенель | Интернационал предателей (1949) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419717.jpg" />
+</div>
+
+
+###  Подробнее
+
+О той борьбе против черных сил старого мира, которую пришлось выдержать странам народной демократии, рассказывает в своей книге «Интернационал предателей» прогрессивный французский писатель Рено де Жувенель. Его книга вышла в Париже двумя изданиями. Она привлекла к себе широкое внимание демократической общественности. Само выражение «интернационал предателей» — применительно (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1997ED857D8566588C35B7A7CFCB24B8585410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065648   (418590) от 23.10.2016
 
 Роберт Робинсон | Черный о красных. 44 года в Советском Союзе. Автобиография черного американца (2012) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418590.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418199.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417851.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417709.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416232.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416224.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415895.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415430.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415416.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415051.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415024.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414491.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414040.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413862.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413021.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412253.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411490.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409861.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409426.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408746.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408581.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408256.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408142.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408140.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408043.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7238D1F4FD638BA499A9FB66286ECA2EC3DE64AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949139   (408039) от 22.10.2015
-
-Максим Калашников | Сценарии великого слома (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прогрессирующая бестолковость власти в экономике очевидна. Это просто неадекватность: в ответ на спад производства и падение инвестиций в основной капитал устраивать военные учения и бряцания оружием. Это все равно что лечить туберкулез барабанным боем. Без преодоления кризиса в экономике, без ухода от жалкого сырьевого статуса, без национализации Центробанка и создания (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2578D3CBF60514B7B03F502E5EA8BDE4A20235
 ```
 
 https://mybot314.ru/tekegram_catalog/

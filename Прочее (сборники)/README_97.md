@@ -1,3 +1,218 @@
+###  Публикация: 924619   (543078) от 05.08.2015
+
+VA - Драйвовая энергия клубного танцпола (2015) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norda - Dance For Me (Extended)
+02. Rocco - One Two Three (Phobia & Shaker Club Attack!)
+03. Mike Posner - I Took A Pill In Ibiza (Seeb Radio Edit)
+04. Gunter feat. Samanta Fox - Touch Me 2015 (Dj Dizma Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9255B49CA65EFA4925D10D80F78E029ADE239FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924977   (543075) от 05.08.2015
+
+VA - Rainbow Dance Hit (2015) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nika Dostur & Dj Party - Zan - Lost (Syntheticsax & Ural Djs Extended Remix)
+02. Todd Terry Vs Sted - E & Hybrid Heights feat. Mr V., - Crash (Robbie Rivera & DJ Rooster Mix)
+03. Klinedea - Your Hand (Original Vocal Mix)
+04. Shelco Garcia & Teenwolf, Boomslang feat. J. Esho - Young & Bold (Wallstreet Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 08:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17805059EBD1C5D7D3B4FEDFA3FE531C097662DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925008   (543007) от 05.08.2015
+
+VA - Hits Dance 2015 Surrender (2015) [MP3|320 кб/с]<Pop, Disco, Hands Up, Club, EDM>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.A.R.5 & Mg King - Work It Out (Radio Edit)
+02. Etania - Warriors Of Love (Radio Edit)
+03. Denis Pewny Feat. Julia - Hero (Club Mix Edit)
+04. Tainos Feat. Alycia Stefano - Pam Pam (Latin Edit)Жанр: Pop, Disco, Hands Up, Club, EDMПродолжительность: 11:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84E5997E63481FF645C7F7A40E57D4B3A39549E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925149   (542916) от 05.08.2015
+
+VA - New Format Of Italo Disco (2015) [MP3|320 кб/с]<Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boris Zhivago - One Day (Original Version)
+02. James Manoro - Always & Forever (Extended Version)
+03. Magic System D.J. - I Wanna Touch Your Body Now (Extended version)
+04. Gabe Catanzaro feat. Jon Autry - Long Way From Home(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 10:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464F86B302E7431D53D7600EB647F163E734181F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531686   (542854) от 05.08.2012
+
+VA - Sexy Dance 50/50 (2CD) (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542854.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дима Билан и Юлия Волкова - Любовь-Сука
+002. Pitbull - Sube Las Manos Pa Arriba
+003. Чи-Ли - Океан
+004. Дима Билан - Honey
+005. Akcent - Chimie Intre Noi (Radio Edit)
+006. Тимати & Grooya feat. La La Land & Timbaland - Not All About The Money (Radio Edit)
+007. 5sta Family - Дождь Плачет
+008. Nickelback - When we stand together
+009. Чайф - Для Него, Для Себя, Для Меня!
+010. Джиган (Geegun) feat. Мулат - Тесно(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8E74809ACB15C8647008E618D235021AC08A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925190   (542810) от 05.08.2015
+
+Boney M. - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy Cool 1976 (03:29)
+02. Ma Baker 1977 (04:37)
+03. Rivers Of Babylon 1978 (04:23)
+04. 10.000 Lightyears 1984 (04:34)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037044B61896531CAC268DA3B45578E332164D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531560   (542747) от 05.08.2012
+
+VA - Русская Новинка Пляжного Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542747.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ВИА Гра - День без тебя
+002. Александр Серов - Сказочный версаль
+003. Жанна Фриске - Пилот
+004. Согдиана - На Седьмое Небо
+005. Лолита - Не Заморачивайся
+006. Дима Билан и Юля Крылова - Слепая любовь (новая верия)
+007. Елена Терлеева - Немая любовь
+008. Стас Михайлов - Где-то там
+009. T-Killah feat. Виктория Дайнеко - Мира Мало
+010. Анжелика Варум - Зимняя вишня (New Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2039DB449B16D0EE13854ACBAB66855779E7C1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531515   (542743) от 05.08.2012
 
 VA - Ibiza Chillout (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
@@ -6,7 +221,7 @@ VA - Ibiza Chillout (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542743.jpg" />
 </div>
 
 
@@ -41,7 +256,7 @@ VA - Песня года 2012. Летний спецвыпуск (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542586.jpg" />
 </div>
 
 
@@ -76,7 +291,7 @@ VA - Relax FM (04.08.2012) [MP3|320 кб/с]<Relax, ballads>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542458.jpg" />
 </div>
 
 
@@ -111,7 +326,7 @@ VA - Сборник песен о Санкт-Петербурге (Ленинг�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542035.jpg" />
 </div>
 
 
@@ -146,7 +361,7 @@ VA - ЕвроХит Топ 40 Europa Plus 28.06.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541792.jpg" />
 </div>
 
 
@@ -175,7 +390,7 @@ Smokie - Balladen (2015) [MP3|320 кб/с]<Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541120.jpg" />
 </div>
 
 
@@ -204,7 +419,7 @@ Arabesque - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541104.jpg" />
 </div>
 
 
@@ -233,7 +448,7 @@ VA - Star House Vocal (19.07.2012) [MP3|320 кб/с]<House Vocal, Dance, Club, E
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540752.jpg" />
 </div>
 
 
@@ -268,7 +483,7 @@ VA - TOP 100 Зайцев.нет от 20 июля 2011 (2011) [MP3|128-320 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540714.jpg" />
 </div>
 
 
@@ -294,7 +509,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540609.jpg" />
 </div>
 
 
@@ -329,7 +544,7 @@ VA - The Best World Ballads-12 (2012) [MP3|96-320 кб/с]<Pop, Rock, Blues, Rap
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539938.jpg" />
 </div>
 
 
@@ -364,7 +579,7 @@ VA - 100 хитов в дорогу (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539490.jpg" />
 </div>
 
 
@@ -393,7 +608,7 @@ VA - Summer on the Beach (Downtempo Lounge and Chilled House) (2015) [MP3|320 к
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539300.jpg" />
 </div>
 
 
@@ -422,7 +637,7 @@ VA - NeРусский Шторм - 55 (2012) [MP3|128-320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538796.jpg" />
 </div>
 
 
@@ -457,7 +672,7 @@ VA - Солнечный Попсовый Микс (2012) [MP3|256 кб/с]<Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538784.jpg" />
 </div>
 
 
@@ -492,7 +707,7 @@ VA - Музыкальный подиум (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538764.jpg" />
 </div>
 
 
@@ -527,7 +742,7 @@ VA - Модное Танцевальное Лето. Зарубежный (2012)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538763.jpg" />
 </div>
 
 
@@ -562,7 +777,7 @@ VA - 100 Hits From The International Dance Charts (2015) [MP3|320 кб/с]<Progr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537188.jpg" />
 </div>
 
 
@@ -591,7 +806,7 @@ VA - не Громкие новинки недели 23 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536304.jpg" />
 </div>
 
 
@@ -605,209 +820,6 @@ VA - не Громкие новинки недели 23 (2019) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7FEA70DE24F4FFECB0115577F3A25579A21EF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311857   (535670) от 02.07.2019
-
-VA - Новинки с разных популярных MP3 сайтов. Ver.85 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-1.Laidback Luke & Mark Bale - Party Starter (2:11)
-2.Erick E - The Beat Is Rockin (Mike Prado & Foma Remix) (2:15)
-3.Fisher - You Little Beauty (Alexx Slam Remix) (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13EE6C0D16BEC6C0E64D1A9C0E5EFC8FE132B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311785   (535667) от 02.07.2019
-
-VA - Самые горячие русские танцевальные треки. Soundclinic MEGAPOP Edition (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535667.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Скриптонит & Тати - Приглашение на Gazgolder Live (Tekst-Pesen.RU) (1:42)
-2.Devianprod. - Drowninginthissea (2:50)
-3.Гио Пика - Фонтанчик с Дельфином (2:00)
-4.Rsac - NBA (2:13)(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 07:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50B330F556C45E61B2BE67B39BC845BF353BE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926080   (535592) от 09.08.2015
-
-VA - Summer EDM Party (2015) [MP3|320 кб/с]<Dance, House, Club, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Shake That Ass (Edit)
-02. Teknova - Let's Bounce (Original Mix)
-03. Saintpaul Dj - It's Summertime (Da Brozz Bounce Mix)
-04. Eliza G - Hello Hello (Turbotronic Remix)(   Читать дальше...   )Жанр: Dance, House, Club, ProgressiveПродолжительность: 02:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA66CFA7568B18B962E1B27CB892C19A138AA77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926085   (535584) от 09.08.2015
-
-VA - Pop Summer (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lawrence - Want To Want Me (B Remix)
-02. Boyz Boyz Boyz - Sugar (A.R. Mix)
-03. D'Mixmasters - Five More Hours (B Remix)
-04. Trancemission - Come And Get It (B Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9D12E3B95A96226C6AB2D89BB872AF04772672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926118   (535580) от 09.08.2015
-
-VA - Top of Dance - Club Music Edition (2015) [MP3|320 кб/с]<Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandermatt - Love Feels Right (Radio Edit)
-02. Danzel - Stronger (Radio Edit)
-03. Rico Caliente & Alessio Pras Feat. Papa London - Manos Pa'Rriba (Radio Version)
-04. Alpha-X Feat. Quinn - The One (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD428EBD8E8742F0DEB81DB83CB7775F3F888B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926173   (535579) от 09.08.2015
-
-VA - Love Lounge - Hooki-Sonic Recordings (2015) [MP3|320 кб/с]<Downtempo, Deep House, Soulful>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Shake That Thing 06:55
-02. King Hookiss - After Midnight (Chillout Mix) 08:00
-03. Ladamar - Loverbreak (Radio Edit) 06:54
-04. Trillian - Colour Me Sexy 06:30(   Читать дальше...   )Жанр: Downtempo, Deep House, SoulfulПродолжительность: 08:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B762FB535DA17D06BD71952C886F1DA001F0C233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557687   (535540) от 18.06.2022
-
-VA - Music News vol.195 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535540.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ANNA ASTI - По барам (ExWave remix) (05:01)
- 002. Alcatrash - Ligo Akoma (02:52)
- 003. Alex Velea feat. Antonia - Tranquilo Papi (02:01)
- 004. Andi - Нарния (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B02D6DDEAD24E645354D791CE908E19912BF14FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

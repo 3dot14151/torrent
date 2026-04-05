@@ -1,3 +1,116 @@
+###  Публикация: 342978   (654306) от 31.05.2011
+
+DJ Silence - From Heaven (2010-2011) Anthology [FLAC|Lossless] <Ambient, Psy Chill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Psy Chill, Dub, RelaxПродолжительность: 61:25:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140890   (654020) от 08.06.2017
+
+VA - Heavenly Tears (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Sura Quintet - I Won't Forget You  5:01
+02.  York - Burning Flame  6:46
+03.  Physical Dreams - Return To Innocence  5:13
+04.  VLVTG - Somebody  2:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653D396065D18593DC586C3568ACB02B119B2285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140913   (654018) от 08.06.2017
+
+VA - Recoverworld Trance Sessions 17.03 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emad Ebeat - Goddess In The Rain (08:00)
+02. Soul Entity - Inside The Mountains (06:29)
+03. Ciro Visone - Someone Save Me (06:29)
+04. Madwave - Mayhem (07:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757867BBF349015233CC7C6B0BFA7388C69C08C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140987   (654017) от 08.06.2017
+
+VA - Throwback EDM Tracks (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meltdown – Free 03:53
+02. 2 Steps Up – Finally 03:51
+03. Conscious Funk – Infinity 03:59
+04. Underground Spell – Born Slippy 05:21(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897C773B2F6C708F40D116C2647061F41EEE61BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140897   (654015) от 08.06.2017
 
 VA - Balearic Dinner Vol.1: Island Chill Dream Dinner Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +119,7 @@ VA - Balearic Dinner Vol.1: Island Chill Dream Dinner Tunes (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654015.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Astrobiologia - Астробиология (2017) [MP3|320 Kbps] <Trance, Breaks
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653992.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - Naked Ibiza Vol.1 (Pure Fresh Balearic Summer Chill Tunes) (2017) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653988.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Nothing But - Electronica I (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653987.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Kraftwerk - Remixes (2020) Remastered, Reissue [FLAC 2.0|48, 44.1/16, 24|tracks|
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653962.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Wsahl - All Eyes On Wsahl (2017) [MP3|320 Kbps] <Breakbeat, Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653951.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ Moskwa TV - 3 Albums (1985-1991) [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653940.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - Club Hits Vol.5 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653929.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ VA - Techno Club Vol. 65 (Mixed by Talla 2XLC & Signum) (2022) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653917.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ ENiGMA Dubz - The Journey so Far (2015)  Part 1;2 [FLAC|Lossless|WEB-DL|tracks] 
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653916.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ VA - When The Sundown - Easy-Listening & Evening Tracks (2018) [MP3|320 Kbps] <B
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653873.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ VA - Tech House Date (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653871.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ Steve Angello - HUMAN (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653864.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ VA - A State Of Trance Top 20 - May (Selected By Armin van Buuren) (2018) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653781.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ VA - The Power of Dubstep 2018 Vol.2 (2018) [MP3|320 Kbps] <Dubstep, Dirty Dubst
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653688.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ Andevour - Catharsis (2015) [FLAC|Lossless|WEB-DL|24/48] <Downtempo, Chillstep, 
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653003.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ VA - The Fatboy Slim Collection (2015) 4CD [FLAC|tracks +.cue]<Breaks, Funk, Hou
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652869.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ Graham Van Pelt - Time Travel (2018) [FLAC|Lossless|tracks + .cue] <Electronic, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652728.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ Ms. Kittin - Batbox (2007) [FLAC|Lossless|image + .cue] <House, Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652713.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ al l bo - Loudsteps (2019) [MP3|320 Kbps] <Progressive House, Electro House, Voc
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652667.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Dirty Vegas - Days Go By (The Retrospective) (2018) 2CD, Compilation [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652598.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ VA - Ori Uplift - Uplifting Only 226 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652552.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ VA - Ori Uplift - Uplifting Only 226 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB20C5196756DE927581F1733E5099BFA229D2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141156   (652550) от 09.06.2017
-
-VA - Ibiza Club Session (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  GrooveLoop - Hyperspace (Final Version)  3:38
-02.  Mariusz Chodorek - Heroes (Mariusz Chodorek Remix)  9:02
-03.  Karadjov - Octagon (Ula Remix)  7:22
-04.  Tranc3plant - Euphoria (Uplifting Mix)  5:36(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 05:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90032A4732A948F5A76390E1188C75BC9C11A7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540484   (652543) от 30.03.2022
-
-VA - Best Summer Hits 2022 - 2023 [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krees Waves, Stan Kayh - We Came For Love (3:16)
-02. NIEL - Behind Me (3:46)
-03. Biggoose, DzenB - On Fire (3:38)
-04. Lost House Rhythms, Falcos Deejay - Runnin' (3:25)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700F4FEB5F57014D2953A5710DD3055F42D81EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141350   (652457) от 09.06.2017
-
-The Human Case - Living library (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Case & MushiMan - Embryo (06:14)
-02. Chella Kutty (06:34)
-03. Nova (05:53)
-04. Fragile (04:31)Жанр: Psybient, Ambient, DowntempoПродолжительность: 00:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFE834C8DE6187DEFEC4202C51ECE6C2F4DD4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540611   (652444) от 30.03.2022
-
-ENiGMA Dubz - Genesis (2012) [FLAC|Lossless|tracks] <Dubstep, UK Garage, Drum & Bass, Hip-Hop>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Been Gone (4:07)
- 02. Can't Spend The Day Without You (5:12)
- 03. For Real (4:48)
- 04. Genesis (5:14)(   Читать дальше...   )Жанр: Dubstep, UK Garage, Drum & Bass, Hip-HopПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032C1AE84007E36EC6E9AF3B6862419DAC7DFDED
 ```
 
 https://mybot314.ru/tekegram_catalog/

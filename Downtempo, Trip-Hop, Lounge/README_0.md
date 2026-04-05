@@ -6,7 +6,7 @@ VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160843.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Restaurant & Bar Best Ambience Music (2023) [MP3|320 Kbps] <Lounge, Chillou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160824.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Horizon In Blue (Selected Chill Out & Lounge), Vol. 1 - 4 (2023) [MP3|320 K
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156962.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Mandarin Chill Out, Vol. 2 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150501.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Mandarin Chill Out, Vol. 1 (2023) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150500.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Hotel, Bar & Restaurant Romantic Background Music (2023) [MP3|320 Kbps] <Lo
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150476.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Chill Out And Mellow, Vol. 1 (2023) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143817.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Chill Out And Mellow, Vol. 2 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downt
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143809.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Smooth Moods Chill Out, Vol. 1 (2022) [MP3|320 Kbps] <Lounge, Chill-Out, Do
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143729.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Smooth Moods Chill Out, Vol. 2 (2023) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143639.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Silent Place, Vol. 1-3 (2023) 3 x CD [MP3|320 Kbps] <Lounge, Chill Out, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125600.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Zincboy - Bizarre Book (2023) [MP3|320 Kbps] <Neo-Psychedelia, Breakbeat, Trip-H
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125576.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Igor Pumphonia - Best Of 2023 (2024) [MP3|320 Kbps] <Chillout>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123670.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Igor Pumphonia - Euphonia 60 (2023) [MP3|320 Kbps] <Chillout, Organic House>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123666.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Mandarin Chill Out, Vol. 4 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114686.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Mandarin Chill Out, Vol. 3 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114651.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Amsterdam Chillout 2025 (2025) [MP3|320 Kbps] <Chillout, Balearic, Downtemp
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112371.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Chillout Melodies of the Outgoing Summer, Vol. 1 (2021) [MP3|320 Kbps] <Lou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108955.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Chillout Melodies of the Outgoing Summer, Vol. 2 (2022) [MP3|320 Kbps] <Lou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108885.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Chillout Melodies of the Outgoing Summer, Vol. 3 (2023) [MP3|320 Kbps] <Lou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108714.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Balatonica Chillout: Summer Edition 2024 (2024) [MP3|320 Kbps] <Downtempo, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106186.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Nicky Elisabeth - The Way Of Love (2024) [MP3|320 Kbps] <Downtempo, House, Dance
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104134.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Eihwaz - AmadeuS (2012) [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Met
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102866.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - The Best Of Suanda Chillout 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100647.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Smooth Moods Chill Out, Vol. 3 (2023) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69536.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Buddha-Bar - XXVII (2025) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out, Tri
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69384.jpg" />
 </div>
 
 

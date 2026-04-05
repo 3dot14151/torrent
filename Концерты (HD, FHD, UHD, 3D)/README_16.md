@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705168.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702569.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700702.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Nightwish - End Of An Era (2005) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_700610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700610.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699419.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ ZZ Top - Stagecoach - California's Country Music Festival (2015) HDTV [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698849.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Lemonade / Beyonce: Lemonade (2016) HDTV [H.264/1080i] [EN/RU Sub]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696093.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Axel Rudi Pell - Magic Moments/25th Anniversary Special Show (2014) BDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695444.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Status Quo - Aquostic! Live At The Roundhouse (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691750.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dio - Holy Diver Live (2006) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691679.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Quiet Riot - One Night in Milan (2019) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690047.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Uriah Heep - Live At Koko (2014)  Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689485.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689389.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Hellfest Open Air (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688575.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687415.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687404.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686091.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684681.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683984.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683235.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Within Temptation / Within Temptation - Black Symphony (2008) (1080p) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680678.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Foreigner - Live at the Rainbow '78 (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680129.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676563.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Rammstein: Paris (2017) BDRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676342.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Rammstein: Paris (2017) Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676183.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [h.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673915.jpg" />
 </div>
 
 

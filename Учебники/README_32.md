@@ -1,3 +1,57 @@
+###  Публикация: 650891   (747626) от 13.01.2022
+
+С.С. Молчанов | Бухгалтерский учет за 14 дней. Экспресс-курс [2013] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами уникальное учебное пособие (три в одном), которое позволит освоить вам бухгалтерский учет в кратчайшие сроки и с удовольствием! Здесь вы найдете курс из 14 лекций, содержащий более 200 наглядных и занимательных примеров 100 задач с ответами и даже чистые страницы для своих записей и решений.
+Во втором издании книги все продумано до мелочей, чтобы вам было (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E07D59247A753F4226B7E45B8040C6781A4ECF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019917   (746610) от 25.05.2016
+
+С. А. Лобзин | Электротехника. Лабораторный практикум (2010) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие предназначено для изучения предмета "Электротехника" и является частью учебно-методического комплекта по дисциплинам общепрофессионального цикла для технических специальностей.
+Приведены описания лабораторных работ. Дана подробная информация о необходимом лабораторном оборудовании, применительно к которому составлены описания. Порядок выполнения (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A4B9F25199C684E73FD557460A81F0BC973D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019643   (746600) от 25.05.2016
 
 О.С. Комаров (ред.) | Материаловедение и технология конструкционных материалов (2009) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746600.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746344.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745312.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745250.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745238.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743567.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743550.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742341.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742238.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742147.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742048.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742025.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741953.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740742.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740128.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740120.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740113.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739607.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739601.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739561.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739557.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739529.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738735.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738709.jpg" />
 </div>
 
 
@@ -623,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D155CF47A416E20E11A0050C1EC2B68E627EF24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527031   (737337) от 27.01.2022
-
-Дороговцев А.Я. | Математический анализ. Справочное пособие (1985) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит краткое и вместе с тем достаточно полное по охвату материала изложение современного курса математического анализа. Она рассчитана в первую очередь на студентов университетов и технических вузов и предназначена для первоначального изучения курса. Приведено модернизированное изложение ряда разделов: функции многих переменных, кратные интегралы, интегралы (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17F08462CB2F637FC43FDDB80098111EFA42C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527033   (737325) от 27.01.2022
-
-Ефимов А.В. и др.| Математический анализ (специальные разделы) [2 книги] (1980) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737325.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первой части пособия излагаются основные понятия комплексных чисел; теории функций комплексной переменной; числовые, общие функциональные и степенные ряды в комплексной области; общие ортогональные и тригонометрические ряды Фурье; теория вычетов и операционное исчисление.
-Во второй части пособия рассматриваются основы векторного анализа, вариационного исчисления, (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CDEE9A4A6FA242087B1E02151F21C22E791B0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

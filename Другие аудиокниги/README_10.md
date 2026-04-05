@@ -1,3 +1,55 @@
+###  Публикация: 1201373   (792779) от 24.01.2018
+
+Софья Толстая | Чья вина (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792779.jpg" />
+</div>
+
+
+###  Подробнее
+
+«…Я сама в сердце своем почувствовала, что эта повесть направлена в меня, что она сразу нанесла мне рану, унизила меня в глазах всего мира и разрушила последнюю любовь между нами», пишет Софья Толстая о «Крейцеровой сонате» в своем дневнике зимой 1891 года. Выдающееся событие в литературной жизни 80-х годов XIX столетия, «Крейцерова соната» демонстрирует на примере (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 04:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7875A4EDD38A4FCB723CA9B5989BBFE94493BEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387055   (792429) от 31.05.2020
+
+Питер Эшер | The Beatles от A до Z: необычное путешествие в наследие «ливерпульской четверки» (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский писатель, продюсер и музыкант Питер Эшер рассказывает историю «Битлз» через песни: их собственные, их коллег, предшественников и последователей. Для этого он использует классическую алфавитную систему, однако применяет ее неожиданным образом. К примеру, вы не встретите известнейших «Yesterday» на букву Y или «All you need is love» на букву A, вместо этого (   Читать дальше...   )Жанр: Зарубежная литература о культуре и искусстве, МузыкаПродолжительность: 08:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC0403957AB58DD44A848160517273F313EBD18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387288   (791184) от 02.06.2020
 
 Михаил Зощенко и др. | Литературный аудиопроект «Глубина» [выпуск 28] (2020) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791184.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790051.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788154.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788092.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788067.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787380.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786146.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786104.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785139.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784745.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782112.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780818.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778315.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777789.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777308.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777304.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776405.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776068.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774130.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774110.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773382.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772972.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769636.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769553.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4BE0E0B283322CAC0E7A26D09C3D7FAA11BBC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016696   (769515) от 15.05.2016
-
-Андрей Воронин | Последний самурай (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читатель снова встретится с любимым героем серии «Инструктор» – бывшим капитаном отряда специального назначения ГРУ Илларионом Забродовым. Инструктор выдвигает свою, совершенно неожиданную версию событий 11 сентября в Америке. Он отправляется на японские острова и расследует новое запутанное дело.Жанр: БоевикПродолжительность: 14:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07919D10BBDD8E703350BF85D5D93FE28F7162A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125164   (768680) от 14.04.2017
-
-Владимир Мегре | Пространство Любви (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг объединена общей сюжетной линией; повествование ведётся от лица автора. Главной героиней является Анастасия — женщина, живущая в сибирской тайге. Все основополагающие идеи книг изложены от её лица. Основной идеей книг является идея создания «родовых поместий». В книге «Пространство Любви» Мегре едет снова к Анастасии, где встречает своего ребёнка и знакомится (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 08:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277D598C523AF6BCCD7DA23B27790C41A2110CF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

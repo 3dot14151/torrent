@@ -1,3 +1,58 @@
+###  Публикация: 1415404   (377973) от 11.10.2020
+
+[javascript.ru] Игорь Непипенко | Курс по Angular (2020) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот онлайн-курс посвящён профессиональной разработке веб-приложений с помощью Angular.
+Цели курса:
+- быстро и качественно начать создавать приложения с использованием современного Angular.
+- отлаживать уже существующие приложения и проводить их улучшение.(   Читать дальше...   )Производство: javascript.ruЖанр: ПрограммированиеПродолжительность: 21:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4946934D3EAABCCA28C977407D7E006D30F95DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098282   (377967) от 11.10.2020
+
+Resident Evil 6 (2013) [Ru/En] (1.1.0/dlc) Repack Other s [Complete Pack]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377967.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Resident Evil 6» — это потрясающая смесь экшена и хоррора, которая обещает стать самым сильным произведением в жанре ужасов 2013 года. К любимцам серии «Resident Evil» Леону Кеннеди, Крису Редфилду и Аде Вонг присоединяются новые герои, включая Джейка Мюллера. Им придется столкнуться с новым кошмаром — опаснейшим вирусом C, а также побывать в Северной Америке, восточноевропейской (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C90D73718303C5036F08B6C82A2B32562F8D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415203   (377963) от 11.10.2020
 
 Книги крови / Books of Blood (2020) WEB-DL [H.264/1080p-LQ] [MVO]
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377963.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377911.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377909.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ FL Studio Producer Edition 12.5.1.5 (build 5) Signature Bundle [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377905.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377549.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377465.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377464.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377067.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v15.1 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376750.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ Nero 2019 Platinum 20.0.04600 Full RePack by Vahe-91 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376743.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ Kubuntu 15.10 Wily Werewolf (KDE 5.x) [x86, amd64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376582.jpg" />
 </div>
 
 
@@ -304,7 +359,7 @@ Topaz Gigapixel AI 6.2.1 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376481.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ Ubuntu 15.10 "Wily Werewolf" [i386/amd64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376396.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376393.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376388.jpg" />
 </div>
 
 
@@ -409,7 +464,7 @@ Assassin's Creed: Revelations (2011) [Ru] (1.03/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376385.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376384.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_376296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_376296.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_376061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_376061.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376047.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ PES 2018 / Pro Evolution Soccer 2018 (2017) [Ru/En] (1.0.1.02/dlc) Repack R.G. �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375699.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375073.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374993.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374777.jpg" />
 </div>
 
 
@@ -630,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45AF067F5EA8C6F9E4F3F8BD5928B431DD9A92AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574377   (374678) от 10.09.2022
-
-Земля. Перезагрузка / Chong qi di qiu (2021) WEB-DL [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за климатических изменений земля начинает превращаться в огромную пустыню. Чтобы избежать глобальной катастрофы ведущие учёные разрабатывают препарат, способствующий ускоренному размножению растительных клеток, не подозревая что превращают безобидные растения в опасных хищников.Производство: КитайЖанр: фантастика, боевикРежиссер: Линь ЧжэньчжаоАктеры: Мики Хэ, Чжан Минцань, Ло Ми, Мишель Е, Юй Жунгуан, Ли Нин, Номэнь Ээрдэни, Ли ЖосиПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C8DA0E59AEE4E5CECEA5944FB34B14C2C23655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575203   (374677) от 10.09.2022
-
-Тор: Любовь и гром / Thor: Love and Thunder (2022) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейн Фостер берет на себя обязанности Бога-громовержца и становится обладательницей молота Мьёльнира.Производство: Австралия, США, Fox Studios Australia, Marvel Studios Inc., Walt Disney PicturesЖанр: фантастика, фэнтези, боевик, мелодрама, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Натали Портман, Кристиан Бэйл, Тесса Томпсон, Тайка Вайтити,  Рассел Кроу, Джейми Александер, Крис Пратт, Дэйв Батиста, Карен ГилланПеревод: Многоголосый профессиональный (NewComers)Субтитры: Русские, АнглийскиеПродолжительность: 01:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9BC37CDCE817A53E13A84F78C3456ECD884CED
 ```
 
 https://mybot314.ru/tekegram_catalog/

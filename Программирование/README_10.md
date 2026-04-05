@@ -1,84 +1,3 @@
-###  Публикация: 1107445   (867246) от 22.02.2017
-
-Алан Торн | Искусство создания сценариев в Unity (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867246.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Это простое и доступное руководство, в котором вы найдете полезные советы и современные приемы программирования игр на C# в Unity. Десять исчерпывающих глав книги содержат практические и наглядные примеры творческого подхода к программированию на C# и созданию коммерчески успешных игр профессионального уровня.
-
-Благодарность за предоставленный в открытый (   Читать дальше...   )Жанр: Языки и системы программированияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3BBE9161A5B0B1FEBE7AE8C775AC0B6441AC119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100708   (865457) от 23.02.2017
-
-Р. Митчелл | Скрапинг веб-сайтов с помощью Python (2016) [PDF]
-
->>След.
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите методы скрапинга и краулинга веб-сайтов, чтобы получить доступ к неограниченному объему данных в любом уголке Интернета в любом формате. С помощью этого практического руководства вы узнаете, как использовать скрипты Python и веб-API, чтобы одновременно собрать и обработать данные с тысяч или даже миллионов веб-страниц.
-Идеально подходящая для программистов, (   Читать дальше...   )Жанр: Программирование на PythonФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484A87BBE08541CF675A9DFC599ED09EA584D668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999219   (863837) от 22.03.2016
-
-Д.Н. Колисниченко | Программирование для Android 5. Самоучитель (2015) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены все основные аспекты создания приложений для платформы Android 5 (API 21): установка необходимого программного обеспечения (JDK, Eclipse и Android SDK), использование эмулятора Android, создание интерфейса пользователя, работа с графикой, воспроизведение звука и видео, методы хранения данных (в том числе СУБД SQLite), взаимодействие с аппаратными средствами (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F146F254CC10830234DD022F05B774F556D65919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998566   (863828) от 22.03.2016
 
 Эрик Гамма и др. | Приемы объектно-ориентированного проектирования (2015) [PDF, EPUB]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863828.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863827.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861776.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858628.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854974.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851264.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850901.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849680.jpg" />
 </div>
 
 
@@ -299,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846006.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845698.jpg" />
 </div>
 
 
@@ -351,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842457.jpg" />
 </div>
 
 
@@ -377,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842456.jpg" />
 </div>
 
 
@@ -404,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840864.jpg" />
 </div>
 
 
@@ -430,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838838.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837602.jpg" />
 </div>
 
 
@@ -483,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837589.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837485.jpg" />
 </div>
 
 
@@ -537,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837243.jpg" />
 </div>
 
 
@@ -563,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835705.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835624.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833209.jpg" />
 </div>
 
 
@@ -643,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833095.jpg" />
 </div>
 
 
@@ -671,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_833074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_833074.jpg" />
 </div>
 
 
@@ -682,6 +601,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8189DD5BE2FA4EA402020A77F603F3AED35896E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501896   (831663) от 12.10.2021
+
+Нинчуань Сяо | Алгоритмы ГИС. Теория и применение геоинформационных систем и технологий (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теория и применение геоинформационных систем и технологий
+
+Географические информационные системы (ГИС) приобретают все большее значение, помогая нам понять сложную социальную, экономическую и природную динамику в ситуациях, где ключевую роль играют пространственные компоненты. Однако фундаментальные алгоритмы, применяемые в ГИС, трудны для понимания и преподавания, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. А. СлинкинФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B7F8863374DCCD1C4DE2EDF77DCC0A477065A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113810   (831477) от 15.03.2017
+
+В. Потопахин | Романтика искусственного интеллекта (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о том, чем занимаются специалисты по искусственному интеллекту. О том, в решении каких задач умные машины уже заменили человека, и какие интеллектуальные технологии могут появится в обозримом будущем. О том может ли машина, стать равноценным партнером человека или даже превзойти его? Насколько реальна возможность бунта машин, так любимого писателями-фантастами? (   Читать дальше...   )Жанр: Программирование, Искусственный интелектФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7381F8B7033CC701B81AC2E7DCAD7BEF359C360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113839   (831378) от 15.03.2017
+
+Мэтт Фрисби | Сборник рецептов Angular 2 (2017) [PDF, EPUB] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831378.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора бестселлера AngularJS Web Application Development Cookbook, Angular 2 Cookbook - это новейшее издание серии Packt's Angular Сookbook.
+
+Особенности книги:
+— Более 70 обширных примеров: каждый рецепт предлагает вам стратегии для решения каждой проблемы в Angular 2.(   Читать дальше...   )Жанр: Веб-разработкаФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A09C0FD4FF9AE350DE8956DF86923C4FEEE44CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213234.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213231.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212994.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212984.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212823.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211298.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210750.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210154.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210103.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210022.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209680.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208204.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Lectera, Lectera | Аналитическое мышление (2025) WEB-DL [RU
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202405.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Skillbox, Николь Шахбазян, Динара Фахретдинова |
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201843.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201112.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200992.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200952.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200929.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200914.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200912.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200909.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200888.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200840.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Proprofiling, Алексей Филатов | Социальная инжене�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200803.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200745.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200365.jpg" />
 </div>
 
 

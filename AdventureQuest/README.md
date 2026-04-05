@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1862772   (1063584) от 
+
+The Mortuary Assistant (2022) [Ru/Multi] (3.0.2) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мрачная атмосфера в The Mortuary Assistant погружает в деятельность сотрудника морга, занимающегося рутинной работой. Главный герой прибывает на представленную должность в Ривер Филдс, чтобы обучаться и получать трудовой опыт. Наставником выступает человек по имени Морттик, который помогает разобраться в тонкостях повседневных задач и рассказывает про правильное (   Читать дальше...   )Тип издания: RepackРазработчик: DarkStone DigitalЖанр: Приключенческие игры, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F28CB4255970C23BA887FD205C8F6B66DA2432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862271   (1063248) от 
+
+Tormented Souls II (2) (2025) [Ru/Multi] (1.4.3/dlc) License GOG [Digital Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение известного хоррора на выживание! После кошмарных событий в клинике Вайлдбергер Каролина Уокер надеется, что ее сестра Анна сможет вернуться к нормальной жизни. Но в последующие месяцы Анну начинают преследовать видения, полные насилия и смерти. Под их влиянием она создает зловещие рисунки, которые быстро воплощаются в ужасающую реальность.Тип издания: LicenseРазработчик: Dual EffectЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA67D0C495D79159DC744A82AF5C969E4255A9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862373   (1063157) от 
+
+Hail to the Rainbow (2025) [Ru/Multi] (0.51) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063157.jpg" />
+</div>
+
+
+###  Подробнее
+
+История одинокого юноши по имени Игнат, выживающего в опасном и мрачном мире постапокалиптичного киберпанка. Немногим уцелевшим после трагичных военных событий пришлось адаптироваться к новым условиям существования. Потерявший своих родителей Игнат, сумел в одиночку выстроить свой быт и многому научился в этой новой реальности. Однако, жизнь главного героя, уже ставшая (   Читать дальше...   )Тип издания: LicenseРазработчик: Носков СергейЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76B90A4BA4F012B13D9FB159B3770F36A149951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862002   (1063061) от 
 
 Marshmallow All the Way Home (2025) [Multi] (1.0.0/dlc) License GOG [18+]
@@ -7,7 +85,7 @@ Marshmallow All the Way Home (2025) [Multi] (1.0.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063061.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Total Chaos (2025) [Ru/Multi] (1.0.231) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063060.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20220419/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062270.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (1.1.0.15) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061710.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Umigari (2026) [Ru/Multi] (1.6.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061115.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Millennium Dream (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060797.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Legends of Savvarah: Flowers and Scorpions (2026) [Ru/En] (Build 21632093) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060786.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (3.0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060684.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Out of Sight (2025) [Ru/Multi] (1.1.93/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060682.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ The Green Light (2026) [Ru/Multi] (0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060677.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ The Green Light (2026) [Ru/Multi] (0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060676.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.0/dlc) Repack dixen18 [Digital Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060606.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Log.in (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060139.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Choice of Life: Samosbor (2025) [Ru/Multi] (Build 21269692) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060136.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Onirism (2025) [Ru/Multi] (Build 2213289) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059989.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059986.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059985.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack sel
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059983.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Neva (2024) [Ru/Multi] (Build 21964472/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059980.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Roots Devour (2026) [Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059840.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ The Last Express (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059733.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Children Of Morta (2019) [Ru/Multi] (1.3.376/dlc) Repack FitGirl [Complete Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059731.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.2.2) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059730.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Bendy and the Ink Machine – это игра-головоломка от пер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203BDD85FC6E5A9CCC4C1935C644A3C159D59F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857512   (1059720) от 06.03.2026
-
-SOMA (2015) [Ru/Multi] (Build 20049349) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059720.jpg" />
-</div>
-
-
-###  Подробнее
-
-SOMA - научно-фантастический хоррор от Frictional Games, авторов Amnesia. Игра погружает игрока в тревожную историю о личности, сознании и человечности на полуразрушенной подводной станции, где роботы начинают считать себя людьми. Геймплей сочетает исследование, решение головоломок и скрытное перемещение, чтобы выжить и разгадать тайны станции.Тип издания: RepackРазработчик: Frictional GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDAB59613B8FA5156336723D68CE9EDD7601B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857499   (1059717) от 06.03.2026
-
-The Last Express (2013) [Multi] (1.0) License GOG [Gold Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сядьте в вагон «Восточного экспресса» 1914 года в этой отмеченной наградами приключенческой игре от создателя «Принца Персии» Джордана Мехнера. Описанная как одна из лучших приключенческих игр всех времён, «Последний экспресс» - это полное интриг приключение, действие которого разворачивается на борту роскошного «Восточного экспресса».Тип издания: LicenseРазработчик: DotEmuЖанр: Приключенческие игрыЯзык озвучки: Английский, Немецкий, Французский, Итальянский и другиеЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDF6C1F34BFCF891668563A1A0ED0681C239D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857082   (1059378) от 04.03.2026
-
-Survivalist: Invisible Strain (2020) [Ru/Multi] (269) Repack Pioneer
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет назад людей начала косить болезнь. Поселения, которые продержались все это время, по неясным причинам начинают рушиться одно за другим. Выжившие бегут от новой опасности. Вы - один из них, и вам предстоит найти свой путь в жизни… любой ценой. Survivalist: Invisible Strain - симулятор управления колонией в открытом мире, действие которого происходит в зомби-апокалипсисе, (   Читать дальше...   )Тип издания: RepackРазработчик: BobЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CED0AE995FA8F8CAC359717BF6C9564E1B9D9A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

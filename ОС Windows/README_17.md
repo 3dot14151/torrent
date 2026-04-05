@@ -1,3 +1,31 @@
+###  Публикация: 1305371   (556764) от 30.05.2019
+
+Языковые пакеты (Language packs) для Windows 10 Version 1903/1909 x86-x64 [Multi/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор языковых пакетов для Windows 10 10.0.18362/10.0.18363 Version 1903/1909 для интеграции с помощью утилиты DISM ( среды средств развертывания и работы с образами)
+
+Так же важно отметить, что ADK(WAIK) не будет выпущен отдельно для 1909. Microsoft уведомляет, что необходимо использовать ADK(WAIK) версии 1903.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4E3C7B8CECA30DE870BF35C98A6F37CF494B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153935   (556640) от 28.07.2017
 
 Microsoft Windows 10 10.0.15063.483 Version 1703 (Updated July 2017) - Оригинальные образы от Microsoft VLSC [Ru]
@@ -6,7 +34,7 @@ Microsoft Windows 10 10.0.15063.483 Version 1703 (Updated July 2017) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556640.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Windows 10 (74in2) Sergei Strelec x86/x64 1809 (build 17763.557) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553872.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ Windows 7 SP1 Ultimate (x86&x64) [Updates V.12] by YelloSOFT [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552092.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Windows 1.0 - 3.2 [Multi/Ru]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550716.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ Windows 8.1 RTM x64 x86 by WZOR [English]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544300.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ Windows 8.1 RTM x86 by WZOR [Russian]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544290.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ Windows 8.1 x86-х64 Single Language by WZT [Russian + English]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541661.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ Microsoft Windows 7 Professional N with SP1 (Updated 12.05.2011) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532863.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ Microsoft Windows 10.0.19043.1766, Version 21H1 (Updated June 2022) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528598.jpg" />
 </div>
 
 
@@ -249,7 +277,7 @@ Microsoft Windows 10.0.19044.1766, Version 21H2 (Updated June 2022)  - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528584.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ Windows Server, Version 20H2 (10.0.19042.1766) (Updated June 2022) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527673.jpg" />
 </div>
 
 
@@ -304,7 +332,7 @@ Microsoft Windows 11 [10.0.22000.739], Version 21H2 (Updated June 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527617.jpg" />
 </div>
 
 
@@ -330,7 +358,7 @@ Recovery USB-flash for Acer Aspire V5-132P / Windows 8 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527123.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ Windows 8 - Оригинальные образы от Microsoft MSDN (Russian)
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525778.jpg" />
 </div>
 
 
@@ -385,7 +413,7 @@ Microsoft Windows 7 - Оригинальные образы от Microsoft MSDN 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525777.jpg" />
 </div>
 
 
@@ -413,7 +441,7 @@ Recovery DVD for Samsung 300V4A / Windows 7 Home Basic (х64) SP1 [русски�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517471.jpg" />
 </div>
 
 
@@ -447,7 +475,7 @@ Microsoft Windows 10.0.18362.239 Version 1903 (July Update 2019) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514621.jpg" />
 </div>
 
 
@@ -475,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512495.jpg" />
 </div>
 
 
@@ -501,7 +529,7 @@ Recovery USB-flash for Acer Aspire E5-521 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509851.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ Recovery USB-flash for Asus T100TAM / Windows 8.1 with Bing (х86) 6.3 (сбор
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508803.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ Recovery USB-flash for Acer One 10 S1002 / Windows 8.1 (х86) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508762.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ Microsoft Windows Server 2012 (Volume) + Языковые пакеты (x64) [Ru
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502968.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ Windows 7 Professional VL SP1 x86 (build 6.1.7601.26022) by ivandubskoj 14.07.20
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500262.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ Microsoft Windows 10.0.19043.1826, Version 21H1 (Updated July 2022) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499588.jpg" />
 </div>
 
 
@@ -669,7 +697,7 @@ Microsoft Windows 10.0.19043.1826, Version 21H1 (Updated July 2022) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499516.jpg" />
 </div>
 
 
@@ -683,32 +711,6 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26A3D1F07326FEF40F266A694164E49943E38D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564656   (499270) от 19.07.2022
-
-Windows Server, Version 20H2 (10.0.19042.1826) (Updated July 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0D75096131CA4EEFBFBB3BF3ABBE53A980B865
 ```
 
 https://mybot314.ru/tekegram_catalog/

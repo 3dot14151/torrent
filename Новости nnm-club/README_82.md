@@ -1,3 +1,29 @@
+###  Публикация: 1391109   (781339) от 19.06.2020
+
+Русалка на суше / Mermaid Down (2019) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781339.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русалок замечали в этих водах на протяжении многих сотен лет. Они выглядывают посмотреть: любопытство побеждает разум. Может, они и правда существуют?» — такие разговоры ведут рыбаки на шхуне в Тихом океане и отправляются на охоту. И охота оказывается удачной… В их сети попадает русалка, и они решают отрубить ей хвост, перевезти и запереть в психушке. Хорошее место (   Читать дальше...   )Производство: США / Grellman Film, Heartpine Pictures, Mermaid DownЖанр: Ужасы, фэнтези, триллер, детективРежиссер: Джеффри ГреллманАктеры: Александра Бокова, Меган Тереза Риппи, Филлип Андре Ботельо, Эрин Ри, Берт Калвер, Кэролайн Бэмфорд, Джессика Хонор Карлтон, Эшли Корделия, Мишель Галлахер, Мелисса ЛугоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (на надписи), английские (Full, SDH)Продолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7425945B2E6A377BE7E2EEB4D81EF82F7BB33805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207002   (781108) от 16.02.2018
 
 Photodex ProShow Producer 9.0.3793 RePack (& portable) by KpoJIuK + Effects Pack 7.0  [Ru/En]
@@ -6,7 +32,7 @@ Photodex ProShow Producer 9.0.3793 RePack (& portable) by KpoJIuK + Effects Pack
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781108.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781046.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780921.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780683.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ H2O: Просто добавь воды / H2O: Just Add Water (полный 3 С
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780621.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780440.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780353.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Win 10 Tweaker 5.6 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780335.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Adobe Photoshop CC 2018 19.1.1 (x64) RePack by JFK2005 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780316.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ MAGIX Vegas Pro 15.0 Build 311 RePack by KpoJIuK  [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780160.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780139.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Red Giant Magic Bullet Suite 13.0.6 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780135.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) Repack Other s [Deluxe Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780134.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780033.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_779862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_779862.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779714.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_779710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_779710.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779693.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Daum PotPlayer 1.7.8557 Stable RePack (& portable) by 7sh3 (20.02.2018) [Multi/R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779559.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779546.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 23.02.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779423.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779417.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779413.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Win 10 Tweaker 7.0 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779313.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779310.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ XIII век. Русь раздроблена и вот-вот падет на к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:673F670AE7A1578306E69FF60B35978D370F0AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209550   (779211) от 27.02.2018
-
-Российские разработчики выпустили AR-приложение для создания голографических экскурсий
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики из России выпустили приложение MR Guide, которое позволяет любому желающему, не обладающему навыками программирования, создавать собственные голографические экскурсии и туры на очках дополненной реальности HoloLens. Конструктор позволяет интегрировать в AR-пространство любой цифровой контент, включая 360-градусные видео, фотографии, 3D-модели, текст (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

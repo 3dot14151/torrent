@@ -1,133 +1,3 @@
-###  Публикация: 1180460   (339515) от 04.11.2017
-
-Элла Берту, Сьюзен Элдеркин | Книга как лекарство. Скорая литературная помощь от А до Я (2016) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно известно, что в трудные минуты жизни люди тянутся к книге – чтобы отвлечься от тягостных мыслей или получить разумный совет. Британские «библиотерапевты» Э. Берту и С. Элдеркин пошли еще дальше, предположив, что чтением можно лечить не только душу, но и тело. Они составили своеобразный «литературный лечебник», из которого читатель узнает, какие именно книги (   Читать дальше...   )Жанр: Образовательная литература, ЯзыкознаниеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7729BF38578FFCC81E27306C8478CA8EAFB4FFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180451   (339510) от 04.11.2017
-
-Александр Молчанов | Сценарий телесериала. Книга-тренинг (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами трехмесячный курс по написанию сценария сериала. Если вы еженедельно будете выполнять задания, которые найдете в конце каждой главы, через три месяца пилотный сценарий вашего телесериала будет готов. Единственное условие – серьезно относиться к тому, что будете узнавать на каждом уроке, и сразу использовать полученные знания в своей работе. Цель книги (   Читать дальше...   )Жанр: КинематографФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B121E7E0BF3AD4FB66F613A03DB018D94FDADA14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180454   (339506) от 04.11.2017
-
-Лоран Тирар | Профессия режиссер. Мастер-классы (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все великие режиссеры обладают своими секретами, и каждый из них – уникален. Сценарист и режиссер Лоран Тирар собрал в своей книге уникальные интервью самых известных режиссеров: Вуди Аллена, Дэвида Кроненберга, братьев Коэн, Тима Бертона и многих других. Выдающиеся мастера рассуждают о практических аспектах фильмопроизводства и делятся с читателями тайнами закулисья.Жанр: КинематографФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7C460B273AF776BE88504D0BE93527E2F6C982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180505   (339504) от 04.11.2017
-
-Подборка | Схемы и сервис-мануалы популярных автомагнитол (2006) [PDF] [En]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Схемы и сервис-мануалы автомагнитол таких фирм как: ACURA, AUDI, HINO, HONDAGM, FIAT, FORD, LEXUS, MAZDA, MITSUBISHI, NISSAN, PORSCHE ,RENAULT, SAAB, SEAT, SUBARU, TOYOTA, OPEL, BMW, CITROEN, DAIHATSU, VW.Жанр: АудиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750EA337B22F8BDD6FE4A0B7857ACDDEC3780393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180456   (339403) от 04.11.2017
-
-Сид Филд | Киносценарий: основы написания (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сид Филд – всемирно известный сценарист, продюсер, педагог, преподаватель и автор нескольких бестселлеров, переведенных на многие языки мира. Его книги используются в качестве учебного материала в более чем 400 колледжах и университетах США. Филд стал первым представителем Ассоциации американских сценаристов, имя которого упоминается в Зале славы сценарного искусства. (   Читать дальше...   )Жанр: КинематографФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3898B0C658AE38957140B82886BE70B9881B881D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419566   (339342) от 28.10.2020
 
 Сергей Волох | ПДД РФ 2020 с пояснениями и комментариями (2020) [FB2]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339342.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338858.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338754.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338746.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338698.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338681.jpg" />
 </div>
 
 
@@ -293,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338599.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338440.jpg" />
 </div>
 
 
@@ -350,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338437.jpg" />
 </div>
 
 
@@ -379,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338434.jpg" />
 </div>
 
 
@@ -406,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338433.jpg" />
 </div>
 
 
@@ -432,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338431.jpg" />
 </div>
 
 
@@ -459,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338307.jpg" />
 </div>
 
 
@@ -488,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338304.jpg" />
 </div>
 
 
@@ -515,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338302.jpg" />
 </div>
 
 
@@ -544,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338291.jpg" />
 </div>
 
 
@@ -573,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338197.jpg" />
 </div>
 
 
@@ -600,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338187.jpg" />
 </div>
 
 
@@ -626,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_338045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338045.jpg" />
 </div>
 
 
@@ -652,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338010.jpg" />
 </div>
 
 
@@ -678,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338007.jpg" />
 </div>
 
 
@@ -689,6 +559,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7CE3244EBDAA99BEF9D2FDB82E1CEC7F733CC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073999   (337876) от 19.11.2016
+
+А. Меркурьева (ред.) | Штрафы и другие санкции для водителей, пассажиров и пешеходов со всеми последними изменениями на 2017 год (2017) [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337876.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены штрафы и другие санкции за административные правонарушения в области дорожного движения. Таблица штрафов и санкций составлена с учетом последних изменений, введенных федеральными законами.
+Эта брошюра придаст вам уверенности при общении с инспектором ГИБДД и, кроме того, предостережет от нарушения Правил дорожного движенияЖанр: Автомобили и ПДД, Справочная литература, Нормативные правовые актыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3F3653C19D2B6999637E4D7B2C4C949A10DB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074468   (337865) от 19.11.2016
+
+Илья Леенсон | Язык химии. Этимология химических названий (2017) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку химия лежит в основе всего сущего, мы так или иначе сталкиваемся с ней каждый день. Мы слушаем рекомендации врачей, читаем инструкции к лекарствам, участвуем в дискуссиях о пользе или вреде продуктов питания, подбираем себе средства косметического ухода и т. д. И чем лучше мы ориентируемся в химической терминологии, тем увереннее чувствуем себя в современном (   Читать дальше...   )Жанр: ХимияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1E5BE8728304CEBBC4CBD75EAA7DD32E0AAF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180803   (337648) от 05.11.2017
+
+Михаил Елисеев | Войны Митридата (2016) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Митридат VI Евпатор, правитель Понта и создатель Черноморской державы, был последним великим царём эллинистического мира, который с оружием в руках встал на пути агрессивных устремлений Римской республики. С детства возненавидев это волчье племя, Митридат пронёс ненависть к Риму через всю свою жизнь и до последнего дня мечтал о победе над лютым врагом. Три войны, (   Читать дальше...   )Жанр: Военная история, Древние цивилизацииФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41A2F8D300D04007FECD804CB8B30E93C8FCCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954849   (337640) от 09.11.2015
+
+М. Ю. Белят | Никарагуа: портрет в черно-красных тонах (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой живой рассказ о Никарагуа, ее людях, ее революции,  написанный в жанре художественной публицистики.
+
+Какая она, антиимпериалистическая народная сандинистская революция? Кто такой  Аугусто Сандино? Как пришел к власти в Никарагуа клан Сомосы? Кто возглавил  борьбу против диктатуры? Каково реальное наполнение этого слова — (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57D6FED52DB6E44D842E5EE92937FF36C334FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954957   (337634) от 09.11.2015
+
+Н. Загорский | Обнищание рабочего класса в капиталистических странах (1933) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краткое содержание книги: обострение обнищания в связи с превращением промышленной резервной армии в постоянную армию безработных; положение рабочего класса и движение заработной платы до мирового экономического кризиса; обнищание рабочего класса в ходе мирового экономического кризиса.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0AB4D471D878BA0BC82B287BAF8CC39FF60640
 ```
 
 https://mybot314.ru/tekegram_catalog/

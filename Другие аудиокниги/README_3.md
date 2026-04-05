@@ -1,3 +1,55 @@
+###  Публикация: 1358019   (970566) от 06.02.2020
+
+Акутагава Рюноскэ, и др. | Глубина. Погружение 24-е (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970566.jpg" />
+</div>
+
+
+###  Подробнее
+
+ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!Жанр: PазноеПродолжительность: 06:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E3BE1994A1568F18F2ADEB3178BE7F852E73DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976847   (968710) от 18.01.2016
+
+Андрей Воронин | Без единого выстрела (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968710.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге вы снова встретитесь с бывшим офицером спецназа Илларионом Забродовым, который никогда не нападает первым, но, если почуял врага, бьет без промаха. Бывший инструктор спецназа проводит собственное расследование в недрах самой секретной и самой могущественной организации – Федеральной службы безопасности. Ему удается распутать клубок противоречий и загадок (   Читать дальше...   )Жанр: БоевикПродолжительность: 12:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883DBCFB10B45C9E51D9AEB1B4EC3D3878A502A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976218   (967826) от 19.01.2016
 
 Викентий Вересаев | Живая жизнь (2015) [MP3, Юрий Оборотов]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967826.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967824.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965057.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964559.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962990.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962528.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961891.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961846.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960956.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959882.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959398.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959305.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958577.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958358.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958300.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958148.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958086.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957067.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956232.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954433.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952899.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952589.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951602.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951589.jpg" />
 </div>
 
 
@@ -629,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:550C5552439E2EDD3B3808D728AA2384CDEF65F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981336   (951584) от 01.02.2016
-
-Рами Юдовин | Ветер в ладонях. Возвращение (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение книги "Ветер в ладонях".
-В руки главы могущественной религиозной организации попадают уникальные материалы, свидетельствующие о посещении планеты неопознанными летающими объектами. Председатель собирает представителей мировых конфессий обсудить волнующую тему. Религиозные авторитеты начинают поиск свидетеля встречи с "иными" - Странника.Жанр: Роман-притча, мистика, приключенияПродолжительность: 05:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C7EA3087107DDD21D55DA1B6442CEBE455191E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981001   (951541) от 01.02.2016
-
-Абель Поссе | Райские псы (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951541.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Райские псы» — история двух гениальных юнцов, соединенных всепоглощающей страстью, — Католических королей Фердинанда и Изабеллы. Они — центр авантюры, главную роль в которой сыграл неистовый первооткрыватель новых земель Христофор Колумб. Иудей и католик, герой и работорговец, пророк и алчный искатель золота, он воплощает все противоречия, свойственные западному (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 10:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E83934C481932517FC892046976AB7211BC7ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

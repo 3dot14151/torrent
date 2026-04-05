@@ -6,7 +6,7 @@ Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524473.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brian Lynch Big Band - The Omni-American Book Club: My Journey Through Literatur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524417.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Leaders - Mudfoot (1986) /Bellaphon/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524130.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ George Wein And The Storyville Sextet - Metronome Presents Jazz At The Modern (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524129.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gene Ammons - Brasswind (1974) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Soul Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524128.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chet Baker - Chet In Paris: The Complete Barclay Recordings Of Chet Baker (1955-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524119.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wayne Shorter - Super Nova (1969) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524110.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dave Stryker - Eight Track III (2019) Strikezone Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523759.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Matthieu Bore - Fats Domino's True Spirit (2001) [FLAC|Lossless|image + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523755.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Illinois Jacquet - The Illinois Jacquet Story: Groovin' (1944 - 1951) 2002, Prop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523705.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Romain Pilon - Copper (2018) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523702.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jimmy Smith - The Classic Verve Albums Collection (1962 - 1964) 4CD, 2019, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523543.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jazz Sabbath - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523490.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Reinhard Flatischler - Schinore (1987) /Puls Productions/[APE|tracks+.cue]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523343.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Charlie Rouse - Epistrophy (1988) /1997, 32 Jazz/[FLAC|tracks+.cue]<Jazz, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523340.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Alune Wade & Harold Lopez-Nussa - Havana -Paris- Dakar (2015) [FLAC|tracks|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523339.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Concerto for Jazz Band & Symphony Orchestra - Liebermann, Stravinsky, Ellington 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523338.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Errol Rackipov Group - Distant Dreams (2017) OA2 Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523033.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Geof Bradfield - African Flowers (2010) Origin Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523031.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Avishai Cohen - Big Vicious (2020) [FLAC|Lossless|tracks + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522697.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Steve Smith & Vital Information - Fiafiaga (Celebration) (1988) /Columbia/ [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522575.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Gabriele Mirabassi, Nando Di Modugno, Pierluigi Balducci - Amori Sospesi (2015) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522574.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Peter Erskine - Peter Erskine (1982) /1988, Contemporary Records/ [FLAC|image+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522550.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Fortadelis - The New Batch (2015) [FLAC|Lossless|WEB-DL]<Nu Jazz, Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522548.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Iain Mackenzie - Blow Your Horn (2015) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522536.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Joan Chamorro & Andrea Motis - Feeling Good (2012) [FLAC|tracks+.cue]<Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522530.jpg" />
 </div>
 
 

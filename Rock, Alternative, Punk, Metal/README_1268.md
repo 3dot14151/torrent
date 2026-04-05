@@ -1,3 +1,32 @@
+###  Публикация: 1508172   (19263) от 05.05.2025
+
+Рожь (RYE) - 5 Releases (2019-2025) [FLAC|Lossless|Web-DL|tracks, tracks + .cue] <Atmospheric Black Metal, Post Metal, Funeral Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2025 - Знание (WEB)
+2023 - Всё (WEB)
+2021 - Вечное (CD)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post Metal, Funeral DoomПродолжительность: 02:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DAEB2CA8E46A2C89818218832AA861D865AFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795791   (19143) от 06.05.2025
 
 Be Bop Deluxe - Modern Music (1976) Japanese Edition, Limited Edition, Reissue, Harvest [FLAC|Lossless|image + .cue] <Art Rock, Prog Rock, Glam>
@@ -6,7 +35,7 @@ Be Bop Deluxe - Modern Music (1976) Japanese Edition, Limited Edition, Reissue, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19143.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Karg - Marodeur (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient Black Metal, Post-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19037.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Eela Craig - One Niter (1976) Japanese Edition, Reissue, Remastered, 2009, Belle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19027.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Stereophonics - Make ‘em Laugh, Make ‘em Cry, Make ‘em Wait (2025) [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19026.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Peter Murphy - Silver Shade (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18931.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Ghost - Rite Here Rite Now (Original Motion Picture Soundtrack) (2024) 2 x CD [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18925.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Game Over - Face the End (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18830.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Probot - Probot (2004) Japanese Edition [FLAC|Lossless|image + .cue] <Hardcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18827.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Nightfall - Children of Eve (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18824.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18810.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Sting - 3.0 Live (2025) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18642.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Cain's Dinasty - Dinastía de Caín (2025) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18621.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Queensrÿche - Empire (1990) BOX Set, 3xCD, Compilation, Reissue, Remastered, 20
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18408.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Guns N' Roses - Appetite For Democracy 3D (2014) BOX Set, 2xCD, Limited Edition 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18179.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Fleetwood Mac - Like Crying: The Songs of Danny Kirwan (2025) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17988.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Rush - Rush 50 (2025) 4CD Anniversary Super Deluxe [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17981.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Siege of Power - This Is Tomorrow (2023) [FLAC|Lossless|image + .cue] <Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17677.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Cirith Ungol - Servants Of Chaos (2001) 2 x CD, Compilation, Reissue, 2011, Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17670.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Brutalt - Reason with Death (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17660.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Diamond Head - Lightning To The Nations (1980) 2XCD, Reissue, Remastered, 2022, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17625.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Obús - Vamos Muy Bien (2006) 2 x CD, Compilation, Reissue, 2007, Sony BMG Music
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17566.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Child Sized Coffin - Feast (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17538.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Citadel - Descension (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17537.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ mclusky - the world is still here and so are we (2025) [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17529.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Monolith - Magnum Opus (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17528.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Monolith - Magnum Opus (2025) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559BF17FF42F0BC67ADDA97EFF3AC10CCC0C4E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798099   (17517) от 21.05.2025
-
-Eric Clapton - Me and Mr Johnson (2004) [FLAC|Lossless|tracks + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You Got a Good Friend    [0:03:20.32]
-02. Little Queen of Spades    [0:04:57.70]
-03. They’re Red Hot    [0:03:25.08]
-04. Me and the Devil Blues    [0:02:56.37](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7C0189EED70F3DA1ECEC847DDD6C4516081E66
 ```
 
 https://mybot314.ru/tekegram_catalog/

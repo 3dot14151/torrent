@@ -1,82 +1,3 @@
-###  Публикация: 912219   (609017) от 27.06.2015
-
-Йосеф Кац | Таллин. Любовь и смерть в старом городе (2014) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таллинская любовь сдержанна и немногословна. Она обращена не к настоящему, а к прошлому. Она вплетена в ткань улиц и площадей. Она может показаться наивной и провинциальной, но никогда - фальшивой и пошлой. Возвышенная и приземленная, романтическая и бесхитростная, платоническая и самая что ни на есть плотская, пребывающая в нескончаемом поединке со своими противниками (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90EE74FF64D3D743F57F507446353E3EB602AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912552   (609014) от 27.06.2015
-
-О. А. Корнилов | Жемчужины китайской фразеологии (2005) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена фразеологии китайского языка. Пословицы и поговорки народа - это прочеканенные, пройденные резцом времени и отлитые в изящные формулы вершины человеческой мудрости. Автор поставил своей задачей донести до самого широкого круга читателей неповторимую прелесть китайского мировосприятия, позволить им заглянуть в «дом бытия духа» китайского народа. Отобранные (   Читать дальше...   )Жанр: История культуры зарубежных странФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB51C00029C752C2F1CC904D0D3747559AD946A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912223   (609013) от 27.06.2015
-
-М. Ю. Молчанов | Ассирийская держава. От города-государства - к империи (2015) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая работа - это попытка систематичного изложения многовековой истории Древнеассирийской державы.
-Возникший на месте поселения скотоводов, крохотный полис Ашшур через несколько тысячелетий превратился в громадную Новоассирийскую империю - по сути, первую империю в истории человечества. Этот многовековой путь оказался полон перипетий, взлётов и падений. Однако (   Читать дальше...   )Жанр: История, Археология, Этнография, Древний ВостокФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D34062E3A1EC1843C70FBD45AE0A428F7C73C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912443   (609012) от 27.06.2015
 
 П. М.  Керженцев | Ленинизм. Введение в изучение ленинизма (1924) [DJVU]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609012.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609009.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608934.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608929.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608916.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608913.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608835.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608785.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608761.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608696.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608695.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608586.jpg" />
 </div>
 
 
@@ -398,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607723.jpg" />
 </div>
 
 
@@ -424,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607714.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607238.jpg" />
 </div>
 
 
@@ -478,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607137.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607135.jpg" />
 </div>
 
 
@@ -532,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607091.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607085.jpg" />
 </div>
 
 
@@ -585,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606548.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606457.jpg" />
 </div>
 
 
@@ -637,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605574.jpg" />
 </div>
 
 
@@ -665,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605362.jpg" />
 </div>
 
 
@@ -676,6 +597,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7939B5EE2898C50A377B8BF74321DE0635D1C2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913567   (605354) от 29.06.2015
+
+А. Д. Михайлов | Средневековые легенды и западноевропейские литературы (2006) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605354.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны работы, посвященные некоторым легендам Средневековья. На сложных путях от мифа к литературе, по крайней мере, в рамках средневековой культуры, всевозможным легендам принадлежит доминирующая роль. Включенные в эту книгу исследования преследуют каждый раз одну и ту же цель – выявить пути формирования средневековых легенд, особенности их функционирования (   Читать дальше...   )Жанр: Культурология, ЯзыкознаниеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45DE74B8316539CB6D87DBCF290F4AD26483B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912347   (605205) от 29.06.2015
+
+С. В. Цветков | Поход Русов на Константинополь в 860 году и начало Руси (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография С.В.Цветкова "Поход русов на Константинополь в 860 году и начало Руси" - первая научная работа, подробно освещающая это известное, но малоизученное событие. Именно с этого похода наш народ получил свое название - русы. С него началось дипломатическое признание русской государственности, начало крещения Руси и учреждение первой Русской Метрополии. (   Читать дальше...   )Жанр: История Древней Руси, СредневековьеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1732EFC9C63A892D3A471761918E8E77C92F21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913319   (605119) от 29.06.2015
+
+Д. А. Ляпин | История средневековой Руси. Русское государство в IX-XVI веках [2 книги] (2014) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605119.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Средневековой Руси: учебное пособие для студентов академических специальностей исторических факультетов.
+Пособие содержит источники по древнейшей истории России и предназначено для работы на практических занятиях студентов академических специальностей по профилю подготовки бакалавр.Жанр: ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AA487BBC04278F054EEB8A6012FB15EA897D18
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1437113   (1041810) от 05.01.2021
+
+Человек из Подольска (2020) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай любит Амстердам, но живёт в Подольске, мечтает о музыкальной карьере, но занимает скромную должность в районной газете. Внезапное задержание московской полицией вовлекает его в смешной и страшный аттракцион, исход которого невозможно предсказать. Точно ли он находится в полицейском участке, кто эти требовательные интеллектуалы в погонах и откуда им все про (   Читать дальше...   )Производство: Россия, Фонд развития современного кинематографа «КИНОПРАЙМ», Новые людиЖанр: Комедия, ДрамаРежиссер: Семён СерзинАктеры: Вадик Королев, Виктория Исакова, Владимир Майзингер, Михаил Касапов, Илья Борисов, Олег Рязанцев, Евгений Сангаджиев, Георгий Кудренко, Рита Крон, Денис ГоринПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB20545B5190E02938A21232773E294EA71D85E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411382   (1041809) от 05.01.2021
+
+Serious Sam 4 (2020) [Ru/Multi] (1.07/dlc) Repack xatab [Deluxe Edition] (обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество находится в осаде, орды Ментала распространяются по всему миру, уничтожая остатки сломленной и разбитой цивилизации. Последнее препятствие на пути захватчиков - Армия Обороны Земли, возглавляемая Сэмом Стоуном по прозвищу Крутой Сэм и его вооруженным до зубов отрядом солдат. Croteam возвращаются с мощнейшим приквелом к серии игр Крутой Сэм, увеличивая (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Экшн, Приключение, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B6807C9621BB181D6720942D0E04928BF57320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788376   (1041808) от 05.01.2021
+
+Пора Приключений (Время Приключений) / Adventure Time (2010-2018) WEB-DL [H.264/720p] (Сезон: 1-9(10), Серии: 1-142 из 142) [EN, RU Sub]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пора Приключений - американский анимационный сериал, созданный Пендлтоном Вордом. Сериал повествует о необыкновенных и весёлых приключениях двух лучших друзей: мальчика Финна и его собаки Джейка. Действие сериала происходит в волшебной стране Ууу. Финн - 13-летний мальчик, который обожает путешествовать и спасать принцесс из лап ужасных монстров и злодеев, населяющих (   Читать дальше...   )Производство: США, Frederator StudiosЖанр: Рисованная анимация, Приключения, КомедияРежиссер: Ларри Лэйчлитер / Larry LeichliterПерсонажи: Джереми Шэда - Человек Финн, Джон Димаджио - Пёс Джейк, Хинден Уолш - Принцесса Жвачка, Ники Янг - Леди Радугарог, Том Кенни - Ледяной КОроль, Оливия Олсон - Королева Вампиров МарселинаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельным файлом), перевод Павел Самойлов aka TanisПродолжительность: ~00:22:00 х Серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAD1BD1BB2D72DB6B524342994CA61CD0E89BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864383   (1041807) от 05.01.2021
+
+Star Conflict: Faction Wars(2013) [Ru/Multi] (1.8.0.143448) License (обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Conflict - компьютерная многопользовательская онлайн-игра, созданная студией StarGem Inc совместно с Gaijin Entertainment. Игра позволяет сесть за штурвал космического звездолета и принять участие в массовых битвах звездных армад.Тип издания: LicenseРазработчик: Star GemЖанр: Simulator, MMORPG, Action, AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C41772E88558439FC705C25E4FAC8337930E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610624   (1041779) от 09.02.2023
+
+Производство аккумуляторов всё больше зависит от кустарной добычи кобальта
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женевский центр бизнеса и прав человека и Центр бизнеса и прав человека им. Стерна Нью-Йоркского университета сообщают, что добыча кобальта кустарным способом становится ключом к росту глобального производства аккумуляторов. Экспертов беспокоит, что отсутствие государственного регулирования на кустарных объектах ведёт к бесправию, угнетению и утрате здоровья работников, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437321   (1041549) от 06.01.2021
+
+Премия Steam Awards 2020: геймеры выбрали игрой года Red Dead Redemption 2
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё 22 декабря 2020 года сотрудники компании Valve запустили премию Steam Awards 2020, в ходе которой геймеры голосовали за лучшие проекты в десяти категориях. В этот раз в каждой из категорий было представлено по пять популярных в определённом жанре игр, среди которых пользователь выбирал что-то наиболее интересное, а вчера, 3 января уже 2021 года, были подведены (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432953   (1041534) от 06.01.2021
 
 Zombie Army 4: Dead War (2020) [Ru/Multi] (2.02/dlc) Repack xatab [Super Deluxe Edition]
@@ -6,7 +162,7 @@ Zombie Army 4: Dead War (2020) [Ru/Multi] (2.02/dlc) Repack xatab [Super Deluxe 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041534.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Anno 1800 (2020) [Ru/En] (9.2.972600/dlc) Repack xatab [Complete Edition]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041530.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Microsoft Office 2016-2019 [16.0.13426.20404] (x86/x64) by Ratiborus v7.1.4++ [R
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041529.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ Microsoft уничтожит данные пользователей беспл�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041525.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041515.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041381.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041234.jpg" />
 </div>
 
 
@@ -191,7 +347,7 @@ Windows 10 Professional 20H2 x64 Game OS 1.2 by CUTA [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041233.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041232.jpg" />
 </div>
 
 
@@ -244,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041231.jpg" />
 </div>
 
 
@@ -272,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041211.jpg" />
 </div>
 
 
@@ -298,7 +454,7 @@ ADATA: карты памяти формата SD Express
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040988.jpg" />
 </div>
 
 
@@ -324,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040975.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040974.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040967.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ High On Life (2022) [Multi] (1.11.4763.0) License RAZOR1911
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040959.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ Osiris: New Dawn (2023) [Ru/Multi] (0.5.616) License TENOKE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040957.jpg" />
 </div>
 
 
@@ -455,7 +611,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2023.02.02 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040955.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040954.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ Microsoft хочет унифицировать дизайн Windows 10 и со�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040701.jpg" />
 </div>
 
 
@@ -519,164 +675,6 @@ Microsoft ищет специалистов-программистов, кото
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437986   (1040699) от 09.01.2021
-
-Секс будущего: голограммы, виртуальность и одиночество
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Размышление о сексуальности будущего. Что это — очередная статья, полная щенячьего восторга по поводу секса с киборгами, или мрачный прогноз о грядущем киберпанк-одиночестве, разбавленном виртуальными суррогатами? Мой текст — попытка понять, каким образом будут строиться отношения между новейшими технологиями и человеческим желанием. Так что скорее — второе.Впрочем, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437908   (1040695) от 09.01.2021
-
-В Telegram обнаружен способ определить местонахождение пользователя
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря функции «Люди рядом» можно с точностью до нескольких десятков метров определить местоположение неосторожного пользователя Telegram. Это открывает широкий простор для действий злоумышленников. Единственный способ обезопасить себя — контролировать использование геолокации мессенджером.Сообщение о найденной уязвимости опубликовал в своем блоге энтузиаст Ахмед (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438327   (1040683) от 09.01.2021
-
-Windows 8.1 (x86/x64) 40in1 +/- Office 2019 SmokieBlahBlah 08.01.21 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040683.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 редакций Windows 8.1 (русские и английские) с обновлениями по декабрь 2020 и интегрированными системными библиотеками + 10 таких же редакций со встроенным Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС. Начиная с версии 08.01.21 файлы Office вынесены в отдельный образ office.esd, (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5589DE669BB871EDBFF95E4F4DB730B16FDCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438745   (1040682) от 09.01.2021
-
-Udemy, Владилен Минин | JavaScript 2021 - Полное Руководство с Нуля до Профи (2020) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для новичков в JavaScript. С нуля мы разберем все концепции, которые есть в языке и закончим самыми актуальными знаниями, которые нужны для всех разработчиков на JavaScript
-В кусе 16 часов основного контента и еще 6 больших бонусов
-В курсе показана разработка с нуля 2-х полноценных веб-приложений, реализованных в форме условной веб-игры и блога. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 32:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81199AAA629ACDBC2BD304CD34397BB7F5593E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438307   (1040680) от 09.01.2021
-
-На острие (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая саблистка мира, Александра Покровская, знаменита, богата и счастлива. Чтобы войти в историю, ей остается сделать последний шаг – взять олимпийское золото. Но путь ей преграждает девятнадцатилетняя Кира Егорова, девушка из провинции, в одночасье покорившая Москву. Кира побеждает на всех соревнованиях и не сходит с обложек глянцевых журналов. Ее цель – занять (   Читать дальше...   )Производство: Россия / ТелестоЖанр: Драма, спортРежиссер: Эдуард БордуковАктеры: Светлана Ходченкова, Стася Милославская, Сергей Пускепалис, Алексей Барабаш, Евгений Сытый, Софья Эрнст, Хильда Кармен, Кирилл Дегтярь, Павел Колобков, Мария КиселеваПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCC00DE90773C5FE4232D834F5C587F542FD359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370607   (1040679) от 09.01.2021
-
-Последний министр (2020) WEBRip (сезон 1, серии 1-16 из 16 + Новогодняя)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда министром перспективного планирования назначают деятельного неудачника, никто представить не может, к чему это приведёт. Оказывается, новый министр действительно хочет изменить жизнь людей к лучшему и для этого вместе с командой активно продвигает собственные инициативы. Правда, инициативы эти не всегда разумны, а результат — крайне непредсказуем.Производство: Россия / Продюсерская компания «Среда»Жанр: комедияРежиссер: Роман ВолобуевАктеры: Ян Цапник, Ольга Сутулова, Нелли Уварова, Сергей Епишев, Анна Шепелева, Софья Лебедева, Алексей Золотовицкий, Дарья Носик, Екатерина Носик, Сергей Степин и др.Продолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECCF05887C1CE08342165D22A2E5EEC570E0694
 ```
 
 https://mybot314.ru/tekegram_catalog/

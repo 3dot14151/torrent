@@ -1,56 +1,3 @@
-###  Публикация: 1053063   (524186) от 18.09.2016
-
-Николай Задорнов | Капитан Невельской (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о сложной, драматичной истории открытия русскими людьми устья Амура, начала освоения Приморья и Сахалина. В центре романа - образ капитана, впоследствии - адмирала Г.И. Невельского, путешественника и ученого, флотоводца и дипломата, патриота России и самоотверженного защитника ее интересов.Жанр: Исторический романПродолжительность: 37:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815C147D88795970280308C498B9D6CCFA8A219D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313737   (522927) от 10.07.2019
-
-Колин Маккалоу | По воле судьбы (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их было двое. Два великих римлянина. Два выдающихся военачальника. Расширивший пределы государства, победивший во многих битвах Цезарь и Помпей Великий, очистивший Средиземное море от пиратов, отразивший угрозу Риму на Востоке.
-Они были не только союзниками, но и родственниками. Но… жажда власти развела их по разные стороны и сделала врагами. Рим оказался на пороге (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 36:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CD3A28501EF72F50DF2FCDCA64B2A9E214400A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313833   (522254) от 11.07.2019
 
 Александр Немировский | Пифагор (2019) [MP3]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522254.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522144.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521756.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521316.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519068.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518847.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516058.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516051.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515988.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509217.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ Cценарий DJMarMeladKa | Виктор Цой. 55 лет легенде Т�
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504217.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498412.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498403.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498349.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495051.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493984.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493219.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492312.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492037.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492028.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488413.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488261.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488161.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488066.jpg" />
 </div>
 
 
@@ -676,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB2007430185ED0575B0F1305ED87DEA5AA34256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 120038   (487748) от 29.08.2018
+
+Н.С.Трубецкой | Исторические труды (2006) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487748.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании представлены работы Н. Трубецкого «Европа и человечество», «Взгляд на русскую историю не с запада, а с востока», «Мы и другие», «Русская проблема». С точки зрения Н. Трубецкого, евразийство значительно углубляет и расширяет понятие личности. Личностью с евразийской точки зрения является не только человек, но и народ.Жанр: История, философияПродолжительность: 07:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014557CFF186427BA2530509B89B5BE2BD29BC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405019   (487127) от 28.08.2020
+
+Арсений Замостьянов | Генералиссимус Суворов. "Мы русские - враг перед нами дрожит!" (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не просто подробная биография величайшего русского полководца. Больше, чем исследование боевого пути А.В. Суворова, всех его походов, сражений и побед. Это – первая Суворовская энциклопедия, иллюстрированная сотнями картин, карт, рисунков и реконструкций. Его триумфы вошли в легенду. Его «Наука побеждать» стала настольной книгой любого офицера. Его имя навеки (   Читать дальше...   )Жанр: БиографииПродолжительность: 17:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FA3C9483063F64D40E17CA466190874FA8836D
 ```
 
 https://mybot314.ru/tekegram_catalog/
